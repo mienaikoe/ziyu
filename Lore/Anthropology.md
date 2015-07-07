@@ -1,5 +1,3 @@
-# The Biology of Pangum
-
 ## Sexes
 	
 There are three sexes in some of the species on Pangum and Surien, including the humanoid species þrongia, although most species have two. In a three-sex species, one sex has eggs, while the other two have sperm. Gametes from all 3 are required for fertilization. Evolution has given rise to a long duration of fertility.
