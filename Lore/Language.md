@@ -20,8 +20,7 @@ There are two sets of consonants (Land and Ocean). Each Consonant has a matching
 	chee - djaa
 	shee - jjaa
 	
-	hee - 'aa (where ' is a momentary break in the air)
-	wee - hfaa (where hf is the sound when you blow air through a small opening (ふ))
+	hee - hfaa (where hf is the sound when you blow air through a small opening (ふ))
 	
 ### Vowels
 Vowels, or "Sky" letters, are considered a continuous 2-dimensional map of sounds. The Throat Dimension, and the Lip Dimension. There are no definite letters, only a general location. The meaning of a word is inferred from the approximate sound, instead of a certain letter. In Writing, these spectrums are reflected in a single "Vowel Letter" that has variations that reflect the throat and lip dimensions.
