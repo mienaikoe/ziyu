@@ -1,6 +1,6 @@
 
 ## Pangum
-	- A planet about 1.3x larger than Earth.
+- A planet about 1.3x larger than Earth.
 	
 ### Continents
 - **Shuwan Continent** - (Lif, argicultural and educational, not actively in war, but lends food, engineers, and doctors to Shenwan for the effort, Ponyville, Dublin)
