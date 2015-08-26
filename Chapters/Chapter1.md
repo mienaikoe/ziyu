@@ -15,10 +15,31 @@ I recited my mother's poem quietly:
   *I speak with it upon my lips*
   *and with my hands it guides me*
 
-  "Lovely poem"
-  Startled, I turned around to see Melna sitting behind me with her legs tucked under her, smiling her warm smile.
-  "How long have you been hovering over there?"
-  "Only a little bit. I knew you'd be out here just like you do every morning after a rain, so I thought I'd come out to get you for breakfast and catch a bit of the song"
-  I turned forward again and listened for the last notes.
-  "What did you think of the poem," I asked.
-  "It was"
+"Lovely poem"
+Startled, I turned around to see Melna sitting behind me with her legs tucked under her, smiling her warm smile.
+"How long have you been hovering over there?"
+"Only a little bit. I knew you'd be out here just like you do every morning after a rain, so I thought I'd come out to get you for breakfast and catch a bit of the song"
+I turned forward again and listened for the last notes.
+"What did you think of the poem," I asked.
+"It was"
+
+
+
+*************
+
+
+Kip sat staring at a postletter with his morning face and a little smirk, his hair the furrowed nest of a hurried bird. He noticed that I had come in and put on his best goofy smile and we both chuckled softly. Mel was too serious to be amused by our nonsense but she had no expectation for us to stop.
+
+   "Who's the letter from?", I asked casually.
+
+   "My parents. They're traveling to the east coast this week."
+
+   "Ooh. Quite hot this time of year," said Melna. Her eyes turned down to pick up the breakfast plates she had prepared before fetching me.
+
+   "Yea. They've always been ones to go on dangerous adventures. This probably isn't the hottest they've experienced."
+
+   "That's quite brave," Mel responded. "So why the East in particular?"
+
+    "Well they just haven't gone in a while and they were really wanting to see an unfettered view of Surien at the sunrise to take photos."
+
+   I was immediately excited. "I've heard so much about that. They say there's very little fog or cloud on the east coast and that Surien is so clear you can see the bits of mountains around it's edges."
