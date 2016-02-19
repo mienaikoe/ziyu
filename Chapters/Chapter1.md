@@ -28,21 +28,24 @@ I turned forward again and listened for the last notes.
 *************
 
 
-Kip sat staring at a postletter with his morning face and a little smirk, his hair the furrowed nest of a hurried bird. He noticed that I had come in and put on his best goofy smile and we both chuckled softly. Mel was too serious to be amused by our nonsense but she had no expectation for us to stop.
+Kip sat staring at a postletter with his morning face and a little smirk. His hair, the furrowed nest of a hurried bird. He noticed that I had come in and put on his best goofy smile and we both chuckled softly. Mel was too serious to be amused by our nonsense but she had no expectation for us to stop.
 
-   "Who's the letter from?", I asked casually.
+  "Who's the letter from?", I asked casually.
 
-   "My parents. They're traveling to the east coast this week."
+  "My parents. They're traveling to the east coast this week."
 
-   "Ooh. Quite hot this time of year," said Melna. Her eyes turned down to pick up the breakfast plates she had prepared before fetching me.
+  "Ooh. Quite hot this time of year," said Melna. Her eyes turned down to pick up the breakfast plates she had prepared before fetching me.
 
-   "Yea. They've always been ones to go on dangerous adventures. This probably isn't the hottest they've experienced."
+  "Yea. They've always been ones to go on dangerous adventures. This probably isn't the hottest they've experienced."
 
-  "That's quite brave," Mel responded. "So why the East in particular?"
+  "They're quite brave," said Mel, setting down our breakfast. "So why the East in particular?" 
 
-  "Well they just haven't gone in a while and they were really wanting to see an unfettered view of Surien at the sunrise to take photos."
+  "Well they haven't gone in a while and they were really wanting to see a good view of the great crown at sunrise."
+  I was immediately excited. "Oh, I've heard about that. They say there's very little fog or cloud on the east coast and that the sky is so clear you can see the outlines of the crown's plates where the light hits."
 
-   I was immediately excited. "I've heard so much about that. They say there's very little fog or cloud on the east coast and that Surien is so clear you can see the bits of mountains around it's edges."
+  "Huh. We should see it someday," he said in a ho-hum sort of way. Kip had turned his attention toward breakfast, his happy place.
+
+  Mel sat in her seat and began to tap on the table as if something was missing.
    
    
    ********
@@ -50,3 +53,8 @@ Kip sat staring at a postletter with his morning face and a little smirk, his ha
    She withdrew her hand from her breakfast and leaned back into her chair, breathing a sigh into the morning sunlight. I could tell she was dreaming about being a traveler. We had been entwined too early before we could roam across Palinan as single Palinians do.
    "Thinking about going yourself?" I chimed.
    "I am"
+   
+   *********
+   Her eyes flutter the feathers on the wings of my heart as the winds do. Her lips are of marble.
+   
+  
