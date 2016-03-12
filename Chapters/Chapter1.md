@@ -5,6 +5,7 @@ You cannot hear the first note of a jiyu's song. There is no grand entrance or c
 It was under this tree that I was born. Among the plants and animates that called this magnificent tree home, I made my first cry to the heavens and the heavens sang back through the leaves. My mother used to tell me it was the most beautiful thing watching me be born. They had been waiting all night for me to start, but I wouldn't budge until just before dawn. It had been raining that night and the leaves of the tree were glistening by the crescent of green light of our sibling planet, Surien. She told me that the song the tree sang that morning had never sounded quite so much like a lullaby, carrying me in its arms the way she would do. I still imagine it sometimes when I come here, laying in her arms at dawnlight, hidden within the greatest sound in all the world.
 
 I recited my mother's song. My family's song:
+
   *The jiyu is an orchestra.*
   *The sunlight tunes its reeds.*
   *The rain decides each note and rest*
@@ -87,16 +88,13 @@ I recited my mother's song. My family's song:
 
    After breakfast, Kip cleaned up while Mel and I moved upstairs to the dressing room to prepare for the day. Her and I started this morning ritual when we first started living together as a quiet time to bond. We chose what to wear together and I would watch her and playfully try to slow her down. After doing this everyday for years, we had a way of knowing what each other is thinking so we stopped using words. Sometimes we would have whole conversations with just our eyes and our hands. I've found that it's better to tell her she's beautiful without saying it.
 
-
-
-   
-   ********
-   
-
    
    *********
       
 Mel had always spent her day in the capital while Kip and I stayed home to farm our own food and maintain the house. 
+
+   *********
+   
 Her eyes flutter the feathers on the wings of my heart. Her presence teaches my spirit to fly and it learns like it's always known. 
 
    
