@@ -1,18 +1,20 @@
 
-## Pangum
-- A planet about 1.3x larger than Earth.
+## Palinan
+- A moon about 1.3x larger than Earth. 
+- It's tidally locked with a gas giant. 
+- The Palinan's oribtal period is about 5 Earth days.
+- There is one continental land mass and a freshwater ocean facing its parent planet.
+- There is a big desert at the middle of the land mass. Most Palinians live on the Coastal Ring.
+- There is a ring of asteroids orbiting the planet called the Black Crown.
 	
-### Continents
-- **Shuwan Continent** - (Lif, argicultural and educational, not actively in war, but lends food, engineers, and doctors to Shenwan for the effort, Ponyville, Dublin)
- 	- **Hei Province** (farming center + music + farm residential + agro)
-	- **Ko Province** (education center + science + mid residential + forest)
-	- **Shenwan Continent** (Mel, war against Surien, capitalist democracy, London, Constantinople)
-		- **Sha Province** (government center + military + mid residential + agro/forest)
-		- **Li Province** (commercial center + visual arts + vary residential + agro/forest)
-		- **Bo Province** (creative center + performance arts + luxe residential + mountains/forest)
+### Provinces
+- **Heiko Province** 
+a province on the Western coast. This is where the story begins. This province is the leading people of the whole moon. They have harnessed renewable energy, population control, and education in a way that allows them to live luxurious lives. There is order in this province, with a clear hiearchy of government but enough technology that they live comfortably. As a society, they haven't grown much in a century. There is no military threat, so they have no defenses.
+
+- **Sha-Li Province** 
+a province on the Eastern coast. These people live happily with a minimal amount of technology. They use mechanical machines, but can't afford electronic machines. Their education system is pretty good, but naturally doesn't cover things which the people don't know about. This society is a more anarchic democratic society. They don't have an organized defense system, but they value households defending themselves.
+
+- **Halpa Province** 
+a province on the Northern coast made of a tribal people that use only simple technology. Each person is trained to be a warrior.
 		
-## Surien 
-- Binary Planet Partner of Pangum. Thick, humid atmosphere, from which drinking water comes. No oceans. (war against Shenwan Continent, communist dictatorship rebelling against home planet, Beijing, Moscow).
-      - **Jja City** (rebellion center + propaganda + low residential + agro/rainforest)
-      - **Puk City** (military center + military + low residential + mines/rainforest)
-      - **Ðul City** (industrial center + commercial + mid residential + mines/mountains)
+
