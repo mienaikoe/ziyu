@@ -4,7 +4,7 @@
 - Palinan's orbital period is about 5 Earth days.
 - There is one continental land mass and one big ocean. The planet is 65% ocean.
 - There is a big desert at the middle of the land mass. Most Palinians live on the Coastal Ring.
-- There is a ring of asteroidic shell planets orbiting Palinan called the Black Crown.
+- There is a ring of iron shell colonies and asteroids orbiting Palinan called the Black Crown.
 	
 ### Provinces
 
@@ -28,3 +28,9 @@ The science and culture of the Lun'u is based on tradition and proof. Whatever h
 
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members. 
 
+
+## The Black Crown (Heigi)
+
+There are about 5 shell colonies (known as Gems). Each shell is self-sustaining and elliptical - Most people living in a ring valley. The "higher" parts of the ellipse are to keep the atmosphere inside, provide a very strong, lightsource, and provide surface area for solar and cosmic energy capture. The shells are made of asteroidic iron formed into a steel. The outer parts are coated with a semiconductor film that captures energy to be used in the central light source. There are large sapphire windows at ground-level that help with crop-growing.
+
+The colonies appear to have been used previously by an advanced diploid species from Palinan, but records of them have long since been lost. There are expedition crews that visit the gems regularly to look for clues, but they can't be there for more than 10 days because of food and water supply. There are ideas that the gems can be reseeded and re-used as colonies, but the plans for that lie far in the future.
