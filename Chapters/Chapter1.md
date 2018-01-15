@@ -24,58 +24,77 @@
 
 
 
-  Kip sat at the kitchen table reading a postletter with his morning face on. His hair, the furrowed nest of a bird with all the wrong branches. Our tired eyes met and he put on his typical goofy smile. Mel was too busy to be amused by our nonsense.
+  Kip was at the sun stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that had found all of the crooked branches. His tired eyes met mine and he put on his goofiest "it's my day off" smile. Melna was at the kitchen table, too busy planning her day to be amused by our nonsense.
 
-   "Who's the letter from?", I asked casually.
+  "Who's the letter from?", I asked him casually.
 
-   "My parents. They're on vacation on the east coast this week."
+  "My parents. They're on vacation to the east bay this week."
 
-   "Ooh. Quite hot this time of year," said Melna. Her eyes turned down to pick up the porridge bowls she had prepared before fetching me.
+  "That's a strange place to vacation," said Melna.
 
-   "Yea. They've always been ones to go on adventures to exotic places. This probably isn't the hottest they've experienced."
+  "Yea. They've always been ones to go on adventures to exotic places. They were really wanting to see the sky when the star is high. Something about brightness meditation."
 
-   "Quite brave," said Mel, setting down our breakfast. She turned back to get her own. "So why the East in particular?"
+  I was immediately excited. "Oh, I've heard about that. They say there are no clouds or fog and the whole sky is bright blue like the sunrise. Everything is so hot that you sweat out all your worries."
 
-   "Well they haven't gone in a while and they were really wanting to see a good view of the great crown at sunrise."
+  "That sounds awful," said Mel, her eyes still focused her work, "Why would someone choose that place to meditate in?"
 
-   I was immediately excited. "Oh, I've heard about that. They say there's very little fog or cloud on the east coast and that the sky is so clear you can see the outlines of the crown's plates where the light hits."
+  Kip shrugged and let out a hopeless hum, more focused on the letter than the now boiling soup pot. I came closer and nudged him away to remove the pot from the focus while he took a moment to snap out of reading.
 
-   "Huh. Sounds great. We should see it someday," he said in a ho-hum sort of way. Kip had turned his attention toward breakfast, his happy place.
+  "A bowl would be great," I told him.
 
-   Mel sat in her seat and began to tap on the table as if something was missing.
+  "Ah yea. A bowl," he fetched one and held it out for me to pour into.
 
-   "Lif, where did you leave the water jug?"
+  Mel walked over to us to check on the food. "Let me make sure it's still like my Amma used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
 
-   I responded politely, "I don't know, I haven't touched it since dinner last night."
+  I did as she said and finally sat down to eat.
 
-   "...Kip?"
+  A moment of quiet slurping went by and I could see Mel's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. We had been married too early before we could roam across the world like most single Palinians.
 
-   He looked up from his breakfast and pointed his nose toward the reading room.
+  "Thinking about traveling?" I chimed at her.
 
-   "On the table."
+  "I am. It's been too long since we've gone anywhere."
 
-   Mel waited to see if he would get up, but he turned back to his breakfast. Sensing her irritation, I started to rise but she paused me with a firm grip on my arm and some sort of repeated syllable that signified she was proving a point and I should not get in her way.
+  Kip joined in, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
 
-   "Kip."
+  "Hey, we all had fun catching fish," I defended myself.
 
-   "Mmmmhm?" He was pretty oblivious.
+  "There was nothing else to do."
 
-   "Could you fetch it for us?"
+  "Yea... but it was fun!"
 
-   "Oh. Yea, sure."
-
-   He got up and paced toward the water jug while Mel lowered her head toward her again, a discontented sound echoing from her throat.
-
-   A pause of quiet slurping went by and I could see Mel's mind had moved onto a deeper thought. She withdrew her hand from her spoon and sat up in her chair, breathing a closed-eye sigh of longing into the morning sunlight. I could tell she was thinking about travling again. We had been entwined too early before we could roam across Palinan as single Palinians do.
-   "Thinking about going to the East Coast yourself?" I chimed.
-   "I am. It's been too long since we've gone anywhere."
-   Kip, hesitant, joined, "Last time was when we went to the North coast to live with the halpas for a week. I'll never forget how cold that was."
-   Mel immediately recalled the memory, "Ughhh. Don't remind me. Halpas are a great people, but I will never understand why they live in the tundra."
+  He shook his head and laughed while Melna and I broke a smile.
 
 
-   ********
 
-   After breakfast, Kip cleaned up while Mel and I moved upstairs to the dressing room to prepare for the day. Her and I started this morning ritual when we first started living together as a quiet time to bond. We chose what to wear together and I would watch her and playfully try to slow her down. After doing this everyday for years, we had a way of knowing what each other is thinking so we stopped using words. Sometimes we would have whole conversations with just our eyes and our hands. I've found that it's better to tell her she's beautiful without saying it.
+********
+
+
+
+  "Hey... what did you mean this morning?" I asked Melna as she got dressed for the day. "You mentioned you could feel a chill."
+
+  "Oh nothing. Just an observation," A lie. Why would she lie?
+
+  "If there's something you know-"
+
+  "-I wouldn't be able to tell you anyway."
+
+  She scurried to the mirror and I followed her.
+
+  "So there *is* something."
+
+  "I did not say that-"
+
+  "Yes but you inferred it. Mel, us farmers... we are responsible for food here. If a seasonal drift is happening, we need to know that."
+
+  "We know this already. The court will inform the people when the time is appropriate-"
+
+  "And when will that be? When we start getting hit with frosts? When we've all starved to death? When will it be?"
+
+  "Lif... you are beyond yourself. I've already told you all I can tell."
+
+  I wasn't satisfied. She was never this secretive.
+
+  ""
 
 
    *********
