@@ -1,23 +1,30 @@
-  "Lovely song"
+  "Lovely day"
 
-  Startled, I turned around to see Melna sitting behind me with her legs tucked under her, smiling her warm smile.
+  Startled, I sat up to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
 
-  "How long have you been hovering over there?"
+  "How long have you been here?" I asked.
 
-  "Only a little bit. I knew you'd be out here just like you do every morning after a rain, so I thought I'd come out to get you for breakfast and catch a bit of the song"
+  "Just a click. I figured you would be here today."
 
-  I turned forward again and listened for the last notes.
+  I stayed silent, still listening for the leaves and my mother's voice.
 
-  "What did you think of the song," I asked.
+  "You've been gone a while. Your breakfast is cold."
 
-  She paused for a bit to think, and then answered, "Like the Jiyu's song, its beauty does not expire."
+  "I'll be there in a bit."
+
+  She stared at me for a moment - I assume to size up my strange behavior, and then turned to walk back home.
+
+  She reassured me, "I feel it too. There's a chill in the air."
+
+  I felt no comfort.
 
 
 
 *************
 
 
-  Kip sat at the kitchen table reading a postletter with his morning face on. His hair, the furrowed nest of a bird with all the wrong branches. Our tired eyes met and he put on his best goofy smile: a typical greeting for him and me. Mel was too busy to be amused by our nonsense but she usually didn't partake anyway.
+
+  Kip sat at the kitchen table reading a postletter with his morning face on. His hair, the furrowed nest of a bird with all the wrong branches. Our tired eyes met and he put on his typical goofy smile. Mel was too busy to be amused by our nonsense.
 
    "Who's the letter from?", I asked casually.
 
