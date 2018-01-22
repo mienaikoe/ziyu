@@ -5,11 +5,14 @@
 - There is one continental land mass and one big ocean. The planet is 65% ocean.
 - There is a big desert at the middle of the land mass. Most Palinians live on the Coastal Ring.
 - There is a ring of iron shell colonies and asteroids orbiting Palinan called the Black Crown.
+- There is tectonic action and a magnetic field due to tidal forces. This also gives rise to large mountains on the bright side and splotched islands on the dark side.
+
 
 
 ## Day
 
-Since Pangum is a tidal-locked planet, there is no passage of day or night. There is a slight libration that causes some parts to receive a sunrise or sunset. People tend to live in these areas, and are awake at opposite times of the orbit depending on their location on the libration plane.
+Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which gives some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
+
 
 
 ### Provinces
@@ -33,6 +36,7 @@ The science and culture of the Lun'u is based on tradition and proof. Whatever h
 **Halpa Province**
 
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members.
+
 
 
 ## The Black Crown (Heigi)

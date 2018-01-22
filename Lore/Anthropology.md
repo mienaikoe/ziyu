@@ -38,4 +38,10 @@ Trade between villages is common, as Palinan has many microclimates. There is so
 
 ## Technology
 
-Oil on Palinan is non-existent because of the lack of tectonic action after the planet became tidally locked. Mining and electricity, however, are leaned on greatly. The relative scarcity of rare earths makes semiconductors expensive to make, so they are reserved for those who are deemed to need it, such as scientists.
+Oil on Palinan is non-existent because of the lack of mass extinction events. This means that plastics and fossil fuels never took off because of their relative scarcity. Mining and electricity, however, are leaned on greatly as the abundance of metallic ore is high in the crust from tidal volcanic activity.
+
+Electrical devices are abundant and cheap. Electromagnetic theory has been mastered, as has the theory of thermodynamics. There is a relative scarcity of rare earths due to the system forming from a smaller star nebula. This makes semiconductors expensive to make, so they are reserved for those who are deemed to need it, such as scientists and in spacecraft.
+
+Power generation is typically done by focusing sunlight from the bright side of the planet onto salt water from the dark side to run steam-powered generators. Clean, hot water from after the turbine is piped to homes through highly insulated pipes. To get cold water, people simply store it in a tank to cool down.
+
+Space flight does not rely on rockets. Instead, þrongia have developed Lorentz-based rail launchers for spacecraft which use energy on the ground to impart a delta-V to the spacecraft without using this delta-V to move fuel.
