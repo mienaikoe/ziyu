@@ -18,11 +18,11 @@ Like most animates, þrongia spend their first years learning, working, and form
 
 ## Religion
 
-þrongian religion states that conscious free will is God, and that beings that forfeit their consciousness and free will in service to another are forfeiting their spirit. In some cases, this is accepted, such as in marriage or in cooperative work efforts. However, slavery and unfair punishments are considered deplorable. Gifts of service are deeply appreciated and it understood that a recipient of a service holds the life of their giver for the duration of service.
+þrongian religion states that conscious free will is the spirit that fills all animates, and that beings that forfeit their consciousness and free will in service to another are forfeiting their spirit. In some cases, this is accepted as a token of honor, such as in marriage or in cooperative work. However, slavery and unfair punishments are considered deplorable. Gifts of service are deeply appreciated and it is understood that a recipient of a service holds a responsibility to the life of the giver for the duration of service.
 
-As consciousness is god, it is a grave sin to destroy or corrupt another being's consciousness. There is a spectrum of consciousness amongst the animates, and this rule applies amongst all animates. For instance, it is not a sin to murder an insect, but it is a grave sin to murder another large mammalian animate. The only exception is when another being wishes to kill you, as a consciousness that wishes to kill or corrupt is itself corrupt.
+As consciousness is god, it is a grave sin to destroy or corrupt another being's consciousness. There is a spectrum of consciousness amongst the animates, and this rule applies to the spectrum. For instance, it is not considered wrong to murder an insect, but it is gravely wrong to murder another large, sentient mammalian animate. The only exception is when another being wishes to destroy or corrupt another, as a consciousness that wishes to destroy or corrupt is itself corrupt.
 
-the þrongia operate on a sort of theocracy with these beliefs, trusting that this sort of spirituality will operate as a guiding force for future generations to sustain their villages.
+the þrongia operate on a sort of theocracy with these beliefs, trusting that this sort of spirituality will operate as a guiding force for future generations to sustain their villages regardless of scientific or popular shift.
 
 
 

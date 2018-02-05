@@ -54,15 +54,19 @@
 
   "I am. It's been too long since we've gone anywhere."
 
-  Kip joined in, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
+  Kip joined, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
 
-  "Hey, we all had fun catching fish," I defended myself.
+  "Hey, we all had fun uh... catching fish," I defended myself.
 
-  "There was nothing else to do."
+  "You mean having sex," Mel interjected.
 
-  "Yea... but it was fun!"
+  I defended my position, "Hey, catching fish was fun too."
 
-  He shook his head and laughed while Melna and I broke a smile.
+  "There was literally nothing else to do," Kip reminded me.
+
+  "Yea... but I'd totally do it again!"
+
+  And I would. I was kind of a sucker for them. He and Mel shook heads and laughed while I broke the smarmiest smile.
 
 
 
@@ -72,35 +76,66 @@
 
   "Hey... what did you mean this morning?" I asked Melna as she got dressed for the day. "You mentioned you could feel a chill."
 
-  "Oh nothing. Just an observation," A lie. Why would she lie?
+  She responded, "Oh nothing. Just an observation."
+
+  I could hear the lie. Why would she lie?
 
   "If there's something you know-"
 
   "-I wouldn't be able to tell you anyway."
 
-  She scurried to the mirror and I followed her.
+  She moved to the mirror and I followed her. The newly-awoken sun had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the red strands of a senator around her robe.
 
-  "So there *is* something."
+  "The farmers... we have a responsibility, you know. If a current drift is happening, we need to know so we aren't caught by an early-"
 
-  "I did not say that-"
+  "Lif... I've already told you all I that I know. I will learn more when I attend today's convention."
 
-  "Yes but you inferred it. Mel, us farmers... we are responsible for food here. If a seasonal drift is happening, we need to know that."
+  She was a stone wall of secrets. I was unsatisfied, but it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
-  "We know this already. The court will inform the people when the time is appropriate-"
+  I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from this village. From me."
 
-  "And when will that be? When we start getting hit with frosts? When we've all starved to death? When will it be?"
+  She looked at me through the mirror for a moment, searching for motives in a face of none.
 
-  "Lif... you are beyond yourself. I've already told you all I can tell."
+  "You will know soon."
 
-  I wasn't satisfied. She was never this secretive.
+  I let out a frustrated sigh and made my way to the doorway of her room.
+
+  "Hey Lif..."
+
+  I stopped.
+
+  "Don't tell Kip about this."
+
+  I continued.
+
+
+
+  ********
+
+
+
+  Kip was reading his day's plans in the same spot we had left him. He looked up, and took one glance at me.
+
+  "Mel got you down?"
+
+  "How could you tell?"
+
+  "Ah you know."
+
+  I waited for him to elaborate.
+
+  "...Reasons."
+
+  Thanks Kip.
+
+  I mustered up a response, "Don't want to talk about it right now."
+
+  He wasn't convinced, but he was more calm about these things than I was.
+
+  "Okay... suit yourself"
+
+  We had a long awkward silence. Mel came downstairs and looked us over. She had a confused look for a brief moment, but moved on.
+
+  "I'm headed to the capital now."
 
   ""
-
-
-   *********
-
-Mel had always spent her day in the capital while Kip and I stayed home to farm our own food and maintain the house.
-
-   *********
-
-Her eyes flutter the feathers on the wings of my heart. Her presence teaches my spirit to fly and it learns like it's always known.
