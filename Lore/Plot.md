@@ -15,8 +15,10 @@ Is mostly a static character
 
 - First Mission - hasn't heard back from them
 
-- Kip and Cal do surgery on Lin(Survivor) with no anesthetics while Lif has a nervous breakdown
+- Lif goes up in the second rescue mission
 
-- Lif dies
+- Kip and Cal do surgery on Lin(Survivor) to remove control prosthetics with no anesthetics while Lif has a nervous breakdown
+
+- Kip dies
 
 - Baby is born?

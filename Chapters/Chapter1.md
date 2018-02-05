@@ -24,7 +24,7 @@
 
 
 
-  Kip was at the sun stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that had found all of the crooked branches. His tired eyes met mine and he put on his goofiest "it's my day off" smile. Melna was at the kitchen table, too busy planning her day to be amused by our nonsense.
+  Kip was at the sun stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I ran up to nuzzle him. Melna was squatting at the kitchen table, too busy planning her day to be amused by our nonsense.
 
   "Who's the letter from?", I asked him casually.
 
@@ -84,7 +84,7 @@
 
   "-I wouldn't be able to tell you anyway."
 
-  She moved to the mirror and I followed her. The newly-awoken sun had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the red strands of a senator around her robe.
+  She moved to the mirror and I followed her. The newly-awoken sun had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the clay-orange cords of a Heiko senator around her robe.
 
   "The farmers... we have a responsibility, you know. If a current drift is happening, we need to know so we aren't caught by an early-"
 
@@ -92,15 +92,15 @@
 
   She was a stone wall of secrets. I was unsatisfied, but it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
-  I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from this village. From me."
+  I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your family."
 
   She looked at me through the mirror for a moment, searching for motives in a face of none.
 
-  "You will know soon."
+  "You will know soon," she said coldly.
 
   I let out a frustrated sigh and made my way to the doorway of her room.
 
-  "Hey Lif..."
+  "Lif..."
 
   I stopped.
 
@@ -114,7 +114,7 @@
 
 
 
-  Kip was reading his day's plans in the same spot we had left him. He looked up, and took one glance at me.
+  Kip was going over his schedule of patients in the same spot we had left him. He looked up and took a glance at me, burying his head in the schedule again.
 
   "Mel got you down?"
 
@@ -130,12 +130,34 @@
 
   I mustered up a response, "Don't want to talk about it right now."
 
-  He wasn't convinced, but he was more calm about these things than I was.
+  He wasn't convinced, but he was more accepting about these things than I was.
 
   "Okay... suit yourself"
 
-  We had a long awkward silence. Mel came downstairs and looked us over. She had a confused look for a brief moment, but moved on.
+  I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Mel came downstairs and looked us over. She had a confused look for a brief moment, but resumed her recessional.
 
-  "I'm headed to the capital now."
+  "I'm headed to the train."
 
-  ""
+  "Have a good day," he chimed. I stayed silent.
+
+  "I'll be back a bit late tonight. Don't wait up for me on dinner."
+
+  "Late? What for?" I asked.
+
+  "I was promised a busy day today."
+
+  I looked in her eyes more intently. Something about her eyes was very out of place. As if she had shut off her spirit and it was wallowing in its own guilt. I stood up and approached her as she turned to leave the yurt.
+
+  "What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
+
+  "Whatever it is you'll be arguing today, I am here for you."
+
+  I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate.
+
+  "Thank you. Lif."
+
+  Kip walked up to us, and she loosened up to nuzzled both of us quickly before opening the door to the outside. She followed the walkway toward the village center and made haste to the train tracks without looking back.
+
+  "What's eating her?" Kip asked again.
+
+  "Nothing. Just a chill in the air."
