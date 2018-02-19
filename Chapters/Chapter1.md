@@ -156,7 +156,7 @@
 
   "Thank you. Lif."
 
-  Kip walked up to us, and she loosened up to nuzzled both of us quickly before opening the door to the outside. She followed the walkway toward the village center and made haste to the train tracks without looking back.
+  Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. Kip and I watched as she entered the daylight to follow the walkway toward the city center without looking back.
 
   "What's eating her?" Kip asked again.
 
