@@ -24,7 +24,7 @@
 
 
 
-  Kip was at the sun stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I ran up to nuzzle him. Melna was squatting at the kitchen table, too busy planning her day to be amused by our nonsense.
+  Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I ran up to nuzzle him. Melna was squatting at the kitchen table, too busy planning her day to be amused by our nonsense.
 
   "Who's the letter from?", I asked him casually.
 
@@ -84,7 +84,7 @@
 
   "-I wouldn't be able to tell you anyway."
 
-  She moved to the mirror and I followed her. The newly-awoken sun had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the clay-orange cords of a Heiko senator around her robe.
+  She moved to the mirror and I followed her. The newly-awoken daylight had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the clay-orange cords of a Heiko senator around her robe.
 
   "The farmers... we have a responsibility, you know. If a current drift is happening, we need to know so we aren't caught by an early-"
 

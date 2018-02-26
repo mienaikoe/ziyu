@@ -9,9 +9,19 @@
 
 
 
+## Solar System
+
+Palinan is a circumbinary planet with a white dwarf and a red giant.
+
+
 ## Day
 
-Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which gives some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
+Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
+
+
+## Urban Planning
+
+Cities and living areas are typically formed near the sea, and the remaining area at the habitable line is typically farmland where there are solar-facing hills, and residences of those nearby areas. There are solar-thermal power stations at the solar-facing edge of the habitable line and near cities. Trains typically travel from power station to power station across the habitable line. Most food storage is in the dark edge of the habitable line.
 
 
 
