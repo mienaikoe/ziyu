@@ -6,7 +6,7 @@ There are three sexes in some of the species on Pangum and Surien, including the
 
 - **Man** - This sex is a carrier of his own gametes and those of the Ofan which form a two-chromesome sperm. Man is typically slower in movement but higher in dexterity. I will use the terms "man", "boy", "he", "him", and "his" to refer to this sex.
 
-- **Ofan** - This sex has mammary glands that develop after woman releases pheremones during pregnancy. Although Earth females breastfeed, the physiological traits and instincts of the Ofan aren't quite matched to woman, so it would be inaccurate call the Ofan this. In physical terms, this sex typically has medium hips, low bmi, shorter stature and a faster pulse. Þrongia Ofan are quick-thinking and are typically good at making split-second decisions. The Ofan developed these traits to protect already-born offspring. Children are the closest to their Ofan parent, which I will call mother. I will use the terms "ofan", "kaln", "þe", and "þeir" to refer to this sex.
+- **Ofan** - This sex has mammary glands that develop after woman releases pheremones during pregnancy. Although Earth females breastfeed, the physiological traits and instincts of the Ofan aren't quite matched to woman, so it would be inaccurate call the Ofan this. In physical terms, this sex typically has medium hips, low bmi, shorter stature and a faster pulse. Þrongia Ofan are quick-thinking and are typically good at making split-second decisions. The Ofan developed these traits to protect already-born offspring. Children are the closest to their Ofan parent, which I will call mother. I will use the terms "ofan", "kaln", "thae", and "hae" to refer to this sex.
 
 
 
@@ -33,6 +33,8 @@ the þrongia operate on a sort of theocracy with these beliefs, trusting that th
 When a village grows much greater than 1000, the village and its commonwealth is split - one half stays and other half leaves, taking with it a large portion of the commonwealth. The other half redistributes its housing to expand into the abandoned homes and builds up a new commonwealth.
 
 Trade between villages is common, as Palinan has many microclimates. There is some strain in trade because of disagreements of the definition of fairness across the villages. The beliefs of consciousness and forfeiting free will are stretched to accomodate some trades that seem unfair to a party, and are casting some doubt on the decentralized theocracy.
+
+The provincial council assigns work for the common good instead of levying taxes. The council is in charge of building roads, rail services, electrical and water infrastructure, and research especially in medicine and agriculture. There is a Palinan-wide scientific body that also handles research tasks that are agreed upon by all member provinces.
 
 
 

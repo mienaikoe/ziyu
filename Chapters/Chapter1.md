@@ -24,9 +24,9 @@
 
 
 
-  Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I ran up to nuzzle him. Melna was squatting at the kitchen table, too busy planning her day to be amused by our nonsense.
+  Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
 
-  "Who's the letter from?", I asked him casually.
+  "Who's the letter from?", I asked Kip casually.
 
   "My parents. They're on vacation to the east bay this week."
 
@@ -146,7 +146,7 @@
 
   "I was promised a busy day today."
 
-  I looked in her eyes more intently. Something about her eyes was very out of place. As if she had shut off her spirit and it was wallowing in its own guilt. I stood up and approached her as she turned to leave the yurt.
+  I looked in her eyes more intently. Something about her eyes was very out of place. As if she had shut off her heart and it was wallowing in guilt. I stood up and approached her as she turned to leave the house.
 
   "What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
 
@@ -156,7 +156,7 @@
 
   "Thank you. Lif."
 
-  Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. Kip and I watched as she entered the daylight to follow the walkway toward the city center without looking back.
+  Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. Kip and I watched as she entered the daylight and headed toward the rail station without looking back.
 
   "What's eating her?" Kip asked again.
 
