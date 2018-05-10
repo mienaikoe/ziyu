@@ -19,7 +19,7 @@
 
   "Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
 
-	She was referring to the tied-back robes of the members of the court where Mel worked. I changed the subject.
+  She was referring to the tied-back robes of the members of the court where Mel worked. I changed the subject.
 
   "It's chilly today, isn't it?"
 
@@ -77,16 +77,16 @@
   *"A jealous Maman never rests"*
   *Tig... What did Mamen ever do to offend you?*
   *Or was I the rude one? No, She was intentionally trying to get under my skin.*
-	*I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?*. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
-	There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *The messenger? What could he possibly want?*
+  *I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?*. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
+  There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *The messenger? What could he possibly want?*
 
-	He started as soon as the door opened, “Lif, I have an urgent message for Melna. Is she here?”
+  He started as soon as the door opened, “Lif, I have an urgent message for Melna. Is she here?”
 
-	“Um. No she left a few clicks ago.”
+  “Um. No she left a few clicks ago.”
 
-	He was still catching his breath, “You - You need to find a way to get this to her before the vote today.”
+  He was still catching his breath, “You - You need to find a way to get this to her before the vote today.”
 
-	“Okay, slow down. What’s this about?”
+  “Okay, slow down. What’s this about?”
 
 
 -------
