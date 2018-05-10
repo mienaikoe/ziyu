@@ -19,7 +19,7 @@
 
   "Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
 
-  She was referring to the tied-back robes of the members of the court where Mel worked. I ignored her and shifted my focus to the ground. It was frosted over and harder than usual.
+  She was referring to the tied-back robes of the members of the court where Mel worked. I ignored her and shifted my focus to my work.
 
   "It's chilly today, isn't it?"
 
@@ -88,7 +88,7 @@
 
   “Okay, slow down. What’s this about?”
 
-	“It's about the frost“
+	“It's about Ara.“
 
 
 -------
