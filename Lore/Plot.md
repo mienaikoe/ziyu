@@ -17,7 +17,7 @@ option 1) the radiation and shock wave of their binary stars creating a nova. Th
 
 option 2) A large solar flare [unpredictable]
 
-option 3) A nearby gamma ray burst (can be from anywhere)
+option 3) Helium Flash from Ara
 
 option 4) A large incoming asteroid (can be from anywhere)
 
