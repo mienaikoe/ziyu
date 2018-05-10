@@ -3,14 +3,25 @@
   The traditions say it is good luck to be born under a jiyu, and to be born under its song is a blessing unmatched by any other. I've never felt particularly blessed, born a normal ofan in an agricultural town. No real talents other than tilling soil or harvesting root vegetables. I once caught the milta that had eaten almost half of our parsnips, so I guess I'm quick as well, but that's pretty typical for a ofan. Perhaps it is simply that I have never put my luck to the test. I tried falling in love, and I got married so I wouldn't have to do it again. I go to the city sometimes with my spouses, but it's usually to help with something at Mel's work. People say we should have children, but we decided to wait for a while so that Kip can finally have some free time. I leave my adventures to the dealings of my garden, and my library of books.
   This morning's adventure was to come back to my birthplace, a birthday tradition of Palinians. Though my parents have passed, I still feel their presence here whenever I come back. They welcome me as the tree does with its great branch-arms stretched wide toward our suns. "I'm back," I tell them, and they let out a sigh of relief that I have made it another year. I take my place at its trunk and wait for the song to lift me.
   Silence.
+
   "Something is wrong," my subconscious began.
-  I fought back, "It's fine. It's just a little late," and went back to waiting.
-  "...It's not coming. Something is wrong."
-  The wind had picked up and the sunlight was warming the land, but the Jiyu remained silent.
-  "It's gone. Why is it gone?"
-  I stopped my panicked head with a deep breath. "It's just too cold," I said aloud. "The leaves are too cold to sing."
-  The air had the faintest chill, but the tree remained silent as I tossed and turned trying to come up with an answer that would settle my mind. None came.
-  I stood up and dusted off my trousers, catching a last glimpse of the red horizon through the leaves. This place began to unsettle me, as if it were possessed by some malicious spirit, unseen and brooding.
-  A memory of my mother's voice passed through my mind, pulling me back into the past,    
-    "***Nature speaks loudest when it is silent***.
-    "What is it saying?" I asked her, as I always would. She always told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was hearing only the beginning of the answer, and it was deafening.
+
+	I fought back, "It's fine. It's just a little late," and went back to waiting.
+
+	"...It's not coming. Something is wrong."
+
+	The wind had picked up and the sunlight was warming the land, but the Jiyu remained silent.
+
+	"It's gone. Why is it gone?"
+
+	I stopped my panicked head with a deep breath. "It's just too cold," I said aloud. "The leaves are too cold to sing."
+
+	The air had the faintest chill, but the tree remained silent as I tossed and turned trying to come up with an answer that would settle my mind. None came.
+
+	I stood up and dusted off my trousers, catching a last glimpse of the red horizon through the leaves. This place began to unsettle me, as if it were possessed by some malicious spirit, unseen and brooding.
+
+	A memory of my mother's voice passed through my mind, pulling me back into the past,    
+
+	"***Nature speaks loudest when it is silent***.
+
+	"What is it saying?" I asked her, as I always would. She always told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was hearing only the beginning of the answer, and it was deafening.

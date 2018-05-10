@@ -32,7 +32,7 @@
 
   "That's a strange place to vacation," said Melna.
 
-  "Yea. They've always been ones to go on adventures to exotic places. They were really wanting to see the sky when the star is high. Something about brightness meditation."
+  "Yea. They've always been ones to go on adventures to exotic places. They were really wanting to see the sky when Ara is high. Something about brightness meditation."
 
   I was immediately excited. "Oh, I've heard about that. They say there are no clouds or fog and the whole sky is bright blue like the sunrise. Everything is so hot that you sweat out all your worries."
 
