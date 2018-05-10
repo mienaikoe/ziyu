@@ -19,7 +19,7 @@
 
   "Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
 
-  She was referring to the tied-back robes of the members of the court where Mel worked. I changed the subject.
+  She was referring to the tied-back robes of the members of the court where Mel worked. I ignored her and shifted my focus to the ground. It was frosted over and harder than usual.
 
   "It's chilly today, isn't it?"
 
@@ -29,7 +29,7 @@
 
   "Oh you'll get them at all times of the season. Once when I was young we had 4 days of frost right after germination. Lost the whole plot and had to start over."
 
-  "That sounds unfortunate, but I think this one is different. It's the middle of the warm season"
+  "That sounds unfortunate, but I think this one is different. It's the middle of our warm season"
 
   "It's just a cold spell. These things happen. It'll be back to normal soon, you'll see."
 
@@ -84,9 +84,11 @@
 
   “Um. No she left a few clicks ago.”
 
-  He was still catching his breath, “You - You need to find a way to get this to her before the vote today.”
+  He was still catching his breath, “You - You need to find a way to get this to her as soon as possible.”
 
   “Okay, slow down. What’s this about?”
+
+	“It's about the frost“
 
 
 -------
@@ -95,20 +97,16 @@
 
 
 
-  /*
+<!---
   Something felt out of place. *A cup. That's odd. I don't remember getting a cup out*. An uneasy feeling suddenly gripped me and amplified the silence. I left the cup just in case I would need to retrace the scene, and quietly inched my way toward the cellar to get something to defend myself with. *Crap. What if the killer is down there. Killer? You're being paranoid*. After a moment of indecisiveness, I grabbed a long glass bottle from the shelf and proceeded to slowly creep along the wall toward the back of the house.
-  */
 
-  /*
   In chapter 2, we unravel Lif's life and a little bit of her personal
   complexes and suspicions through dialog with others where she seems suspicious
   of the cold but everyone older thinks she's overreacting.
   Mel and Kip have gone to their respective workplaces.
   Main point of action is a surprise birthday party
-  */
 
-  /*
   Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.
-  */
 
   // show don't tell
+-->
