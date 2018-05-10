@@ -9,13 +9,13 @@
 -------
 
 
-  "Another day, then," called Tig. She had caught me while working the area of my plot next to hers. The same farmer's trousers adorned her, but she was apparently more strict about washing them daily.
+  "Another day, then," called Tig. She had caught me unawares from her plot of land next to mine. The same farmer's trousers adorned her, but she was apparently more strict about washing them daily.
   "Is your life really that mundane?" I asked jokingly.
-  "Oh, I enjoy the repetition. Can't get a body like this by talking all day in the city," she jabbed, both at Mel and her own deteriorating body. I changed the subject.
+  "Oh, I enjoy the repetition. Can't get a body like this by talking all day," she jabbed, both at Mel and her own deteriorating body. I changed the subject.
   "It's chilly today, isn't it?"
   "I suppose so. Every season will have a few of these."
-  "Yes, but not at this time of the season."
-  "Oh you'll get them at all times of the season. This one season we had 4 days of frost right after we sowed. Lost the whole plot and had to start over."
+  "Yes, but it’s too early, isn’t it?”
+  "Oh you'll get them at all times of the season. Once when I was young we had 4 days of frost right after germination. Lost the whole plot and had to start over."
   "That sounds unfortunate, but I think this one is different. It's the middle of the warm season"
   "It's just a cold spell. These things happen. It'll be back to normal soon, you'll see."
   "Sure. We'll see."
@@ -41,16 +41,25 @@
 -------
 
 
-  My sense of humility or perhaps a feeling of unimportance surfaced as I entered a house that I could never have called home on my own. I don't blame Tig for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to better themselves and get out of farming, they would be met with endless criticism from their family for burdening everyone with their risk. I like to imagine that Tig tried to branch out once, but would never admit it to a lowly farming Ofan who married up and has no interest in raising children.
-  I took my boots and trousers off so as not to make a mess, and took a seat at the table. With a sigh, I took in everything around me as if this were all some dream that I would one day abruptly wake from. My father used to say that "Nothing is promised". And my nather would always respond, "You promised to love us".
-  Something felt out of place. *A cup. That's odd. I don't remember getting a cup out*. An uneasy feeling suddenly gripped me and amplified the silence. I left the cup just in case I would need to retrace the scene, and quietly inched my way toward the cellar to get something to defend myself with. *Crap. What if the killer is down there. Killer? You're being paranoid*. After a moment of indecisiveness, I grabbed a long glass bottle from the shelf and proceeded to slowly creep along the wall toward the back of the house.
-
-
-  // or mel herself that couldn't go because there was an incident at the capital
-
-
+  A feeling of humility or perhaps unimportance surfaced as I entered a house that I would never have thought to call home without Mel and Kip. I don't blame Tig for her disdain. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to better themselves and get out of that life, they were met with endless criticism from their family for burdening everyone with their risk. I like to imagine that Tig tried to branch out once, but would never admit it to an Ofan who married up and has no interest in raising children.
+  I took my boots and trousers off so as not to make a mess, and took a seat at the table. With a sigh, I took in everything around me as if this were all some opulent dream that I would one day wake from and find myself in the slums of some forgotten town. ***I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?***. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent farming Kaln I used to be. I drifted back to childhood, hearing my Father tell us "Nothing is promised - you can only rely on yourself“. But then my Naether reminded him, "You promised to love us". Perhaps they were both right.
+  *A Knock at the door*. ***Is it that Tig again come to tell me I was rude?*** I sat up and quietly snuck toward the door to see who it was. ***The messenger? What could he possibly want?*** 
+	He started as soon as the door opened, “Lif, I have an urgent message for Mel. Is she here?”
+	“Um. No she left a few clicks ago.”
+	He was still catching his breath, “You - You need to find a way to get this to her before the vote today.”
+	“Okay, slow down. What’s this about?”
+	“
 
 /*
+ options:
+ - Mel comes home to fess up (Mel is weak)
+ - Kip comes home to fess up that Mel asked him to do the rescue mission (behind Lif’s back)
+ - Lif finds a memo about a project (Mel is not careful)
+ - Mel gets an urgent memo sent at home, and Lif needs to follow her to the capital to deliver it. Lif gets curious and opens it - it’s a memo about the mission gone dark. (Mel is strong, Lif is curious). 
+ - Lif goes to Kip to discuss it (Lif is weak, but Kip is close-by after all. Does Lif want to keep Kip out of it?)
+ - Lif goes to Mel to ask more or investigate (What does Lif expect to gain from this?)
+ - Lif waits until the evening (Lif is strong, takes time to gather thoughts. Wants to keep Kip out of it)
+
 
   In chapter 2, we unravel Lif's life and a little bit of her personal
   complexes and suspicions through dialog with others where she seems suspicious
@@ -58,14 +67,8 @@
 
   Mel and Kip have gone to their respective workplaces.
 
-  Main point of action is
+  Main point of action is that Lif discovers ambiguous information about the first mission and decides how to act
 
-*/
-
-
-
-/*
-Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.
 */
 
 // show don't tell
