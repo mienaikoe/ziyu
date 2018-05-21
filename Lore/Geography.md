@@ -3,15 +3,19 @@
 - A planet about 1.3x larger than Earth.
 - Palinan's orbital period is about 5 Earth days.
 - There is one continental land mass and one big ocean. The planet is 65% ocean.
-- There is a big desert at the middle of the land mass. Most Palinians live on the Coastal Ring.
+- There is a big desert at the middle of the land mass. It faces the star. Most Palinians live on the Coastal Ring.
 - There is a ring of iron shell colonies and asteroids orbiting Palinan called the Black Crown.
-- There is tectonic action and a magnetic field due to tidal forces. This also gives rise to large mountains on the bright side and splotched islands on the dark side.
+- There is tectonic action and a magnetic field due to tidal forces. This also gives rise to large mountains on the bright side and splotched islands amidst a vast sea on the dark side.
+- Winds at the surface flow from the cold side to the warm side
 
 
 
 ## Solar System
 
-Palinan is a circumbinary planet with a white dwarf and a red giant.
+Palinan is an earth-sized tidally locked planet with an elliptical orbit around a white dwarf.
+Ara is the white dwarf.
+The Palinians call the dark direction of the sky Ulu. They use these for cardinal directions as well.
+the solar horizon is marked by the Black Crown. A large ring of black debris from a calamity that happened millions of years ago. (Protection of the planet from the impending planetary nebula)
 
 
 ## Day

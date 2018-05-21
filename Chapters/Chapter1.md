@@ -34,7 +34,9 @@
 
   "Yea. They've always been ones to go on adventures to exotic places. They were really wanting to see the sky when Ara is high. Something about brightness meditation."
 
-  I was immediately excited. "Oh, I've heard about that. They say there are no clouds or fog and the whole sky is bright blue like the sunrise. Everything is so hot that you sweat out all your worries."
+  I was immediately excited. "Oh, I've heard about that. They say there are no clouds or fog and the whole sky is bright blue like the sunrise. You can see some features of the crown too."
+
+  "And I bet it's hot enough to pass out too," he remarked, still not convinced.
 
   "That sounds awful," said Mel, her eyes still focused her work, "Why would someone choose that place to meditate in?"
 

@@ -78,7 +78,7 @@
   *Tig... What did Mamen ever do to offend you?*
   *Or was I the rude one? No, She was intentionally trying to get under my skin.*
   *I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?*. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
-  There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *The messenger? What could he possibly want?*
+  There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *Wes? Delivering a message now? What could he possibly want?*
 
   I cracked the door with my trousers still beside it and he started as soon as the door opened, “Lif, I have an urgent message for Melna. Is she here?”
 
@@ -86,7 +86,7 @@
 
   He was still catching his breath, “We - we need to find a way to get it to her as soon as possible.”
 
-  “Slow down for me, Wes. What’s this about?”
+  “Slow down for me. What’s this about?”
 
   “It's about Ara.“
 

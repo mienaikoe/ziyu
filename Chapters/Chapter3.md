@@ -19,7 +19,7 @@
 
 	*She was lying to me*
 
-	"Well, if she's not here, I ought to go back to my office to call the capital."
+	"Well, if she's not here, I should go back to call the capital."
 
 	"Wait. Let me go with you."
 
@@ -31,7 +31,14 @@
 -------
 
 
-	The late morning sunlight was just enough for me to dash to the bike under the veranda on the side of the house. The seat was freezing from being in the shade all night and all morning, but I hopped on anyway and endured the cold.
+	The late morning starlight was just enough for me to see while I dashed to the bike under the veranda on the side of the house. The seat was freezing from being in the shade all night and all morning, but I hopped on anyway and endured the bitter cold on my back. I had a sliver of a moment to remember when Wes and I used to ride along the foggy coastline in the mornings. We would play hide and seek on a wide open beach and just get lost yelling at each other in the gray abyss until the fog lifted.
+	*Not the time for memories*. I snapped out and rushed to the front gate where Wes was waiting for me.
+	"Didn't think we would be doing this again, " he chuckled.
+	"You better not hide from me this time"
+	"Maybe you should work on your seeking"
 
-	I had a sliver of a moment to remember when Wes and I used to 
-	"Just like old times"
+
+-------
+
+
+	The winds were slowly picking up while we rode down the sintered clay path from my home toward the center of town. The perfect ring of the black crown was splitting the sky in two. Ara was to our right and Ulu, the darkness, was to our left. 
