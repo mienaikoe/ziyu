@@ -50,7 +50,7 @@
 
   I did as she said and finally sat down to eat.
 
-  A moment of quiet slurping went by and I could see Mel's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. We had been married too early before we could roam across the world like most single Palinians.
+  A moment of quiet slurping went by and I could see Mel's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
 
   "Thinking about traveling?" I chimed at her.
 

@@ -37,7 +37,7 @@
 
   Her answer was unsatisfying, but I went back to working. Perhaps I was overreacting.
 
-  "So when are you three going to have children? It's been several seasons since you married"
+  "So when are you three going to have children? It's been several seasons since you were joined"
 
   "That's none of your business"
 
@@ -71,16 +71,18 @@
 -------
 
 
-  My sense of humility or perhaps a feeling of unimportance surfaced as I entered a house that I could never have called home on my own. I don't blame Tig for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to better themselves and ascend from their lot, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tig tried to branch out once, but would never admit it to a lowly farming Maman who married up and has no interest in raising children.
+  My sense of humility or perhaps a feeling of unimportance surfaced as I entered a house that I could never have called home on my own. I don't blame Tig for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to better themselves and ascend from their lot, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tig tried to branch out once, but would never admit it to a lowly farming Maman who joined with a higher class and has no interest in raising children.
   I took my boots and trousers off so as not to make a mess, and left them outside next to the door where the clay from countless planting days had painted a spot on the mossy pathway. I took a seat at the table next to the window to sit near an aromatic plant I had been cultivating for its calming effects. In a sigh, I took in everything around me as if it were all some dream that I would one day abruptly wake from.
   *Do I deserve to be here? I am not saving lives or building for the future like Kip or Mel. But I still contribute to the village and I make sure we have food and water and a functional home.*
   *"A jealous Maman never rests"*
   *Tig... What did Mamen ever do to offend you?*
   *Or was I the rude one? No, She was intentionally trying to get under my skin.*
   *I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?*. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
-  There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *Wes? Delivering a message now? What could he possibly want?*
+  There was a knock at the door to snap me awake. *Is it that Tig again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *Jes? Delivering a message now? What could he possibly want?*
 
-  I cracked the door with my trousers still beside it and he started as soon as the door opened, “Lif, I have an urgent message for Melna. Is she here?”
+  I cracked the door with my trousers still beside it and he started as soon as the door opened.
+
+  “Lif, I have an urgent message for Melna. Is she here?”
 
   “Um. No she left a few clicks ago.”
 
