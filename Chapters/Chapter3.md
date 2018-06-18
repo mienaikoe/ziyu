@@ -83,3 +83,16 @@
 	He seemed defeated but looked up into my eyes and we locked gazes for a while.
 	"If you pull this off, we will all petition against your punishment."
 	"Don't worry. I've got a coat."
+
+
+-------
+
+
+	"Hello? Kip?" I called as I entered his practice. He did his sleepy groan from a back room.
+	"Hey I'm sorry to wake you but I need to talk to you."
+	He shuffled around in the room and appeared in the doorway, he wore his sleepy eyes well.
+	"Lif, what's up? What brings you here?"
+	"I'm going on a trip to the capital"
+	"What? Why?"
+	"It's just something between Mel and me"
+	""
