@@ -18,9 +18,18 @@ The Palinians call the dark direction of the sky Ulu. They use these for cardina
 the solar horizon is marked by the Black Crown. A large ring of black debris from a calamity that happened millions of years ago. (Protection of the planet from the impending planetary nebula)
 
 
-## Day
+## Time
 
 Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
+There are names for the various time divisions, which are tabulated here:
+
+Natova    12 Latovas    144 days
+Latova    12 Tovas      12 days
+Tova/Day    .           1 day
+Tova-La   1/12 Tova    ~6 hours
+Tova-Na   1/12 Natova  ~30 minutes
+Tova-Ra   1/12 Latova  ~12.5 seconds
+
 
 
 ## Urban Planning
