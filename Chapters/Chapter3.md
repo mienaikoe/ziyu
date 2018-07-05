@@ -74,25 +74,35 @@
 	"I'll interrupt the Senate"
 	"Lif, that's crazy."
 	"If this is as important as you say, then it would be worth a few days in Ulu."
-	"This message is also highly classified. I can't simply give it to you to deliver."
-	"Then come with me and I'll be the messenger this time."
-	He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him.
+	"This message is also highly secretive. I can't simply give it to you to deliver."
+	"There's no way I would understand it anyway"
+	"It's not that. The court would cast doubt on the message if I sent anyone else in my place."
+	He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had written on.
 	"I can't think of any better way to do it"
-	"It's just... you're sacrificing so much. I should go."
+	"It's just that... you would be sacrificing so much. It should be me."
 	"Someone has to keep the communication lines open amidst whatever kind of chaos awaits us."
 	He seemed defeated but looked up into my eyes and we locked gazes for a while.
-	"If you pull this off, we will all petition against your punishment."
+	"If you pull this off, we will all petition for your freedom."
 	"Don't worry. I've got a coat."
 
 
 -------
 
 
-	"Hello? Kip?" I called as I entered his practice. He did his sleepy groan from a back room.
-	"Hey I'm sorry to wake you but I need to talk to you."
-	He shuffled around in the room and appeared in the doorway, he wore his sleepy eyes well.
-	"Lif, what's up? What brings you here?"
-	"I'm going on a trip to the capital"
-	"What? Why?"
+	"Hello? Kip?" I called as I entered his practice. He chirped sleepily from a back room and I followed the call.
+	"Hey I'm sorry to wake you but I need to talk."
+	He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
+	"Lif? Oh, you surprised me. What brings you here?"
+	"I'm going on a trip to the capital."
+	"What? Why?" He asked, his eyes now completely open.
 	"It's just something between Mel and me"
-	""
+	"You're going all the way to the capital to settle an argument? Why can't you wait until the evening?"
+	"It's... a long story"
+	"You mean, you don't want to tell me"
+	I paused, dumbstruck and scrambling for words.
+	"Lif... you are keeping a secret. Tell me what's going on-"
+	"I - I have to go"
+	He grabbed my wrist hard and I looked up at his eyes. "Why are you acting so strange?" He asked.
+	His pleading gaze almost melted my resolve, but I steeled it and twisted my hand around his grip, pushing away from him.
+	"I have to go."
+	"Lif!" he called as I ran out the door. I had parked my bike far too distantly for the current moment.

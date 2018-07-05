@@ -107,5 +107,7 @@
 
   Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.
 
+  // ***Write more about the relaxation area 
+
   // show don't tell
 -->

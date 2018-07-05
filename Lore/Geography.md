@@ -26,9 +26,10 @@ There are names for the various time divisions, which are tabulated here:
 Natova    12 Latovas    144 days
 Latova    12 Tovas      12 days
 Tova/Day    .           1 day
-Tova-La   1/12 Tova    ~6 hours
-Tova-Na   1/12 Natova  ~30 minutes
-Tova-Ra   1/12 Latova  ~12.5 seconds
+Tova-La   1/12 Tova    ~6 earth hours
+Tova-Na   1/12 Tova-La  ~30 minutes
+Tova-Ra   1/12 Tova-Na  ~2.5 minutes
+Tova-Ma   1/12 Tova-Ra  ~12.5 seconds
 
 
 
