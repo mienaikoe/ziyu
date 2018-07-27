@@ -1,3 +1,6 @@
+
+==Chapter 3
+
 <!--
 
 	In this chapter, I'm exploring the first instance of action writing.
@@ -57,7 +60,7 @@
 	"I assure you, I do."
 	He paused and sighed.
 	"Transferring you to Heiko Senator. Please wait a moment."
-	I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, reciting the more technical words. I glanced at it and could read small pieces of the handwriting. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out the writing.
+	I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but it was unclear what they were.
 	"Heiko Conduit, this is Heiko Senator Assistant Pom speaking."
 	"Assistant Pom, I have an urgent message for Melna"
 	"Senator Melna is currently in assembly."
@@ -72,15 +75,12 @@
 	"I'll go," I said.
 	"What are you talking about?"
 	"I'll interrupt the Senate"
-	"Lif, that's crazy."
+	"That's crazy, you'll be exiled."
 	"If this is as important as you say, then it would be worth a few days in Ulu."
-	"This message is also highly secretive. I can't simply give it to you to deliver."
-	"There's no way I would understand it anyway"
-	"It's not that. The court would cast doubt on the message if I sent anyone else in my place."
 	He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had written on.
 	"I can't think of any better way to do it"
-	"It's just that... you would be sacrificing so much. It should be me."
-	"Someone has to keep the communication lines open amidst whatever kind of chaos awaits us."
+	"You are sacrificing so much. The bureaucracy behind the court is so frustrating."
+	"If this is as important as you say, then there will be a lot of chatter for the next few days. Someone has to keep the communication lines open amidst all that chaos."
 	He seemed defeated but looked up into my eyes and we locked gazes for a while.
 	"If you pull this off, we will all petition for your freedom."
 	"Don't worry. I've got a coat."
@@ -89,20 +89,35 @@
 -------
 
 
-	"Hello? Kip?" I called as I entered his practice. He chirped sleepily from a back room and I followed the call.
+	"Hello? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
 	"Hey I'm sorry to wake you but I need to talk."
 	He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
 	"Lif? Oh, you surprised me. What brings you here?"
 	"I'm going on a trip to the capital."
 	"What? Why?" He asked, his eyes now completely open.
 	"It's just something between Mel and me"
-	"You're going all the way to the capital to settle an argument? Why can't you wait until the evening?"
+	"You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
 	"It's... a long story"
-	"You mean, you don't want to tell me"
+	"You mean you don't want to tell me"
 	I paused, dumbstruck and scrambling for words.
-	"Lif... you are keeping a secret. Tell me what's going on-"
-	"I - I have to go"
-	He grabbed my wrist hard and I looked up at his eyes. "Why are you acting so strange?" He asked.
-	His pleading gaze almost melted my resolve, but I steeled it and twisted my hand around his grip, pushing away from him.
-	"I have to go."
-	"Lif!" he called as I ran out the door. I had parked my bike far too distantly for the current moment.
+	"You're keeping a secret. Tell me what's going on-"
+	I backed away and stammered, "I'll tell you later."
+	I turned to walk out the door, and he grabbed my wrist. I winced and looked back at his eyes. They were pleading, worried.
+	"We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
+	"You can't be involved."
+	"I already am."
+	He released his grip, and I stood in the doorway, still vying with my own thoughts.
+	*I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulu and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land*
+	He pushed again, "If you won't tell me, then I'm going with you to find out myself."
+	"You couldn't - you have patients to see"
+	"They can wait a va'ala until I return"
+	"Kip-"
+	"You really don't want me to go, do you?"
+	"Kip...if you go with me, it will be a long time before you come back."
+	"What are you talking about? The trains run every va'ama"
+	"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
+	"Stop being cryptic. What are you planning, Lif?"
+	His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
+	*So it's clear then*
+	"Goodbye," I said.
+	I walked out and didn't look back.

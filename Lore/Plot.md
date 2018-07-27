@@ -2,11 +2,15 @@
 
 ## Lif
 
-Has a major arc where she goes from irrationally emotional to stoicly heroic.
+Has a major arc where she goes from self-reliant and afraid to heroic and vulnerable to her family, but thi maintains chaotic good throughout the story. Thi has constant imposter syndrome about hae own life.
 
 ## Mel
 
-Is mostly a static character
+Is a lawful neutral character that believes in Lif's purpose, but isn't in a position to make decisions from a non-consensus standpoint. She does not have a major arc, but remains true to her promises to her family and her nation, even if she has to keep secrets from both of them sometimes to maintain order.
+
+## Kip
+
+Is a character that starts out bored with life and becomes obsessed with sense of duty and heroism, to a fault.
 
 
 # Main Plot Point

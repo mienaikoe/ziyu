@@ -1,3 +1,7 @@
+
+== Chapter 2
+
+
   After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me. I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. As I changed out of my morning clothes, I remembered mornings with my mother, changing into our work clothes.
   We used to grow Pohua, a root vegetable known for its sweet fruity taste. She would carry me in a big thatch bag on her back while she tilled, planted, harvested. I watched her hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much she could plant and harvest and aspire to do the same. It's been 6 seasons since she passed, but she lives as vividly in my memories as she did in life.
 
@@ -107,7 +111,7 @@
 
   Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.
 
-  // ***Write more about the relaxation area 
+  // ***Write more about the relaxation area
 
   // show don't tell
 -->

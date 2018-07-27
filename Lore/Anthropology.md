@@ -2,11 +2,31 @@
 
 There are three sexes in some of the species on Pangum and Surien, including the humanoid species þrongia, although most species have two. In a three-sex species, one sex has eggs, while the other two have sperm. Gametes from all 3 are required for fertilization. Evolution has given rise to a long duration of fertility.
 
-- **Woman** - Having to bear offspring, this sex has wider hips and is taller than the other two. Woman is highly tolerant of physical and emotional pain. Woman is typically chosen as a leader of the family as they contribute the most genetic material to the offspring (50% via a two-chromesome egg). This is contentious to some in Pangum, where democracy is decided by families. Many believe that the future of Pangum is controlled by woman since a family's decision is made behind closed doors and posted by the leader of the family. I will use the terms "woman", "girl", "she", and "her" to describe this sex.
+- **Woman (XX)** - Having to bear offspring, this sex has wider hips and is taller than the other two. Woman is highly tolerant of physical and emotional pain. Woman is typically chosen as a leader of the family as they contribute the most genetic material to the offspring (50% via a two-chromesome egg). This is contentious to some in Pangum, where democracy is decided by families. Many believe that the future of Pangum is controlled by woman since a family's decision is made behind closed doors and posted by the leader of the family. I will use the terms "woman", "girl", "she", and "her" to describe this sex.
 
-- **Phaman** - This sex is a carrier of his own gametes and those of the Maman which form a two-chromesome sperm. Phaman is typically slower in movement but higher in dexterity. I will use the terms "phaman", "boy", "he", "him", and "his" to refer to this sex.
+- **Phaman (XY)** - This sex is a carrier of his own gametes and those of the Maman which form a two-chromesome sperm. Phaman is typically slower in movement but higher in dexterity. I will use the terms "phaman", "boy", "he", "him", and "his" to refer to this sex.
 
-- **Maman** - This sex has mammary glands that develop after woman releases pheremones during pregnancy. Although Earth females breastfeed, the physiological traits and instincts of the Maman aren't quite matched to woman, so it would be inaccurate call the Maman this. In physical terms, this sex typically has medium hips, low bmi, shorter stature and a faster pulse. Þrongia Maman are quick-thinking and are typically good at making split-second decisions. The Maman developed these traits to protect already-born offspring. Children are the closest to their Maman parent, which I will call mother. I will use the terms "Maman", "kaln", "thi"(subjective), "tha"(objective), and "thae"(possessive) to refer to this sex.
+- **Maman (XZ)** - This sex has mammary glands that develop after woman releases pheremones during pregnancy. Although Earth females breastfeed, the physiological traits and instincts of the Maman aren't quite matched to woman, so it would be inaccurate call the Maman this. In physical terms, this sex typically has medium hips, low bmi, shorter stature and a faster pulse. Þrongia Maman are quick-thinking and are typically good at making split-second decisions. The Maman developed these traits to protect already-born offspring. Children are the closest to their Maman parent, which I will call mother. I will use the terms "Maman", "kaln", "thi"(subjective), "tha"(objective), and "thae"(possessive) to refer to this sex.
+
+As you might expect from the chromesomes, there are twice as many women as there are Phaman and Maman, so the population has been relatively stable for a long time. Women have also evolved to be slightly more socially independent, whereas Phaman and Maman are similar to humans in that they need companionship.
+
+
+
+## Cities
+
+Cities are built into hills, as there is not a great abundance of big trees for wood or concentrated limestone for concrete. Steel and/or shrubbery is used for soil and rock stationing. Cities typically are oriented to face the sun, as many people use the sun for their businesses. Most plants on palinan are hardy enough and agriculture typically includes a great deal of crop cover that they don't need irrigation water.
+
+
+
+## Communication
+
+Cities are connected via telephone lines, but can only support specific lines between important hubs, such as operator hubs, senate offices, and scientific labs and observatories. The government operates operator and senate hubs. Scientists have their own network but rely on operators to route them. Networks are broadcast-only, and there are no individual lines. This is because of a social philosophy of not keeping secrets between provinces.
+
+
+
+## Transportation
+
+Cities are connected via train lines which call only to capital cities every Va'ala (~6 hours). It takes about 8 va'ama to travel from Heiko to Shaki and back. The extra time is saved so that the schedule can fit in with common sleep and eating schedules.
 
 
 
@@ -42,8 +62,8 @@ The provincial council assigns work for the common good instead of levying taxes
 
 Oil on Palinan is non-existent because of the lack of mass extinction events. This means that plastics and fossil fuels never took off because of their relative scarcity. Mining and electricity, however, are leaned on greatly as the abundance of metallic ore is high in the crust from tidal volcanic activity.
 
-Electrical devices are abundant and cheap. Electromagnetic theory has been mastered, as has the theory of thermodynamics. There is a relative scarcity of rare earths due to the system forming from a smaller star nebula. This makes semiconductors expensive to make, so they are reserved for those who are deemed to need it, such as scientists and in spacecraft.
+Electrical devices are abundant and cheap. Electromagnetic theory has been mastered, as has the theory of thermodynamics. There is a relative scarcity of rare earths due to the predecessors mining it all. This makes semiconductors expensive to make, so they are reserved for those who are deemed to need it, such as scientists and in spacecraft.
 
-Power generation is typically done by focusing sunlight from the bright side of the planet onto salt water from the dark side to run steam-powered generators. Clean, hot water from after the turbine is piped to homes through highly insulated pipes. To get cold water, people simply store it in a tank to cool down.
+Power generation is typically done by focusing sunlight from the bright side of the planet onto salt water pumped from the dark side to run steam-powered generators. Clean, hot water from after the turbine is piped to homes through highly insulated pipes. To get cold, drinkable water, people typical rely on rain or fog catchment, or store hot water in a tank to cool down.
 
 Space flight does not rely on rockets. Instead, þrongia have developed Lorentz-based rail launchers for spacecraft which use energy on the ground to impart a delta-V to the spacecraft without using this delta-V to move fuel.
