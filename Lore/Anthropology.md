@@ -1,3 +1,11 @@
+## species
+The throngia are humanoid because there are many evolutionary traits that are shared with humans. There are a few, however, that have to be diferent:
+- The throngia don't have head hair because it's deemed evolutionarily obsolete. Bare skin is still important, as there are a variety of temperature extremes between Ulu and Ara.
+- They can't run for long distances, as they've largely not been a hunting species. They do use tools however, and have needed a great amount of strength to work the soil for agriculture. There are not many other animals that could be domesticated - most others are small.
+- Their skin is typically more moist than human skin, as rains are fairly common. They retain water inside their skin, and it rarely passes out of it because of tiny, short, transparent, hydrophobic hairs on their skin. The water acts as a thermal regulator because of its high specific heat. It typically doesn't evaporate much because the humidity on Palinan is fairly high and their hairs. Most things that touch their hair would not get wet because the hairs are hydrophobic and do not commute water across them. The water layer is sometimes fun to dye different colors, and the color will slowly flow with the flow of the water layer.
+- Ara emits is mostly reddish and infrared, so throngia can see in the infrared spectrum, which means they can also see heat.
+
+
 ## Sexes
 
 There are three sexes in some of the species on Pangum and Surien, including the humanoid species þrongia, although most species have two. In a three-sex species, one sex has eggs, while the other two have sperm. Gametes from all 3 are required for fertilization. Evolution has given rise to a long duration of fertility.
