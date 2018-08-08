@@ -1,5 +1,5 @@
 
-== Prologue
+## Prologue
 
   You cannot hear the first note of a jiyu's song. There is no grand entrance or catchy hook. No meandering conversation between a point and its counter. Each leaf is but the gentlest voice in a choir of wind. In the calm, or when it's too chilly the song is inaudible. But as the wind slowly picks up and the suns peek above the horizon, you start to recognize the sound, only it's been there for a while and you can't place exactly when it began. At full breeze you are deafened by the sound of every leaf and the complexity of the resounding chords and flourishes.
   It was under this tree that I was born. Among its leaves and stems and branches, I made my first cry to the world and the world sang back to me. My mother used to describe to me how beautiful it was to hold me in her arms for the first time in this place. I still imagine it sometimes when I come here: laying in her arms after a nap, hidden within the greatest sound in all the world. She would sleep longer than me, and I would stare at her hair bobbing in the wind against the pale orange of Ara, our white dwarf.
