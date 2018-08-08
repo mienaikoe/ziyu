@@ -118,6 +118,6 @@
 	"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
 	"Stop being cryptic. What are you planning, Lif?"
 	His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
-	*So it's clear then*
+	*It's clear*
 	"Goodbye," I said.
 	I walked out and didn't look back.
