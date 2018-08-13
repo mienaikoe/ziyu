@@ -25,8 +25,12 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
   "I'm often told that I say too much of what I mean. Some may consider it charming, I suppose."
   "Well, I believe that too many of my generation are afraid to speak, so I'm glad you're still around."
   He chortled, "Charming an old man. At your age?"
-  I laughed. It was loud and it was awkward, but I knew both of us wouldn't mind.
+  I laughed. It was loud and it was awkward, but I knew he wouldn't mind.
   He began again, "so what's taking you to the capital?"
   I froze a bit, stuttering, but said "My wife works there. Just bringing her something."
   "Ahh. Surprising your wife. I bet she'll be excited."
-  "Heh. Yea..."
+  "Heh. Yea. I hope she receives it well."
+  "A good wife would be happy that you had the thought to brighten her work day."
+  "Well we haven't been too happy with each other lately, so I hope you're right."
+  "Yes, that will happen from time to time. I still remember a time we were all fighting about what to cook for dinner, and we didn't speak to each other for weeks afterward. It's silly how the small decisions are always the most difficult to agree on."
+  ""

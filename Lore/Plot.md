@@ -33,6 +33,9 @@ Option A)
 Option B)
   The Palinians live around a white dwarf, huddled in the last remnants of the universe. Invasive robots are moving in to harvest the intense energy of the white dwarf. Palinians become divided on what to do as they are forced to migrate and start a new life closer to the sunward side of the planet.
 
+Option C)
+  By the end, reveal that the robots were created by the progenitors of the Palinians. They invented three sexes and genetically removed curiosity as a way to maintain the population and growth so the planet could remain in equilibrium with the species.
+
 
 # Scene Snippets
 
