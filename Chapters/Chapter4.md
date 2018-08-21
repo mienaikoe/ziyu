@@ -27,29 +27,80 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   *I suppose that's true.*
 
-  The seats were mostly empty but I took one across the carriage from the man - far enough not to creep him out - and put my bag down in the next seat. The sun and wind had grown to its mid-day peak, but the reinforced curtains made them both much more pleasant for a long ride. The man was finding a good spot for his legs as the seats weren't exactly spacious enough for him, but he eventually settled on a position.
+  The seats were mostly empty but I took one across the carriage from the man - far enough not to creep him out - and put my bag down in the next seat. The sun and wind had grown to its mid-day peak, but the reinforced curtains made them both much more pleasant for a long ride. The man was finding a good spot for his legs as the seats weren't exactly spacious enough for an extended leg, but he eventually settled on a position.
 
-  "In all my years of riding trains, they've never built at least one spacious seat for people like me."
+  "In all my years of riding trains, they've never built at least one spacious seat for people of my condition."
 
-  "I imagine it's because none of them are living with your problem," I said.
+  "Maybe none of them are living with your problem," I said.
 
-  "An ounce of empathy is all I ask for. If more people were like you, we would be much better off."
+  "A sliver of empathy from them and an old man could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
 
   "Charming a young maman? At your age?"
 
   "I'm often told that I say too much of what I mean. Some may consider it charming, I suppose."
 
-  "Well, I believe that too many of my generation are afraid to speak, so I'm glad you're still around."
+  "Well, I believe that too many of my generation are afraid to speak, so I'm glad you're around to set us straight."
 
   He chortled, "Charming an old man. At your age?"
+
   I laughed. It was loud and it was awkward, but I knew he wouldn't mind.
+
   He began again, "so what's taking you to the capital?"
 
   I froze a bit, stuttering, but said "My wife works there. Just bringing her something."
 
-  "Ahh. Surprising your wife. I bet she'll be excited."
+  "Ahh. Surprising your wife. I bet she'll be excited," he said.
+
   "Heh. Yea. I hope she receives it well."
-  "A good wife would be happy that you had the thought to brighten her work day."
+
+  "A good wife would be happy that you thought to brighten her day like that."
+
   "Well we haven't been too happy with each other lately, so I hope you're right."
-  "Yes, that will happen from time to time. I still remember a time we were all fighting about what to cook for dinner, and we didn't speak to each other for weeks afterward. It's silly how the small decisions are always the most difficult to agree on."
-  ""
+
+  "Yes, that will happen from time to time. I still remember once we were all fighting about a color to paint our kaln's bike. We didn't speak to each other for weeks afterward. We couldn't let it go until some point when we woke up, as if from a daydream."
+
+  "Did you ever have one that you never woke up from?"
+
+  He paused to take in what I was asking.
+
+  "...I can't tell if you're the kind to be dramatic."
+
+  "Fear does make an actor out of me, but I'm fairly certain it's right this time. She may never forgive me."
+
+  "Perhaps this surprise of yours will not be so welcome then."
+
+  "Sometimes...the nectar is sour," I quoted my favorite writer.
+
+  "Quoting Shathim? How old are you?"
+
+  "Hey, hae writing speaks to me."
+
+  "Hae writing is for children."
+
+  "You wouldn't understand. Us maman understand the benefits of simplicity."
+
+  "You spend so much time rearing children, you become one yourself," he laughed, and I suddenly remembered that he was much older.
+
+  "Perhaps if men and women helped us, we wouldn't spend so much time raising children," I retorted.
+
+  He sighed, "it's simply our place in society to be this way."
+
+  I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at bright void of Ara. Like a switch, we returned to being strangers in our own compartments.
+
+
+  -------
+
+
+  <!--
+    Wakes up:
+    - the paper is gone.
+      - interrogates old man.
+      - goes up and down the train inconspicuously to find it.
+      - finds Kip.
+      - Kip fills Lif in.
+    - the paper is stolen forcefully and quickly.
+      - Lif chases the perp, another maman, through the humming engine room.
+      - Perp is an Arkeza debater/lobbyist that is trying to destroy evidence of the robots' plan.
+    - reads the paper.
+      - realizes the gravity of it all.
+  -->
