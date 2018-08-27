@@ -61,34 +61,40 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   "Did you ever have one that you never woke up from?"
 
-  He paused to take in what I was asking.
+  He paused and looked at me as if he had seen a younger version of himself in me.
 
-  "...I can't tell if you're the kind to be dramatic."
+  "...Perhaps we should stop now."
 
-  "Fear does make an actor out of me, but I'm fairly certain it's right this time. She may never forgive me."
+  "I don't mean to pry into your past, but if there's a shred of advice you can give me, it would be greatly appreciated."
 
-  "Perhaps this surprise of yours will not be so welcome then."
+  "I will tell you something that helped me once, long ago. Don't ask a cripple for advice."
 
-  "Sometimes...the nectar is sour," I quoted my favorite writer.
+  "Funny joke, but I am being sincere. I don't have anyone to ask about this."
 
-  "Quoting Shathim? How old are you?"
+  "Can't you ask your parents for advice? I don't like to get into family squabbles like this."
 
-  "Hey, hae writing speaks to me."
+  "My mother died right before I got married, and my remaining parents disbanded after that." I said. I hoped that opening up to him would make him do the same.
 
-  "Hae writing is for children."
+  "Oh no. That's terrible..." He said, visibly uncomfortable. I paused for a bit to see if he would follow up with anything.
 
-  "You wouldn't understand. Us maman understand the benefits of simplicity."
+  He did, "Well you did a splendid job raising yourself. Must be those child-rearing instincts you maman have that got you through it."
 
-  "You spend so much time rearing children, you become one yourself," he laughed, and I suddenly remembered that he was much older.
+  "They aren't instincts. We learn them just like any other skill."
 
-  "Perhaps if men and women helped us, we wouldn't spend so much time raising children," I retorted.
+  "Oh but all of you are so good at it."
 
-  He sighed, "it's simply our place in society to be this way."
+  "We spend a lot of time doing it. If men and women helped us, I think they would be great at it too," I retorted.
 
-  I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at bright void of Ara. Like a switch, we returned to being strangers in our own compartments.
+  He sighed, "We all have a place in society."
+
+  I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at bright void of Ara. Like a switch, we returned to being strangers on the train.
 
 
   -------
+
+
+  "Yansha! Approaching Yansha!" The conductor barreled in and blurted into the car. I pulled over both of my eyelids and rejoined reality.
+  "Yansha! Approaching Yan-," He repeated to the next car as the door closed behind him. *Yansha? I must have missed a few stops.* I sat more upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. The scene through the screen was dark, but I could make out some trees amongst the hills and houses in the distance.
 
 
   <!--
