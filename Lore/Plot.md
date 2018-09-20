@@ -12,8 +12,10 @@ Is a lawful neutral character that believes in Lif's purpose, but isn't in a pos
 
 Is a character that starts out bored with life and becomes obsessed with sense of duty and heroism, to a fault. He is torn between Lif and Mel.
 
-# Theme
-Is the tragedy of the commons inevitable? Can people unite in foregoing their own benefits for the greater benefit of all?
+# Themes
+- Is the tragedy of the commons inevitable? Can people unite in foregoing their own benefits for the greater benefit of all?
+- How important is family vs state? Should a politician always hold state first, or is there something to be said about fostering a strong family that can save you when the state turns against you?
+- Can AI be evil? Can logic be evil? At the very least, can it be too sure of itself?
 
 
 # Main Plot Point
