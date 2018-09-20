@@ -11,7 +11,7 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare for marshalling."
 
-  I quickly put away my roll and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it just looked like my skin was striped in a brownish color. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
+  I quickly put away my roll and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of ultraviolet across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it just looked like my skin was striped in a brownish color. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
 
   The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Thina, Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central," and we fell into a tighter line against the wall.
 
@@ -57,7 +57,7 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   "Well we haven't been too happy with each other lately, so I hope you're right."
 
-  "Yes, that will happen from time to time. I still remember once we were all fighting about a color to paint our kaln's bike. We didn't speak to each other for weeks afterward. We couldn't let it go until some point when we woke up, as if from a daydream."
+  "Yes, that will happen from time to time. I still remember once we were all fighting about a color to paint our daughter's bike. We didn't speak to each other for weeks afterward. We couldn't let it go until some point when we woke up, as if from a daydream."
 
   "Did you ever have one that you never woke up from?"
 
@@ -67,7 +67,7 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   "I don't mean to pry into your past, but if there's a shred of advice you can give me, it would be greatly appreciated."
 
-  "I will tell you something that helped me once, long ago. Don't ask a cripple for advice."
+  "I will tell you something that helped me once, long ago... Don't ask a cripple for advice."
 
   "Funny joke, but I am being sincere. I don't have anyone to ask about this."
 
@@ -94,8 +94,21 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
 
   "Yansha! Approaching Yansha!" The conductor barreled in and blurted into the car. I pulled over both of my eyelids and rejoined reality.
-  "Yansha! Approaching Yan-," He repeated to the next car as the door closed behind him. *Yansha? I must have missed a few stops.* I sat more upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. The scene through the screen was dark, but I could make out some trees amongst the hills and houses in the distance.
+  "Yansha! Approaching Yan-," He repeated to the next car as the door closed behind him. *Yansha? I must have missed a few stops.* I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. *All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon.* I shuddered thinking about what Palinan might feel like if that happened.
+  The train slowed to a stop and opened its doors, but again only a few people boarded. The roll had not sustained me, and I was really craving a real meal. *Perhaps I ought to treat myself to something nice in the capital before I get banished to the wilderness... Nah... I don't have time for that.*
+  I took out the letter to review it and think about how I might deliver it. The letter was marred with creases from all the travel, but luckily the fibers and the ink held up. I saw the dots and the circle again, but now I could make out the sentences.
+    "Dr. Melna Coryun, I'm following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity."
+    *Didn't they just say...*
+    "However, we did detect a decrease in incident light. This is likely caused by some sort of obstruction shading Ara. It is difficult to estimate size, but the shading seems to be uniform, so it is covering the entire span of view we have with Ara."
+    *Like a really big asteroid or something?*
+    "It is unlikely to be from natural causes. Object is slowly growing more opaque."
+    "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin expelling water and getting cold in anxiety. My inner mind closed my eyes and rode the wave back down. *The Senate will dismiss me as a crazy Kaln with a fantasy if I interrupt them for something this outlandish. But I have to carry this message somehow.*
+    I kept reading until the end.
+    "If left alone, we calculate that this phenomenon will begin an ice age within the habitable belt in 50-60 days. We advise immediate action to either clear the obstruction or begin migration to Ara. There's no guarantee that Ara will remain lit."
 
+
+
+  *Should I make a big entrance and announce it? Mel would be angry, but she would let me speak as long as I needed to. Maybe I should be a bit more subtle so that I'm not actually interrupting. But then I would still have to interrupt Mel. Maybe I'll sneak in and then interrupt everyone at the right time.*
 
   <!--
     Wakes up:
