@@ -16,6 +16,7 @@ Is a character that starts out bored with life and becomes obsessed with sense o
 - Is the tragedy of the commons inevitable? Can people unite in foregoing their own benefits for the greater benefit of all?
 - How important is family vs state? Should a politician always hold state first, or is there something to be said about fostering a strong family that can save you when the state turns against you?
 - Can AI be evil? Can logic be evil? At the very least, can it be too sure of itself?
+- Is it good and is it practical to stay neutral in an ideological conflict and just focus on your own family's survival?
 
 
 # Main Plot Point
