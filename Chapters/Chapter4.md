@@ -97,18 +97,23 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
   "Yansha! Approaching Yan-," He repeated to the next car as the door closed behind him. *Yansha? I must have missed a few stops.* I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. *All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon.* I shuddered thinking about what Palinan might feel like if that happened.
   The train slowed to a stop and opened its doors, but again only a few people boarded. The roll had not sustained me, and I was really craving a real meal. *Perhaps I ought to treat myself to something nice in the capital before I get banished to the wilderness... Nah... I don't have time for that.*
   I took out the letter to review it and think about how I might deliver it. The letter was marred with creases from all the travel, but luckily the fibers and the ink held up. I saw the dots and the circle again, but now I could make out the sentences.
-    "Dr. Melna Coryun, I'm following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity."
-    *Didn't they just say...*
-    "However, we did detect a decrease in incident light. This is likely caused by some sort of obstruction shading Ara. It is difficult to estimate size, but the shading seems to be uniform, so it is covering the entire span of view we have with Ara."
-    *Like a really big asteroid or something?*
-    "It is unlikely to be from natural causes. Object is slowly growing more opaque."
-    "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin expelling water and getting cold in anxiety. My inner mind closed my eyes and rode the wave back down. *The Senate will dismiss me as a crazy Kaln with a fantasy if I interrupt them for something this outlandish. But I have to carry this message somehow.*
-    I kept reading until the end.
-    "If left alone, we calculate that this phenomenon will begin an ice age within the habitable belt in 50-60 days. We advise immediate action to either clear the obstruction or begin migration to Ara. There's no guarantee that Ara will remain lit."
+
+  ```
+    To:   Dr. Melna Colyun, Senator to Heiko
+    From: Dr. Yanel Rinmet, Observer at Heiko Observatory
+
+    I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction. It is difficult to estimate size, but it is covering the entire span of view we have with Ara, and likely more. It is unlikely to be a natural phenomenon as the obstruction seems to be growing outward from centers that are evenly-spaced.
+
+    [Drawing of observation]
+
+    If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
+```
+
+  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin expelling water and getting cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulu, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes and my mind closed too, and I rode the wave back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Palinians and that's all I need.*
+  I folded up the letter and put it back in my bag. 
 
 
 
-  *Should I make a big entrance and announce it? Mel would be angry, but she would let me speak as long as I needed to. Maybe I should be a bit more subtle so that I'm not actually interrupting. But then I would still have to interrupt Mel. Maybe I'll sneak in and then interrupt everyone at the right time.*
 
   <!--
     Wakes up:

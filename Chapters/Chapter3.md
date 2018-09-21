@@ -120,7 +120,9 @@
 
   "If this is as important as you say, then it would be worth a few tova in Ulu."
 
-  He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had written on.
+  He shouted, "More than just a few!"
+
+  I was astonished. He was always so laid back and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had worked from.
 
   I tried to convince him again, "I can't think of any better way to do it"
 
