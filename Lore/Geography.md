@@ -23,14 +23,18 @@ the solar horizon is marked by the Black Crown. A large ring of black debris fro
 Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
 There are names for the various time divisions, which are tabulated here:
 
-Ka'a To(va)    12 Ma'to     ~14.2 Earth years
-Ma'a To(va)    12 La'to     ~1.18 Earth years
-La'a To(va)    12 Tova      ~36 Earth days
-Tova/Day    .         1 day (~72 earth hours, ~3 earth days)
-Tova ala   1/12 Tova    ~6 earth hours
-Tova ama   1/12 Tova-La  ~30 minutes
-Tova aka   1/12 Tova-Na  ~2.5 minutes
-Tova asa   1/12 Tova-Ra  ~12.5 seconds
+Ka'To(va)   12 Ma'to      ~14.2 Earth years
+Ma'To(va)   12 La'to      ~1.18 Earth years
+La'To(va)   12 Tova       ~36 Earth days
+Tova/Day    1 orbit       ~3 earth days
+(To)Va'la   1/12 Tova     ~6 earth hours
+(To)Va'ma   1/12 Va'la    ~30 minutes
+(To)Va'ka   1/12 Va'na    ~2.5 minutes
+(To)Va'sa   1/12 Va'ra    ~12.5 seconds
+
+This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
+X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
+
 
 
 

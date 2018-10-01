@@ -1,4 +1,4 @@
-
+Shaki Harbor
 
 ## Chapter 4
 
@@ -90,9 +90,12 @@
   -------
 
 
-  "Yansha! Approaching Yansha!" The conductor barreled in and blurted into the car. I pulled over both of my eyelids and rejoined reality.
-  "Yansha! Approaching Yan-," He repeated to the next car as the door closed behind him. *Yansha? I must have missed a few stops.* I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. *All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon.* I shuddered thinking about what Palinan might feel like if that happened.
-  The train slowed to a stop and opened its doors, but again only a few people boarded. The roll had not sustained me, and I was really craving a real meal. *Perhaps I ought to treat myself to something nice in the capital before I get banished to the wilderness... Nah... I don't have time for that.*
+  "Shaki Harbor! Approaching Shaki Harbor!" The conductor barreled in and blurted into the car. I pulled over both of my eyelids and rejoined reality.
+
+  "Shaki Harbor! Approaching Sha-," He repeated to the next car as the door closed behind him. *Shaki Harbor? I must have been out for a while.* I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. *All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon.* I shuddered thinking about what Palinan might feel like if that happened.
+
+  The train slowed to a stop and opened its doors, but again only a few people boarded. The roll had not sustained me, and I was really craving a real meal. *Perhaps I ought to treat myself to something nice in the capital before I get banished to the wilderness... No... I don't have time for that.*
+
   I took out the letter to review it and think about how I might deliver it. The letter was marred with creases from all the travel, but luckily the fibers and the ink held up. I saw the dots and the circle again, but now I could make out the sentences.
 
   ```
@@ -106,43 +109,82 @@
     If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
 ```
 
-  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulu, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Palinians and that's all I need.* I folded up the letter and put it back in my bag, returning to my spot looking through the screen out at Ulu.
+  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulu, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Palinians and that's all I need.* I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
+
   "You look like you've seen something you regret," said the man, startling me.
+
   "Pardon me? Mind your own business."
+
   "I know what you're trying to do, Liffa."
+
   I shot my eyes toward him, and he explained.
+
   "Kip told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
+
   *Damn it, Kip.*
+
   I snapped back, "And you intend to stop me with that leg of yours?"
+
   "Oh, on the contrary. I intend to help you."
+
   "Why would you do that?"
-  "Name's Fajro. I used to work with Mel in the senate. I was a senator to Holragi when she got her beginnings as a junior senator. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+
+  "My name is Fajro. I used to work with Mel in the senate. I was a senator to Holragi when she got her beginnings as a junior senator. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+
   "I assure you it is."
+
   "Good. You wouldn't dare waste my time traveling in this uncomfortable train for nothing."
+
   "No. Of course not," I said in my most polite tone.
+
   "So, let's get down to details. I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. I'm not getting wrapped up in this."
+
   "But you would be a tremendous help in vouching for me."
+
   "Ah... but I really wouldn't"
+
   "You were on the Senate!"
+
   "I was... but I didn't exactly leave on the best terms."
+
   "What do you mean?"
+
   "There were some senators that I didn't exactly see eye-to-eye with. And we would often resort to...vulgarities to express our disdain for each other."
+
   "So? People get into shouting matches all the time."
+
   "Has Mel never told you what the Senate's laws are like? The laws were written by religious fanatics hundreds of Ma'to ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+
   "Why you and not the others?"
+
   "Holragi was an insignificant member of the unification treaty, and the others.. well they weren't."
+
   "That's ridiculous."
+
   "That's politics."
+
   I was silently furious at how unjust the Senate could be, but took it as a lesson on how not to argue with the senators.
+
   Fajro began again, "So the next hurdle you will face is that the mediator will try to shut you up, and thi has a microphone."
+
   "I'll just talk louder."
+
   He chuckled at my idea, "Well, there's another way. You can use someone else's microphone."
+
   "That sounds...difficult."
+
   "Ordinarily, yes. But you have someone on your side already in there."
-  "No...I couldn't. I would tarnish her reputation forever."
-  "How important is this discovery of yours?"
+
+  *Mel*. "No...I couldn't. I would tarnish her reputation forever."
+
+  "How important is this discovery?"
+
   I thought about how Mel might react. She would be furious no matter what I did. Her reputation in the senate would be forever tied to me, but if the observers are right, then we would be remembered in a positive light.
+
   "I'll do it."
+
   "Good. You don't have much of an option anyway."
+
   The Conductor called out "Shaki Central! Last stop, everyone off!"
+
   "Would you help a cripple?" He asked me with a smirk. I smiled back and held out my arm.
