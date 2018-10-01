@@ -1,7 +1,4 @@
 
-<!--
-Kip secretly boards the train, and they both meet up right before going in. Kip gets punishment of going on the rescue mission, Lif gets punishment of Ara instead of Ulu, where she learns how to protect against radiation and low pressure.
--->
 
 ## Chapter 4
 
@@ -15,7 +12,7 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Thina, Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central," and we fell into a tighter line against the wall.
 
-  "Excuse me, could you help me into the train?"
+  "Excuse me, would you help a cripple?"
 
   Behind me was a older man with a splinted leg. He looked up me with a smile that I had to return, and I leant my hand to him to climb the steps into the carriage.
 
@@ -87,7 +84,7 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
 
   He sighed, "We all have a place in society."
 
-  I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at bright void of Ara. Like a switch, we returned to being strangers on the train.
+  I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at the bright void of Ara. Like a switch, we returned to being strangers on the train.
 
 
   -------
@@ -109,22 +106,43 @@ Kip secretly boards the train, and they both meet up right before going in. Kip 
     If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
 ```
 
-  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin expelling water and getting cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulu, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes and my mind closed too, and I rode the wave back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Palinians and that's all I need.*
-  I folded up the letter and put it back in my bag. 
-
-
-
-
-  <!--
-    Wakes up:
-    - the paper is gone.
-      - interrogates old man.
-      - goes up and down the train inconspicuously to find it.
-      - finds Kip.
-      - Kip fills Lif in.
-    - the paper is stolen forcefully and quickly.
-      - Lif chases the perp, another maman, through the humming engine room.
-      - Perp is an Arkeza debater/lobbyist that is trying to destroy evidence of the robots' plan.
-    - reads the paper.
-      - realizes the gravity of it all.
-  -->
+  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulu, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Palinians and that's all I need.* I folded up the letter and put it back in my bag, returning to my spot looking through the screen out at Ulu.
+  "You look like you've seen something you regret," said the man, startling me.
+  "Pardon me? Mind your own business."
+  "I know what you're trying to do, Liffa."
+  I shot my eyes toward him, and he explained.
+  "Kip told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
+  *Damn it, Kip.*
+  I snapped back, "And you intend to stop me with that leg of yours?"
+  "Oh, on the contrary. I intend to help you."
+  "Why would you do that?"
+  "Name's Fajro. I used to work with Mel in the senate. I was a senator to Holragi when she got her beginnings as a junior senator. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+  "I assure you it is."
+  "Good. You wouldn't dare waste my time traveling in this uncomfortable train for nothing."
+  "No. Of course not," I said in my most polite tone.
+  "So, let's get down to details. I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. I'm not getting wrapped up in this."
+  "But you would be a tremendous help in vouching for me."
+  "Ah... but I really wouldn't"
+  "You were on the Senate!"
+  "I was... but I didn't exactly leave on the best terms."
+  "What do you mean?"
+  "There were some senators that I didn't exactly see eye-to-eye with. And we would often resort to...vulgarities to express our disdain for each other."
+  "So? People get into shouting matches all the time."
+  "Has Mel never told you what the Senate's laws are like? The laws were written by religious fanatics hundreds of Ma'to ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+  "Why you and not the others?"
+  "Holragi was an insignificant member of the unification treaty, and the others.. well they weren't."
+  "That's ridiculous."
+  "That's politics."
+  I was silently furious at how unjust the Senate could be, but took it as a lesson on how not to argue with the senators.
+  Fajro began again, "So the next hurdle you will face is that the mediator will try to shut you up, and thi has a microphone."
+  "I'll just talk louder."
+  He chuckled at my idea, "Well, there's another way. You can use someone else's microphone."
+  "That sounds...difficult."
+  "Ordinarily, yes. But you have someone on your side already in there."
+  "No...I couldn't. I would tarnish her reputation forever."
+  "How important is this discovery of yours?"
+  I thought about how Mel might react. She would be furious no matter what I did. Her reputation in the senate would be forever tied to me, but if the observers are right, then we would be remembered in a positive light.
+  "I'll do it."
+  "Good. You don't have much of an option anyway."
+  The Conductor called out "Shaki Central! Last stop, everyone off!"
+  "Would you help a cripple?" He asked me with a smirk. I smiled back and held out my arm.
