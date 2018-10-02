@@ -46,11 +46,27 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "Ah this brings me back. You see that gate? I used to walk through it every day. I would always round the left corner as I entered from the west. And the steam fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
 
-"Sounds like you knew this place well."
+"You sound very fond of this place."
 
-"You could say that. Almost all of my waking life was devoted to this, so it really made an impression."
+"You could say that. Almost all of my waking life was devoted to this. It really made an impression on me."
 
-He rose back up with my help and we paced around the courtyard to go over the plan again.
+"Do you ever miss it?"
+
+"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holragi Space Rail."
+
+"You were a part of that?"
+
+"Yes I was. I deployed hundreds of public works engineers to design it and find the perfect spot for it."
+
+"You must be proud."
+
+"Well, you Easterners usually remind us that the entire reason for going to space was to expand the observer program and that we never reached that end goal."
+
+"But you sent a Palinian to space."
+
+"Not all ideas make it to reality."
+
+I nodded in affirmation.
 
 ----
 
