@@ -12,7 +12,7 @@ Once he realizes the gravity of the situation, and that Pinta has doomed Heiko t
 ## Chapter 5
 
 
-The city was carved from the body a long-dead volcano, curled upward as if the land was an ocean wave. Massive veins of white marble meandered between gray, banded rock, striping through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara and carefully reflected every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, crowned with the gilded halo of the Palinian circle. My eyes forbade belief every time I came to Shaki until I recalled the last time the dream sustained reality.
+The city was carved from the body a long-dead volcano, curled upward as if the land was an ocean wave. Massive veins of white marble meandered between gray, banded rock, striping through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. *It must have taken ages*.
 
 "Been a while, has it?" Fajro said once we got off.
 

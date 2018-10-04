@@ -23,6 +23,7 @@ the solar horizon is marked by the Black Crown. A large ring of black debris fro
 Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
 There are names for the various time divisions, which are tabulated here:
 
+Sa'To(va)   12 Ka'to      ~170.4 Earth years
 Ka'To(va)   12 Ma'to      ~14.2 Earth years
 Ma'To(va)   12 La'to      ~1.18 Earth years
 La'To(va)   12 Tova       ~36 Earth days
