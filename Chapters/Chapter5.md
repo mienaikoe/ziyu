@@ -34,11 +34,11 @@ I helped Fajro walk from the train yard to the easternmost funicular station. It
 
 "No such talk. These people can afford to slow down a little bit."
 
-"You know, I used to keep pace with the trainfairers before I busted my knee."
+"You know, I used to keep pace with the trainferriers before I busted my knee."
 
 "Oh I bet you could run circles around them," I said, trying to lift his spirits a bit.
 
-We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and take in the beauty of the city from different angles. Compartmentalizing my anxiety was proving to be difficult, but I did so in order to see this beautiful site, possibly for the last time. I did it to remember.
+We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and marvel at the beauty of the city from above. The public workers with their dusty tunics, the scribes with their ink-blotted fingers, all funneling in and out of the car. Some were carrying their afternoon meal with them as if they had no time to eat. I wondered if they worked through daysleep too. Compartmentalizing my anxiety was proving to be difficult with all the chaos, but I did so in order to see Shaki, possibly for the last time. I did it to remember.
 
 "Senate. Last stop," called the operator.
 
@@ -56,25 +56,58 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "You were a part of that?"
 
-"Yes I was. I deployed hundreds of public works engineers to design it and find the perfect spot for it."
+"Yes I was. I deployed hundreds of public workers to design and survey."
 
 "You must be proud."
 
-"Well, you Easterners usually remind us that the entire reason for going to space was to expand the observer program and that we never reached that end goal."
+"I should be. The scientists who spearheaded the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built it half of the length, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
-"But you sent a Palinian to space."
+"That's still quite an accomplishment."
 
-"Not all ideas make it to reality."
+"It's not the accomplishment it was built for."
 
-I nodded in affirmation.
+"Ideas never make it to reality unscathed."
 
-----
+"I suppose," he said, unconvinced. He nodded both in agreement and continued regret.
+
+After a moment wrapping up his thoughts, he picked up, "Well, shall we?"
+
+"We shall," I replied.
 
 
-  smooth walls cut out of a hill, the black iron gates (likely closed right now). I remember following Mel once through the gate when it was closed. Perhaps if I found an assistant... but what are the odds of that? I really didn't think this through.*
+*************
+
+The front gateway was a massive arch nearly half the height of the building trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots. I reminded myself of the note, of Jes, and of the Palinians who were counting on me. Turning back was not an option.
+
+We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
+
+Fajro began, "I am Fajro, retired senator of Holragi. I have been summoned to deliver a message to the Heiko senator that is vital to their deliberations today."
+
+"No one is permitted in the Senate while they are deliberating."
+
+"Yes, I understand. I am delivering it to her assistant."
+
+"She hasn't mentioned this to us."
+
+"Yes. I was summoned by the , as the matter is unexpected and urgent."
+
+She deliberated with her partner, and glanced at me once, sending a shock of worry through my bones. I was getting cold again.
+
+"You are permitted to go, but your attendant cannot come with you."
+
+*NO*
+
+He replied, "My... attendant helps me walk on account of my injured knee. I really can't go anywhere without help these days."
+
+The male guard begrudgingly walked over to me and said, "Open your bag."
+
+I complied and he rummaged for a bit before walking back and giving a hand sign to the other guard. She said, "Go ahead."
+
+The senate grounds were constructed of three concentric circles: the outer circle was for committees and public works, the next was for senator's offices, and the innermost was the deliberation hall. Each circle had three wide flights of stairs connecting to the next circle - the first ones downward, and the innermost were upward, so that the light from the gateway poured in and illuminated the deliberation hall amongst a sea of shaded marble. The immensity of it was overwhelming.
 
 
-----
+
+*************
 
 
 
