@@ -1,4 +1,4 @@
-Shaki Harbor
+
 
 ## Chapter 4
 

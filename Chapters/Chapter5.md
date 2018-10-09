@@ -1,12 +1,3 @@
-<!--
-
-Kip asked Fajro to stop Lif because he thought Fajro was a good friend of Mel.
-Fajro is actually an enemy, and Mel is one of the people he had a shouting match with. He wants to embarass Mel out of vengeance.
-Once he realizes the gravity of the situation, and that Pinta has doomed Heiko to die first, he takes pity and reaches out to Lif with an offer.
-
--->
-
-
 
 
 ## Chapter 5
@@ -72,10 +63,9 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
-"We shall," I replied.
-
 
 *************
+
 
 The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Jes, and of the Palinians who were counting on me. Turning back was not an option.
 
@@ -133,76 +123,40 @@ I began to relish in Fajro's slow walking speed, imagining how I might slip by t
 
 At about ten paces away from the guards one of them called out, "The Deliberation Hall is closed. Turn around."
 
-Fajro stopped and stared at them for a bit while they approached us. I took a step back, hiding behind him slightly. *What was he going to do?*
+Fajro didn't stop and kept eye contact with them while they approached. I fell behind a bit, hiding behind him. *What was he going to do?*
 
 The guard called out again, "You two, turn around and go back where you came from!"
 
+Fajro responded to him confidently, "Tinpo, it's been a while, hasn't it."
 
+"I'm not telling you again. Turn back."
 
+"What sort of welcome is this? You don't recognize your uncle anymore?"
 
+"... Fajro? What are you doing here?" The guard called out and stopped.
 
+*The guard is his nephew?!*
 
-*************
+Fajro stopped in front of Tinpo and looked him up and down.
 
+"Tinpo, you make a fine guard," he said.
 
+"Thank you uncle," he rested his stance and smiled a little bit.
 
-"Melna... before you say anything I–"
-She took my hand and expressed a gentleness I hadn't expected, "Shh... Liffa... you did the right thing today."
-I stared at her, confused, but then I saw relief in her eyes; the kind you get when a secret, having no business being so, has been lifted.
-She said, "At first, I was furious. I didn't know what to think when you put the paper in front of me, but as I read it, and heard you, I realized why you came, and that everything else wasn't as important."
-"Mel, you aren't..."
-"Mad? No. Frustrated? Yes. It's now become difficult to negotiate for Heiko regarding this case. Pinta, a senator from Tintinal convinced the senate that we refrained from presenting our discovery so we could stockpile food and profit on the chaos. She used the letter as evidence. Now they want Heiko to distribute enough food for all Palinians to subsist on for 90 tova."
-"But we only stockpile enough for 30 tova."
-"I know. Heikoans would be the first to die if we did that."
-"What do we do then?"
-"Well, I was hoping you would help me figure that out."
-My mind jumped to solutions. I had never been tasked to think about crops on such a large scale before.
-"Pohua," I interjected.
-"...What?"
-"Pohua. It can grow under some very harsh conditions. We could surrender the food that we have stockpiled, and then quickly grow Pohua to stock up."
-She pulled out a charcoal and paper.
-"How long does it take to grow?"
-"It grows to maturity around 40 Tova after planting."
-"That's too long. What will they eat in the meantime?"
-"They can do an early harvest on the crops they're currently growing. They'll likely die from inadequate light before 40 Tova anyway."
-She noted down my plans and complimented me, "practical and smart. Thank you."
-"What happens now?" I asked.
-"Well, they are unlikely to forego sentencing. A magistrate will visit you here tomorrow with whoever wants to plea your case. Then he'll sentence you and take you to wherever that sentence sends you."
-"And you'll be there, right?"
-"Liffa... if I could–"
-"Don't you dare sweeten it."
-"The senate has a special session tomorrow about this whole fiasco. I have to be there to negotiate for Heiko. Otherwise, we'll be hung out to dry."
-"I understand."
-"I'll send a letter to the magistrate in the morning arguing for a lighter sentence."
-"Thank you."
-"Lif. If I don't see you before your sentencing. Remember that I love you. Wherever you go."
-"I know."
-"When you come back, I hope we will be ready."
-"I hope to be ready as well."
-The sound of footsteps approaching caught our ears. The slowness and slight limp made it obvious who it is.
-"Fajro, is that you?" I called to him.
-Mel looked at me with confused and disdainful eyes. "Fajro?! What is that lecherous milta doing here?" she asked in a hushed tone.
-I was surprised that Mel had this reaction to him, and before I could explain, he rounded the corner and their eyes met.
-"Fajro. Did you put Liffa up to this?"
-"Absolutely not. This was her idea. I just helped her along."
-"Well I hope you're happy seeing her locked up like this."
-"These are dark times. We need more selfless heroes like Liffa here."
-"Surely the untouchable senator would make for a better hero."
-*Untouchable?*
-"You don't become untouchable by making yourself vulnerable, Mel. You should know that."
-I butted in, "I'm guess you two aren't friends then?"
-Mel was quick to snatch the conversation, "Never."
-"Oh come on Mel. That was so many Ma'to ago. I've just helped your spouse save the world. Why don't we start over."
-She didn't even hesitate, "I know your game, Fajro. We're not playing it."
-"Goodness. A real steeltongue you are. I actually came to deliver some good news to Liffa."
-"Good for hae, or good for you?"
-"Would you call skipping Ulu good for hae?"
-"There are worse places than Ulu."
+"How long have you been posted here? I haven't heard from your parents since I left Holragi."
 
+"They posted me near the railyards immediately after you referred me, but I've been working my way up here ever since."
 
+"Congratulations, my boy. It's only been a few Ma'To, that's quite an achievement."
 
-***********
+"Thank you, sir."
 
+"And who's your friend over here? I must say hello."
 
+"Oh, that's Padji. Thi was posted here around the same time I was."
 
-"These are dark times indeed, Liffa," he said despondently
+"You must be good friends. I want to meet hae."
+
+"Oh.. uh sure."
+
+We walked over to where Tinpo had been standing, and just before we got there, Fajro nudged me aside. At first I thought it was an accident because he made it seem that way, but then he stood opposite me and started talking to both of them, shifting their gaze away from the door, and away from me. I saw my moment and quickly tiptoed to the doorway. I lifted the heavy door a bit as I cracked it open: a trick my mother had taught me to stay quiet while we shared a room for sleeping. I slipped inside, and quietly closed it the same way, and then turned to face the most powerful governing body in the world.

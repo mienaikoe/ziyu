@@ -65,7 +65,7 @@
 
   "Hey, we all had fun uh... catching fish," I defended myself.
 
-  "You mean having sex," Mel interjected.
+  "You mean sleeping all day," Mel interjected.
 
   I defended my position, "Hey, catching fish was fun too."
 
@@ -73,7 +73,7 @@
 
   "Yea... but I'd totally do it again!"
 
-  And I would. I was kind of a sucker for them. He and Mel shook heads and laughed while I broke the smarmiest smile.
+  And I would. I was happy with them wherever we went. He and Mel shook heads and laughed while I broke the smarmiest smile.
 
 
 
