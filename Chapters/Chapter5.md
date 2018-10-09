@@ -103,7 +103,13 @@ The male guard begrudgingly walked over to me and said, "Open your bag."
 
 I complied and he rummaged for a bit before walking back and giving a hand sign to the other guard. She said, "Go ahead."
 
-The senate grounds were constructed of three concentric circles: the outer circle was for committees and public works, the next was for senator's offices, and the innermost was the deliberation hall. Each circle had three wide flights of stairs connecting to the next circle - the first ones downward, and the innermost were upward, so that the light from the gateway poured in and illuminated the deliberation hall amongst a sea of shaded marble. The immensity of it was overwhelming.
+The senate grounds were surrounded by a massive circle of offices and gates, three towering stories tall and twice as many wide. The deliberation hall was a marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without constant shielding from direct light. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through it all, but dared not draw attention to myself.
+
+Fajro started, "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
+
+"They really like to remind you about geography here," I said. My jokes were always that awkward.
+
+
 
 
 
