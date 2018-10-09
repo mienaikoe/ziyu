@@ -42,7 +42,7 @@ We rode the funicular up the mountain and toward the Senate. It made several sto
 
 "Senate. Last stop," called the operator.
 
-I helped him off the funicular and he took a seat on the first bench he could find to rest his legs.
+I helped him off the funicular and he took a seat on the first bench he could find to rest his legs. It was a small public square directly in front of the senate building.
 
 "Ah this brings me back. You see that gate? I used to walk through it every day. I would always round the left corner as I entered from the west. And the steam fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
 
@@ -60,7 +60,7 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "You must be proud."
 
-"I should be. The scientists who spearheaded the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built it half of the length, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"I should be. The scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built the rail to half of the specified length, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
 "That's still quite an accomplishment."
 
@@ -70,14 +70,14 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "I suppose," he said, unconvinced. He nodded both in agreement and continued regret.
 
-After a moment wrapping up his thoughts, he picked up, "Well, shall we?"
+After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
 "We shall," I replied.
 
 
 *************
 
-The front gateway was a massive arch nearly half the height of the building trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots. I reminded myself of the note, of Jes, and of the Palinians who were counting on me. Turning back was not an option.
+The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Jes, and of the Palinians who were counting on me. Turning back was not an option.
 
 We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
 
@@ -103,11 +103,40 @@ The male guard begrudgingly walked over to me and said, "Open your bag."
 
 I complied and he rummaged for a bit before walking back and giving a hand sign to the other guard. She said, "Go ahead."
 
-The senate grounds were surrounded by a massive circle of offices and gates, three towering stories tall and twice as many wide. The deliberation hall was a marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without constant shielding from direct light. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through it all, but dared not draw attention to myself.
+The senate grounds were surrounded by the building that the rest of the city called the Senate. It was a massive circle of offices and gates and walkway, its diameter as large as the farmland I worked in Heiko. But the true focus of this place was the deliberation hall: a marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a short marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without the constant shade that the perimeter circle granted. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but dared not draw attention to myself.
 
-Fajro started, "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
+Fajro set me back on track, "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
 
-"They really like to remind you about geography here," I said. My jokes were always that awkward.
+I remained silent and compliant, too nervous to say anything. We followed the inside of the perimeter circle to the right into the Heiko section, and turned the corner to face the deliberation hall. It was more shaded from this side, but still as radiant as the rest of the city. There were two guards at the doors again with the same woven armor and massive rectangular shields built to repel several people at once.
+
+"How can we get through them?" I asked, feeling doubtful.
+
+"Leave that to me. This is why Kip sent me after all. I'll distract them while you go around and slip through the door."
+
+A pang of anger welled up in me but I kept my eyes faced forward, "What sort of plan is that?"
+
+"Oh I think you'll find I can be very distracting."
+
+"Anyone can be distracting. You're a senator. Why not use that to get me in?"
+
+"The power of law lies in its enforcement. And trust me when I say these guards know enforcement. Not even I can wrest them from their duty to the law."
+
+"Noble. But annoying."
+
+I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed impossible but for my shorter stature. There are some perks to being a Maman.
+
+"What shall I do if they notice me?" I asked.
+
+"Keep going. You'll be imprisoned either way."
+
+"That's great to know."
+
+At about ten paces away from the guards one of them called out, "The Deliberation Hall is closed. Turn around."
+
+Fajro stopped and stared at them for a bit while they approached us. I took a step back, hiding behind him slightly. *What was he going to do?*
+
+The guard called out again, "You two, turn around and go back where you came from!"
+
 
 
 
@@ -169,3 +198,11 @@ She didn't even hesitate, "I know your game, Fajro. We're not playing it."
 "Good for hae, or good for you?"
 "Would you call skipping Ulu good for hae?"
 "There are worse places than Ulu."
+
+
+
+***********
+
+
+
+"These are dark times indeed, Liffa," he said despondently

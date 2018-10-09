@@ -44,7 +44,11 @@ Is a character that starts out bored with life and becomes obsessed with sense o
 
   Iteration 2:
 
-    Kip flies to the obstruction to find Lif and hopefully give hae medical attention if thi needs it. 
+    Kip flies to the obstruction to find Lif and hopefully give hae medical attention if thi needs it. He spots hae on a robot ship, asleep and being mentally observed by robots. Kip is flying near L1, and the robots are observing him, but he is unable to make it to the other ship without abandoning his own.
+
+    (Later Mel finds Lif and thi asks if thi was helpful by sacrificing hae mind to the robots in the hopes that they would find that they were worth saving. It turns out the robots were trying to find life that could sustain itself indefinitely in order that life can solve the final problem. (Life is better than AI at creative problem solving because of a physical rule. Life is just better at surviving?) )
+
+
 
 
 ### Part III
