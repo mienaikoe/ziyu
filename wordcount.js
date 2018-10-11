@@ -2,7 +2,7 @@ const fs = require('fs');
 const wordcount = require('wordcount');
 
 
-var chaptersStarted = 6;
+var chaptersStarted = 7;
 var total = 0;
 
 function countWords( filename, chaptername ){

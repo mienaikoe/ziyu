@@ -91,11 +91,11 @@
 
   "-I wouldn't be able to tell you anyway."
 
-  She moved to the mirror and I followed her. The newly-awoken daylight had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light, as it missed her completely. She proceeded to wrap and tighten the clay-orange cords of a Heiko senator around her robe.
+  She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the clay-orange sash of a Heiko senator around her robe.
 
   "The farmers... we have a responsibility, you know. If a wind current drift is happening, we need to know so we aren't caught by an early-"
 
-  "Lif... I've already told you all I that I know. I will learn more when I attend today's convention."
+  "Lif... I've already told you all I that I know. I will learn more when I attend today's vote."
 
   She was a stone wall of secrets. I was unsatisfied, but it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 

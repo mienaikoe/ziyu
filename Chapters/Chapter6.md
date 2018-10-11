@@ -142,9 +142,9 @@ I was surprised that Mel had this reaction to him, and before I could explain, h
 
 "Fajro. Did you put Liffa up to this?"
 
-"Absolutely not. This was her idea, and I helped her along."
+"Absolutely not. This was hae idea, and I helped hae along."
 
-"Well I hope you're happy seeing her locked up like this."
+"Well I hope you're happy seeing hae locked up like this."
 
 "These are dark times indeed. We need more selfless heroes like Liffa here who transcend the law for the greater good of the world."
 
@@ -158,20 +158,60 @@ I butted in, "I guess you two aren't friends then?"
 
 Mel was quick to snatch the conversation, "Never."
 
-"Oh you joke Melna. We fought so many Ma'to ago. I've just helped Lif save the world. Why can't we start over."
+"Mel, surely you're joking. Let's let our squabbles stay buried in the past and start over."
 
 She didn't hesitate, "I know your game, Fajro. We're not playing it."
 
-"Goodness. A real steeltongue you are. I actually came to deliver some good news to Liffa."
+He leaned back with a serious face now, "Mel. We can agree to disagree, but we will get nowhere pointing fingers at each other."
 
-"Good for hae, or good for you?"
+"You have no business being here. This is between me and Liffa, so I'll ask you nicely only once to leave."
 
-"Would you call skipping Ulu good for hae?"
+"You're being ridiculous Mel, I only–"
 
-"There are worse places than Ulu," Mel told him, but was reminding me.
+"Leave."
 
+He stared at her for a moment, with the same unfazed and perceptive look he always had, and then slowly turned around, slinging a glance my way.
 
+"I guess we'll talk later then," he said.
 
-***********
+Mel turned back to me, still talking to him, and said, "Another lie."
 
-The magistrate wore white robes with a gray inlay and red waist sash.
+When he had finally closed the door on his way out, Mel came in closer to me and asked me under her breath, "How did you meet Fajro?"
+
+"Kip sent him to help. Fajro is one of his patients. I couldn't have done this without his help."
+
+"Kip, Of course. Listen to me, Lif, that man will do anything it takes to force his will and gain power. He threw Heiko under the bus when he presented a mining deal he had set up with us, and he enslaved his entire province for a Ma'To just to get his stupid space rail up that didn't even work. Heiko and Shaki were stuck donating food and steel to the project the entire time."
+
+"He told me it did work, it was just shorter than designed."
+
+"It didn't work as it was intended, but that's beside the point. Fajro is a conniving, manipulative bastard. Do not listen to anything he says."
+
+"But then why would he help me?"
+
+"To embarrass me and lower my status in the Senate. Or perhaps there's some other angle, but whatever it is you stay away from whatever he's offering, no matter how good he makes it sound. Do you understand?"
+
+"I understand"
+
+Her free hand was holding hard on my shoulder now, and she saw that I was uncomfortable, so she slowly rose her head again and calmed down.
+
+"Good," she said. "I'm sorry I can't be at your hearing tomorrow. I'll send a message to Kip to see if he can come instead. Meanwhile you should get some rest."
+
+I felt scared and alone again. "Where are you going?"
+
+"I'm sorry, ena. I have to prepare for tomorrow's session."
+
+"Stay with me. Just for one more minute."
+
+She looked at me for a bit, then hung her lantern on a cell bar and held me through the bars. They smelled like piss and felt like rust, but I didnt mind. I chose this woman and she chose me.
+
+"I love you, Lif. Kip would say it too if he were here."
+
+"I know. You never make me wonder for long."
+
+I lifted my head and gazed at her through the bars.
+
+"I love you too."
+
+She smiled, lost in the moment as well.
+
+"I know."
