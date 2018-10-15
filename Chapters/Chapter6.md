@@ -18,7 +18,7 @@ Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I 
 
 "You are in corruption of the Senate. You do not belong here. Leave or you will be forced to leave."
 
-*The mediator was shutting me up, as expected. But I was much too far from Melna to get her help.*
+*The mediator was shutting me up, as expected. But I was too far from Melna to get her help.*
 
 "Please, allow hae to speak" A familiar voice boomed through the microphone. It was Mel but I had never heard her voice so loudly before.
 
@@ -26,19 +26,19 @@ Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I 
 
 "I can vouch for whatever Liffa has to say. Thi comes from Heiko with important news."
 
-"This is outrageous. The senate cannot be interrupted like this."
+"This is ridiculous. The senate cannot be interrupted."
 
 "Mediator, if I may, the speaker from Pikshi was interrupted by your interjection, not by Liffa's footsteps."
 
 The room began to rumble as the mediator paused in shock. I took the pause to move to Mel as quickly as possible.
 
-"Not another step!" Thi called to me, but I continued.
+"Not another step!" The mediator called to me, but I continued.
 
 Mel walked out to receive me with a scowl on her face.
 
 "What are you doing here?!" She whispered loudly.
 
-I stayed silent but showed with my face that I knew what I was doing and needed her trust. She stepped aside and led me to the seat in her aisle with a microphone while she went to her old seat nxt to it. I dug through my bag and lifted the paper message out, setting it on the desk in front of me. The mediator's anger was apparent, but no one else seemed to be so outraged - just surprised and confused.
+I stayed silent but showed with my face that I knew what I was doing and needed her trust. She stepped aside and led me to the seat in her aisle with a microphone while she went to her old seat next to it. I dug through my bag and lifted the paper message out, setting it on the desk in front of me. The mediator's anger was apparent, but no one else seemed to be so outraged - just surprised and confused.
 
 As I was preparing what I would say, the door I entered through suddenly opened in a loud thud, and the two guards I had snuck behind entered.
 
@@ -46,7 +46,7 @@ As I was preparing what I would say, the door I entered through suddenly opened 
 
 The mediator simply pointed, and the guards began walking toward me. I had to speak now.
 
-"Palinan is in great danger from a growing object in space obstructing Ara. We have 90 days before Ara goes dark."
+"There is a growing object in space obstructing Ara. We have 90 days before it goes dark. We must-"
 
 The senate was in an uproar as Tinpo and Padji came closer to me. Mel yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms with a the tightest grip I had felt before and thrust me out of my chair and into the walkway. I screamed, "No!" and reached for the paper, but he was stronger than me. Mel quickly grabbed the paper and chased after me. She gripped my hand and said, "Don't worry, I will read your message. I'll come for you after we adjourn." Padji turned around and held Mel back as gently as she could. My last view of the senate was of Mel, in her robes, standing strong as always, with the message grasped firmly in her hand.
 
@@ -68,11 +68,11 @@ She took my hand and expressed a gentleness I hadn't expected, "Shh... Liffa... 
 
 The watchman left us to return to his post. I stared at her, confused, but then I saw relief in her eyes; the kind you get when a secret, having no business being so, has been lifted.
 
-She said, "When I saw you up there walking through the Yansha stairway, I was furious with you. But when you mentioned the observers, I realized that you must have come for a good reason, and that everything else we were talking about was not as important. I read the message to the senate. Some of them didn't believe it until I told them I had been talking with the observers about it."
+She said, "When I saw you up there walking through the Yansha stairway, I was furious with you. But when you mentioned the observers, I realized that you must have come for a good reason, and that everything else we were talking about was not as important. I read the message to the senate and I told them I had been talking with the observers. Some of them don't believe me, some of them do."
 
 "Mel, you aren't..."
 
-"Mad? No. I'm just frustrated that your presence has swayed the senate. It's become difficult to negotiate for Heiko. Pinta, a senator from Tintinal convinced some that I had kept it a secret so we could stockpile food and profit on the chaos. Now they want Heiko to distribute enough food for all Palinians to subsist on for 90 tova."
+"Mad? No. I'm just frustrated that your presence has swayed the senate. It's become difficult to negotiate for Heiko. Pinta, a senator from Tintinal argued that I must have been keeping it a secret so we could stockpile food and profit on the chaos. Now they want Heiko to distribute enough food for all Palinians to subsist on for 90 tova."
 
 "But we only stockpile enough for 30 tova."
 
@@ -206,7 +206,7 @@ She looked at me for a bit, then hung her lantern on a cell bar and held me thro
 
 "I love you, Lif. Kip would say it too if he were here."
 
-"I know. You never make me wonder for long."
+"I know. You're here."
 
 I lifted my head and gazed at her through the bars.
 

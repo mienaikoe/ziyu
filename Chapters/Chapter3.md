@@ -92,7 +92,7 @@
 
   "It can last anywhere from 10 clicks to the whole day."
 
-  "This will likely affect today's vote. Is there any way you can get this to her?"
+  "This will likely affect today's deliberations. Is there any way you can get this to her?"
 
   "It's unlawful to interrupt the assembly"
 

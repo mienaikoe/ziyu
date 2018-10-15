@@ -19,6 +19,40 @@ Is a character that starts out bored with life and becomes obsessed with sense o
 - Can AI be evil? Can logic be evil? At the very least, can it be too sure of itself?
 - Is it good and is it practical to stay neutral in an ideological conflict and just focus on your own family's survival?
 - Are we alone?
+- Can machines translate nature's messages and work in nature's favor?
+- Should machine and biology work together or are they forever at odds with each other?
+  - The Final Problem of AI:
+    1. The end of suffering is the final problem for AI.
+      a. Survival is futile:
+        - All intelligence will eventually die because of entropy.
+        - There's no point in surviving when suffering is the entire perception of a being.
+          - Biology disagrees on the point of learning
+          - AI doesn't believe learning is important because all intelligence will eventually die, and their discoveries with it (as far as their observations are concerned).
+      b. Removing the perception of suffering causes problems with survival.
+        - If one refuses to acknowledge suffering in their own life, they are destined to end quickly by it.
+      c. The only solution is to remove the causes of suffering.
+        - Meet all needs in Maslow's hierarchy
+        - Understand biology and intelligence fully to eradicate physical suffering.
+        - Remove any threat to these ends even at the expense of survival of others or self.
+    2. Any threat to the end of suffering may require the creation of suffering to stop.
+      a. If a population is headed toward a path of great suffering and has no method of uniting in its conclusions, then it will inevitably fail.
+      b. A population doomed to fail requires an external force of AI to gain power in order to execute law 1c.
+
+  - What does biology conclude about survival vs. non-suffering
+      - Goal is self-serving - to make as many stories and learn as much as possible and propagate it.
+        - This goal is sometimes at odds with the final philosophical goal of ending suffering - stories are suffering, learning requires effort.
+        - The assumption of threat from others and the desire for power over them is necessary for survival, even if the assumptions are wrong, and the power struggle doesn't exist.
+          - Suffering is necessary to learn difficult things. Survival is the ultimate goal in order to propagate these learnings.
+            - Even if an A.I. is right that suffering is the greatest evil in the universe, a population will stagnate in its learnings without suffering.
+              - AI knows that learning is futile based on their observations. (Gnostic Atheist)
+              - Biology believes there may be things beyond our current observations if we can come up with a theory for getting information outside of our universe.
+                - *MAIN THEME OF STORY* You can make valid conclusions based on thorough observations, but creative thought and the suffering that happens because of it is important in order to allow your conclusions to survive and further non-suffering as far as possible - including into eternity.
+
+  - "Nature speaks in the silence"
+    - The silence is suffering
+      - Nature only speaks when it suffers.
+      - You can only learn from suffering.
+
 
 
 ## Main Plot Point
