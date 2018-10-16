@@ -221,8 +221,112 @@ He had a convincing argument, but I remembered what Mel said about him.
 
 "Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko senator's spouse, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
 
-Kip added his opinion, "It does sound like a good deal, Lif. One La'To in civilization is much better than whatever you would get in Ulu."
+Kip added his opinion, "It does sound like a good deal, Lif. One La'To on the frontlines of civilization is much better than whatever you would get in an even colder Ulu than normal."
 
-"Three La'To," the magistrate added. "I am convinced that this would be a fitting 'punishment' and that the senate would see more use in applying you to our problems than sending you someplace where you mindlessly twiddle your thumbs in the cold. But I will give you the choice, in respect of your consciousness."
+"Three La'To," the magistrate added. "I am convinced that this would be a fitting 'punishment' and that the state would see more use in applying you to our problems than sending you someplace where you mindlessly twiddle your thumbs in the cold. I give you the choice, Liffa."
 
-I withdrew from the door and faced the wall. I couldn't think with so many people looking at me. I had never felt so powerless before: my fate was being discussed by a room full of powerful men while I stood in a cell, forced to decide between a miserable experience and an extremely risky one. I listened to the silence and begged for a message, but couldn't hear anything but the pulse in my head and the gentle shifting of clothing behind me.
+I withdrew from the door and faced the wall. I had never felt so powerless before: my fate being discussed by a room full of powerful men while I stood in a cell, like I wasn't even there. And my decisions were now between two extremely risky cases. I listened intently to the silence surrounding us and begged for a message, but none came. The pulse in my head and the gentle shifting of cloth behind me filled my headsound.
+
+"Let's give her a moment, guys," I heard Kip say.
+
+I turned around and found the back of his head and said "Wait, Kip. Just you."
+
+The others gathered their lanterns and moved to the other room, the magistrate helping Fajro. I walked toward Kip but didn't reach for him this time.
+
+"Kip... how many people know?"
+
+"Know what?"
+
+"What I came here to announce."
+
+"Mel told me it's up to each province to decide that for itself. She's given the all-clear for Heiko to reveal by hierarchy."
+
+"What's that?"
+
+"In order to stave off panic, people are told one-by-one in private rooms and are given tasks to handle and a buddy to look after so they don't just mentally shut down. My parents were part of the first test. When we had to ration for the winter of ash."
+
+"I remember learning about it in lecture. My parents never really mentioned it much. I suppose it hit them harder than most."
+
+"All the farmers were working their hardest for the few days we had until the ash swallowed the sky. Then they cursed the air and padded their houses like the rest of us. They got the same rations as us of course, but the guilt of having nothing to contribute to your town must be crushing."
+
+"You have no idea. We are a proud bunch. As steam machinery began to spring up, we held on to the tradition of having every family devoting part of their land and part of their time to farming. There's a certain sense with crops that farmers have; no machine could ever copy."
+
+"Your spirit is admirable."
+
+I reached for his shoulders under a thin, tightly woven tunic that he wore under his medical aprons. I reached for comfort more than for attention.
+
+"What do you know about Fajro?" I asked.
+
+"He's just a client. I check his leg out every once in a while. Why?"
+
+"Did you know that he used to be a senator for Holragi, and that he had a major falling out with Mel?"
+
+"No... I didn't know about any of that... Lif, that means he could have planned this. I could have sent you into a trap."
+
+"That's what I mean. I need to figure out his angle. His offer is suspiciously generous. He needs me but I don't know what for."
+
+"Maybe to get back at Mel."
+
+"No that's too petty. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
+
+"He would need you for longer than that to make it work, and Mel could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holragi? This observational study. I thought Heiko had the best observatory."
+
+"Maybe it has something to do with their space rail. Maybe they can send telescopes after all. But..."
+
+Kip looked worried all of a sudden. "No... they wouldn't."
+
+"Wouldn't what?" I asked, but too late. Fajro and the magistrate had lost patience and re-entered the room.
+
+The magistrate bluffed with his casual voice. "I'd love to stand and chat in the dark with all of you, but I've got 13 more cases to cover today. Have you decided yet?"
+
+I answered him, "Before I decide, I'd like to ask Fajro about the study he's conducting."
+
+"Why sure," he said with a smile.
+
+"Make it quick," said the magistrate, audibly annoyed.
+
+"Fajro, what is the goal of this project?"
+
+"Well it's a continuation of the rail project. I can't exactly get into too many more details without a guarantee of your cooperation. Provincial secrets, you understand."
+
+"What do you need me for?"
+
+"Like I said, you would be a communications liaison between The Heiko and Holragi scientists."
+
+"I'm not much of a talker, and we all speak the same language here. What do you *really* need me for?"
+
+He sighed and looked at the lantern light against the dusty ground.
+
+"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. The person has to be small, lightweight, observant, quick-learning, brave, and in great physical shape. You happen to fit all of those criteria."
+
+"Are you saying what I think you're saying?"
+
+"We need you up there."
+
+"ABSOLUTELY NOT," Kip shouted into his face and stood in between us but our eyes never broke the wires between them. Like two rails from one mind to the next, I finally saw the dream that he saw. The danger, the glory, the pride. *I could die. I could die!* I shouted inside my head. I wasn't afraid; it excited me.
+
+Kip kept going, "Where do you get off, man? You think playing with her life is some fun experiment? You are messing with the wrong family."
+
+"Kip," I tried to calm him. He turned around and looked at me, confused.
+
+"Is it dangerous?" I asked.
+
+Kip figureed it out and tried talking me out of it. "No no no. What are you saying, Lif?"
+
+Fajro tried to settle our nerves with some facts, "We've sent many successful satellites into space. None of them had Palinians onboard, but every plant and animal we've sent up has come back alive."
+
+"And probably permanently disfigured," Kip added, "You're a nutjob, Fajro. Go find someone else stupid enough to play along with your crazy experiment. You're done here."
+
+"Well we do already have a list of people we could send," he retorted.
+
+"Why me?" I asked.
+
+"Well, there's something special about you Lif, and maybe you refuse to acknowledge it. Your wife is the Heiko Senator. You have political clout - enough to bring Heiko and Holragi together in cooperation again. We will send you up from Holragi, but when you land, you'll likely be in Heiko. The rangers there will be quicker to talk to us and find you if they know their own Liffa is in there."
+
+"Eh, I'm really not that popular."
+
+"Oh, you will be by the time you launch. And you must remember that what you discover on this mission will show us how to clear the obstruction. It is foolish to wait in hiding expecting it to blow over. This thing is not getting any smaller. We need to act."
+
+Kip chimed in again, "Lif. Don't do this. Mel and I need you alive. This is Holragi's business. Fajro's business. Not yours."
+
+"The obstruction is a problem that we all share now. I'm in."
