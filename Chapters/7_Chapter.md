@@ -417,7 +417,7 @@ I was tempted to defend Kip, but this was not the time.
 
 "And you're still bitter about it."
 
-"Damn right I am. And now Palinan is stuck here, huddling in the dark with no plan but to wait it out."
+"Damn right I am. I moved to Heiko to covertly learn more from your observers, but they were obviously suspicious of me. Now Palinan is stuck here, huddling in the dark with no plan but to wait it out."
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoan hero for all the PR."
 
