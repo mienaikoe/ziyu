@@ -3,7 +3,7 @@
 # Part 2 - Kip
 
 
-## Inter
+## Interlogue
 
 The magistrate re-entered the room while the cell guard held Kip's hands behind his back. In the light, Kip could see that the magistrate's eyes were wholly uninterested in his job. They were disappointed in Kip, but not surprised.
 

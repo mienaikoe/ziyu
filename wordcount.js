@@ -2,24 +2,25 @@ const fs = require('fs');
 const wordcount = require('wordcount');
 
 
-var chaptersStarted = 8;
 var total = 0;
 
-function countWords( filename, chaptername ){
-  var file = fs.readFileSync(filename, "utf8");
+function countWords( filename ){
+  var file = fs.readFileSync("Chapters/" + filename, "utf8");
   var count = wordcount(file);
   total += count;
-  console.log(`${chaptername}: ${count} words`);
+  let tabs = "\t";
+  if( filename.length < 15 ){
+    tabs += "\t";
+  }
+  console.log(`${filename}:${tabs}${count} words`);
 }
 
-countWords( "Chapters/0_Prologue.md", "Prologue" );
-for( var ix=1; ix<=chaptersStarted; ix++ ){
-  countWords(`Chapters/${ix}_Chapter.md`, `Chapter ${ix}`);
-}
 
-console.log(`Total    : ${total} words`);
+fs.readdir("./Chapters", function(err, items) {
+  for( let ix in items ){
+    let item = items[ix];
+    countWords(item);
+  }
 
-/*
-  July 4 - 4524 -> x4710
-
-*/
+  console.log(`\nTotal:\t\t\t${total} words`);
+});
