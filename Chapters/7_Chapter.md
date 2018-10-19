@@ -397,9 +397,9 @@ I was tempted to defend Kip, but this was not the time.
 
 "Fajro, I'm going to be honest. None of us trust you. All of your plans seem to weave together in your favor a little too well."
 
-"Well, I don't blame you. I am definitely lying a lot to get what I want."
+"Well, I don't blame you. I tend to treat words as incantations more than expressions. They do what I want them to."
 
-"Why do it? What sort of paradise awaits you at the end of all this?"
+"Why do it? What luxurious paradise awaits you at the end of all this?"
 
 "Oh don't you call me a lush. I might be a good liar, but I don't do it for the pleasure."
 

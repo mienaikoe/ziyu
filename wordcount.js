@@ -12,9 +12,9 @@ function countWords( filename, chaptername ){
   console.log(`${chaptername}: ${count} words`);
 }
 
-countWords( "Chapters/Prologue.md", "Prologue " );
+countWords( "Chapters/0_Prologue.md", "Prologue" );
 for( var ix=1; ix<=chaptersStarted; ix++ ){
-  countWords(`Chapters/Chapter${ix}.md`, `Chapter ${ix}`);
+  countWords(`Chapters/${ix}_Chapter.md`, `Chapter ${ix}`);
 }
 
 console.log(`Total    : ${total} words`);
