@@ -1,16 +1,15 @@
 ## Character Arcs
 
 ### Lif
-
-Has a major arc where she goes from self-reliant and afraid to heroic and vulnerable to her family, but thi maintains chaotic good throughout the story. Thi has constant imposter syndrome about hae own life. Lif is chaotic good and supports the pride party that wants to do stop the robots.
+Has a major arc where thi goes from self-reliant and afraid to heroic and vulnerable to hae family, but thi maintains chaotic good throughout the story. Thi has constant imposter syndrome about hae own life. Lif is chaotic good and supports the pride party that wants to do stop the robots. Thi wants to participate in government and believes it's the most important thing to do.
 
 ### Mel
-
 Is a lawful neutral character that believes in Lif's purpose, but isn't in a position to make decisions from a non-consensus standpoint. She does not have a major arc, but remains true to her promises to her family and her nation, even if she has to keep secrets from both of them sometimes to maintain order. Mel supports the Arkeza as she wants her family to survive the robotic culling that seems inevitable.
 
 ### Kip
+Is a character that starts out bored with life and becomes obsessed with sense of duty and heroism, to a fault. Kip does not take ideological sides when it comes to arguing a point. He does take a strong stance for his family and often finds himself fighting a bit to much about it. He is cynical of government, and just let's Mel handle that part of things - he doesn't want to hear about it very much. He finds his work more important - saving lives and helping people through pain.
 
-Is a character that starts out bored with life and becomes obsessed with sense of duty and heroism, to a fault. Kip does not take ideological sides and is generally seen as a pacifist and mediator for Mel and Lif.
+
 
 ## Themes
 - Is the tragedy of the commons inevitable? Can people unite in foregoing their own benefits for the greater benefit of all?
@@ -55,37 +54,39 @@ Is a character that starts out bored with life and becomes obsessed with sense o
 
 
 
-## Main Plot Point
+## Plot
 
-### Part I
+  The Palinians live around a white dwarf, huddled in the last remnants of the universe. Invasive robots are moving in to harvest the intense energy of the white dwarf with a dyson sphere. Palinians become divided on what to do as they are forced to migrate and start a new life closer to the sunward side of the planet.  The robots were created by the progenitors who stripped the planet of its oil and rare earth metals when they left as a way to maintain technology growth so the planet would not undergo climate collapse as it had for every iteration of intelligent life that came before. The robots are detecting that the palinians are thriving despite the lack of oil and rare earths and are aiming to make a temporary ice age to slow their progress as the progenitors requested their AI to do.
 
-  The Palinians live around a white dwarf, huddled in the last remnants of the universe. Invasive robots are moving in to harvest the intense energy of the white dwarf with a dyson sphere. Palinians become divided on what to do as they are forced to migrate and start a new life closer to the sunward side of the planet. Lif and Fajro decide to send thi up in a vessel to investigate (It's a bit of a suicide mission and only Holragi knew it). As thi approaches, hae finds not a sphere, but a circle of thin woven steel centered at L1. Robotic craft approach hae vessel and lead it to a larger one that observes the craft and Lif inside it. They attempt to communicate with hae. Thi learns they are a robotic hivemind and:
+  Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it.
 
-  The robots were created by the progenitors who stripped the planet of its oil and rare earth metals when they left as a way to maintain technology growth so the planet would not undergo climate collapse as it had for every iteration of intelligent life that came before. The robots are detecting that the palinians are thriving despite the lack of oil and rare earths and are aiming to make a temporary ice age to slow their progress as the progenitors requested their AI to do.
+  Permutation 1:
+    Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holragi, same as before.
 
-  The robots pause while they observe Lif as a new variable that needs to be understood in their problem. Lif attempts to find a way to ask it to stop. Chapter ends here.
+  Permutation 2:
+    Kip gets angry, but doesn't hit Fajro. Lif gets sent to Holragi. Kip goes on to help Heiko.
 
+  Lif gets sent up in a vessel to investigate (It's a bit of a suicide mission and only Holragi knew it). As thi approaches, hae finds not a sphere, but a circle of thin woven steel centered at L1. Robotic craft approach hae vessel and lead it to a larger one that observes the craft and Lif inside it. They attempt to communicate with hae. Thi learns they are a robotic hivemind and the robots pause while they observe Lif as a new variable that needs to be understood in their problem. Lif attempts to find a way to ask it to stop. Chapter ends here.
 
-### Part II
+---
+
   Some archaeological zealots form a subsect of the senate (the Arkeza party) who believe the tragedy of the commons is the natural law and they wish to sustain the ice age so they can control the famine and thinning of the population to gain power. These are pure rationalists that abide by what the hivemind AI has said. They believe there is very little difference between progenitors and Palinians, that corruption and consumption are a logical conclusion in society, and that the only way to sustain life is to pull it back from time to time.
   Psychologists and futurists (the Palinian Pride party) believe the progenitors had a flawed society that caused them to fall. Rather than assuming, as in capitalism, that people are greedy and reactively punishing for it, they believe it is better to reward social behavior and initiative and that is how Palinian culture works. They believe that their society and physiology is flawed, but not so much that they wouldn't get over this hardship together.
 
   Iteration 1:
 
-    Kip fights with Mel about caring about these sides and the importance of family. Then goes on a quest into Ulu with his mother, Cas, to find Lif or hae body. It's cold af, but they find a settlement of sorts that appears abandoned. They are kidnapped into an underground civilization called Shayadja where they find remnants of the vessel, and no sign of Lif. They learn how to survive in the dark with geothermal power, food, and water. Though the Shayadj cannot take their population in, Kip and Cas can bring this knowledge and some samples back and possibly save those who work hard enough to prepare. They do this for Lif's memory.
+    It's cold af, but Kip finds a settlement of sorts that appears abandoned. He finds a creature he's never seen before and uses his medical skills to heal it. Kip is then brought into an underground civilization called Shayadja where they find remnants of the vessel, and no sign of Lif. He learns how to survive in the dark with geothermal power, food, and water. Though the Shayadj cannot take the Palinian population in, Kip can bring this knowledge and some samples back and possibly save those who work hard enough to prepare.
 
-    Kip and Cas return to the house only to find it dim (almost like an eclipse) and the garden barren except for the Ziyu tree. Heiko central has become a ghost town. They walk further toward the remaining light of Ara and find lots of Heikoans huddled around fires. Eating rationed rolls. They mention that the Senators chose stay behind in the capital and to evacuate everyone closer to the Ara desert while still close enough for the strongest to ferry rations from home. There were lots of problems with looting and theft (feeding into the Arkeza narrative), and so they chose Arkeza members to police them. Naturally, the Arkeza were gaining power by playing judge and jury for Pride members, separating them into the more barren parts of their new homes. Kip and Cas go to face Mel and the senate in the capital.
+    Kip returns to the house only to find it dim (almost like an eclipse) and the garden barren except for the Ziyu tree. Heiko central has become a ghost town. They walk further toward the remaining light of Ara and find lots of Heikoans huddled around fires, eating pohua and clearly malnourished. They mention that the Senators chose stay behind in the capital and to evacuate everyone closer to the Ara desert while still close enough for the strongest to ferry rations from home. There were lots of problems with looting and theft (feeding into the Arkeza narrative), and so they chose Arkeza members to police them. Naturally, the Arkeza were gaining power by playing judge and jury for Pride members, separating them into the more barren parts of their new homes. Kip and Cas go to face Mel and the senate in the capital.
 
   Iteration 2:
 
     Kip flies to the obstruction to find Lif and hopefully give hae medical attention if thi needs it. He spots hae on a robot ship, asleep and being mentally observed by robots. Kip is flying near L1, and the robots are observing him, but he is unable to make it to the other ship without abandoning his own.
 
-    (Later Mel finds Lif and thi asks if thi was helpful by sacrificing hae mind to the robots in the hopes that they would find that they were worth saving. It turns out the robots were trying to find life that could sustain itself indefinitely in order that life can solve the final problem. (Life is better than AI at creative problem solving because of a physical rule. Life is just better at surviving?) )
+    Later Mel finds Lif and thi asks if thi was helpful by sacrificing hae mind to the robots in the hopes that they would find that they were worth saving. It turns out the robots were trying to find life that could sustain itself indefinitely in order that life can solve the final problem. (Life is better than AI at creative problem solving because of a physical rule. Life is just better at surviving? "When you're adapted to space, where no biology dares to live, survival is easy. Your realize your whole purpose in life has been to survive. You start to go mad.")
 
 
-
-
-### Part III
+---
 
   Kip and Lif relay this information to the Senate.
 

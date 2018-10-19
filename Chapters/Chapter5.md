@@ -17,9 +17,9 @@ The city was carved from the body a long-dead volcano, curled upward as if the l
 
 "Let's make this one count."
 
-The base of the city was brightly lit, but shaded by giant mirrors in the distance. They were used to focus Ara's light on pipes of water to deliver steam to all of Shaki. An air of bustle filled the scene with hordes of workers bringing cargo to and from trains; trade scribes in toe trying to keep up.
+The base of the city was brightly lit, but there were large spots of shade behind giant mirrors in the distance. They were continuously focusing and harvesting Ara's light onto pipes of water to deliver steam to all of Shaki. Near the railyard an air of bustle filled the area with hordes of trainferriers bringing cargo to and from the trains; trade scribes in toe trying to keep up.
 
-I helped Fajro walk from the train yard to the easternmost funicular station. It was not terribly distant, but the sluggish pace was wearing thin on the patience of passersby trying to get around us.
+I helped Fajro walk from the railyard to the easternmost funicular station. It was not terribly distant, but the sluggish pace was wearing thin on the patience of passersby trying to get around us.
 
 "I regret that I am slowing you down," he said, acknowledging his frustration.
 
