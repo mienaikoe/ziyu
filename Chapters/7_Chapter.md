@@ -417,7 +417,7 @@ I was tempted to defend Kip, but this was not the time.
 
 "And you're still bitter about it."
 
-"Damn right I am. I moved to Heiko to covertly learn more from your observers, but they were obviously suspicious of me. Now Palinan is stuck here, huddling in the dark with no plan but to wait it out."
+"Damn right I am. We needed to study more about space when we had the chance. We have no clue what's up there. I moved to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'to.  Now Palinan is powerless, huddling in the dark with no plan but to wait it out."
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoan hero for all the PR."
 
