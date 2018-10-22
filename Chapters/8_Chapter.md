@@ -25,9 +25,9 @@ He quickly dug a small trench in the pebbles to insulate them while he used his 
 
 Kip butted in, "It will take too long to get there. Thi'll be dead by the time we start running."
 
-The crowd paused, and then a woman spoke up, "Everyone gather kindling from the treeline. We'll start a fire here."
+The crowd paused, and then a woman spoke up, "Everyone gather kindling from the forest. We'll start a fire here."
 
-They sprung into action while the woman rushed over to Kip, still pushing on the child's hearts.
+Those who were able sprung into action while the woman rushed over to Kip, still pushing on the child's hearts.
 
 She said, "I'm Cas, a doctor from Shaki. I can take over if you're tired."
 
@@ -37,23 +37,56 @@ Kip responded between pushes. "Thank you...shouldn't...stop". Cas understood and
 
 Cas reset her focus and produced two steel bits and a still-dry notebook from a peculiar bag at her waist. She took a large rock in her shaking hands and started crashing it into the steel above the paper while the people crowded around to shield her from the wind. A maman sat down beside her and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kip carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
 
-
 Meanwhile Kip was trying to talk to the child to keep hae awake and aware.
 
 "Hey, what's your name?"
 
-"Wh-w-w..wha."
+"m-m-mh."
 
 "Hey, you're ok now. We made it to shore."
 
-"m-m-mh."
+Kip kept his arms and legs wrapped around the child while the smolders turned to flames and then to fire and hae shivers settled. The whole group was huddled closely around the fire now, some napping to regain their strength they had just encountered while Cas remained close to Kip and the child.
 
-Kip kept his arms and legs wrapped around the child while the smolders turned to flames and then to fire and hae shivers settled. The whole group was gathered around the fire now, introducing themselves to each other while Cas remained close to Kip and the child.
+"Colder than I thought it would be," she tried to make small talk.
 
-Cas noticed that Kip was getting sleepy, and said, "Hey, why don't you rest your arms. I can take care of hae."
+Kip paused, wondering if he should mention the obstruction.
 
-He said, "Ok," and gently laid the child into Cas's arms before leaning over and falling asleep next to her. Cas briefly looked at him admiringly, as if to wonder how such a good heart wound up in such a miserable place, but she remembered that all hearts have a dark side, including her own.
+She changed the subject, "I didn't get your name earlier."
+
+Kip responded, relieved, "I'm Kip. A doctor from Heiko."
+
+"Two doctors in Ulu. What are the odds?"
+
+He smiled abruptly to himself - he was pondering the same thing.
+
+He asked her, "So, Cas Um Shaki, how did you wind up here?"
+
+"I'd prefer to ask you first. Anxiety."
+
+"Well. I pinned a guy against a wall who wanted to send my spouse to space."
+
+She laughed until she noticed that he wasn't.
+
+"Oh. That... must be a long story."
+
+"It is."
+
+Kip felt a sense of longing for Lif and Mel, but then realized he was being too cold. "It's a story best told in the light."
+
+"I see."
+
+"So how about you? Hope it's a bit less complicated."
+
+"It's...well I suppose it's also a story for the mainland."
+
+"Sure."
+
+She noticed that Kip was getting sleepy and whispered to him, "Hey, why don't you rest your arms. I can take care of hae."
+
+He nodded and gently laid the child into Cas's arms before leaning over and falling asleep next to her. Cas briefly looked at him admiringly, as if to wonder how such a good heart wound up in such a miserable place, but she remembered that all hearts have a dark side, including her own.
 
 ---
 
-Kip woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. He rolled over to see Cas asleep behind him and the child, still breathing. *What time of day is it? Can hardly tell in the eternal twilight here*. But his belly grumbled and told him it had been at least a va'la. *We aren't going to survive out here long unless we find a food source*. He sat up and searched the fire for enough heat to rekindle from. He was satisfied that it was possible, and then took some thicker branches from the pile they built when they arrived to re-stoke the fire, saving one for his makeshift torch.
+Kip woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. He rolled over to see Cas asleep behind him and the child, still breathing. *What time of day is it? Can hardly tell in the eternal twilight here*. But his belly grumbled and told him it had been at least a va'la. *We aren't going to survive out here long unless we find a food source*. He sat up and searched the fire for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. He had anticipated the darkness in his imagination of Ulu but he had never planned for the difficulty of uneven ground in the dark or surviving in the wild. He had always assumed that the stories of the Shadestead referred to a large prison, not a lawless forest island.
+
+With a torch and a commitment to redeem himself, he carried the light into the towering forest, determined to uncover its mysteries.

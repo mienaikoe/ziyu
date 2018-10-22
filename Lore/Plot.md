@@ -63,15 +63,32 @@ The Palinians live around a white dwarf, huddled in the last remnants of the uni
 
 ### Part 1 - Lif
 
-Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it.Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holragi.
+Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it. Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holragi.
 
-### Inter - Lif/Kip
+### Interlogue - Lif/Kip
 
 Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and then Lif leaves with Fajro.
 
 
 ### Part 2 - Kip
-Kip is in Ulu and decides to set out on the frozen sea to get back to Heiko. He encounters intelligent beings with no architecture, but plenty of tool use and agriculture that live under the ocean and they form a mutual bond of health-help. He calls them Shayadj after the Palinian word for underwater [sha=water yadj=under]. They do not have a written or oral communication, but they are very expressive with gesture. Kip uncovers secrets of how they live underwater in Ulu(geothermal warmth and energy). Kip's part ends with hearing a loud sonic boom and seeing what he believes to be an asteroid of sorts - it's Lif's vessel, empty except for a few quick scribbles of hae observations.
+Ch8
+Kip is in Ulu. He finds Cas and Wan.
+
+Ch9
+The shadestead rulers capture them. Kip tries to share with them that their shade trees are about to die, but they call him an imbecile and enslave them all.
+Cas notices that they hunt and eat a giant sea mammal they call shayadj after the Palinian word for water and deer [sha=water yadj=deer]. They infer that the shadesteaders might survive the darkness longer than anyone on the continent, and that there must be boats that catch shayadj.
+
+Ch10
+On the first night, Kip and Cas search for these boats and uncover
+  perm1: a barely living shayadj with a clearly intelligent mind that they try to help. They do not have a written or oral communication, but they are very expressive with gesture. The shayadj reads their intentions and guides them to ...
+  perm2: a boat which they take and find ...
+a luminescent city underwater - the home of the shayadj.
+
+Ch11
+Kip and Cas uncover secrets of how they live underwater in Ulu(geothermal warmth and energy). 
+
+
+Kip's part ends with hearing a loud sonic boom and seeing what he believes to be an asteroid of sorts - it's Lif's vessel, empty except for a few quick scribbles of hae observations.
 
 ### Part 3 - Lif
 Lif is in Holragi preparing for launch. Fajro becomes more of a father figure and less of an asshole figure. Lif becomes more confident in haeself. When it's launch time, Lif is ready. The initial launch goes well, but then once hae gets to a lower pressure, there's an opening in hae pressure suit (simple wrappings and a helmet for oxygen). Thi has to fix it really quickly while the craft is traveling through the small bits of turbulent air in the upper atmosphere. Once fixed, thi realizes hae hearing is permanently muffled from the sudden pressure difference. thi ensures trajectory is good with hae instruments and starts logging hae experiences in a notebook. Lif reaches L1 and begins seeing details in the obstruction in the shadows. Hae realizes it's not one diffuse cloud, but several large machine-rock hybrids that seem to be dotting the sky and being modified by small robots. Thi scribbles of it down, when thi realizes thi's been spotted. Thi panics when a robot latches on to hae craft and moves it toward one of the machine-rock hybrids. The part ends with Lif being taken aboard one and not knowing what will happen.
