@@ -71,22 +71,28 @@ Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and t
 
 
 ### Part 2 - Kip
-Ch8
+_Ch_
 Kip is in Ulu. He finds Cas and Wan. They survive the cold.
 
-Kip ventures into the forest, gets trapped, watches as his cohort gets captured. (Forest is one big tree that never dies)
+_Ch_
+Kip ventures into the forest, gets trapped. (Forest is one big tree that never dies, becomes their religion). Kip tries to share about the obstruction, but the champion laughs and enslaves him along with the rest of the group.
 
-Ch9
-Kip tries to share about the obstruction, but they all laugh and enslave them, give Kip the worst job.
+_ch_
 Cas notices that they hunt and eat a giant sea mammal they call shayadj after the Palinian word for water and deer [sha=water yadj=deer]. They infer that the shadesteaders might survive the darkness longer than anyone on the continent, and that there must be boats that catch shayadj.
 
-Ch10
+_ch_
+Kip is caught trying to steal a boat, becomes a runner for the hunting games of the leaders. Wan's mother is one of the leaders. She helps Kip escape.
+
+_Ch_
+Cas uses the intel Kip uncovered to successfully steal a boat, and pick up Kip. They go on an adventure to Heiko.
+
+_Ch_
 On the first night, Kip and Cas search for these boats and uncover
   perm1: a barely living shayadj with a clearly intelligent mind that they try to help. They do not have a written or oral communication, but they are very expressive with gesture. The shayadj reads their intentions and guides them to ...
   perm2: a boat which they take and find ...
 a luminescent city underwater - the home of the shayadj.
 
-Ch11
+_ch_
 Kip and Cas uncover secrets of how they live underwater in Ulu(geothermal warmth and energy).
 
 

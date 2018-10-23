@@ -11,7 +11,7 @@ I paused, listening intently for the sound.
 
 I looked up at my mother's chin, illuminated by the low sun of morning, and then out to the leaves on the tree swaying in the dim light.
 
-*"Nature speaks"*
+*"The ziyu speaks"*
 
 "In the silence," I finished hae sentence.
 
@@ -23,7 +23,7 @@ Thi held me closer but felt cold and fragile, like oversaturated clay. Thi kept 
 
 *"silence."*
 
-Thi sublimated and coalesced into a cloud and vanished into the tree, turning its bark an earthen orange. The breeze picked up and the song of the Ziyu sang loudly all around me as I lay grasping the roots where my mother last spoke. I listened closer to the sound; closer than before. *Is there a pattern?*
+Thi sublimated and coalesced into a cloud and vanished into the tree, turning its bark an earthen orange. The breeze picked up and the song of the Ziyu sang loudly all around me as I lay grasping the roots where my mother last spoke. I listened closer to the sound; closer than before. *What am I listening for?*
 
 "Good Morning, Liffa."
 

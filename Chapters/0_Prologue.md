@@ -30,6 +30,6 @@
 
   A memory of my mother's voice passed through my mind, pulling me back into the past,    
 
-  *"Nature speaks in the silence."*
+  *"The ziyu speaks in the silence."*
 
   "What is it saying?" I asked her, as I always would. She always told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was hearing only the beginning of the answer, and it was deafening.
