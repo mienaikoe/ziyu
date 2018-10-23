@@ -72,10 +72,12 @@ Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and t
 
 ### Part 2 - Kip
 Ch8
-Kip is in Ulu. He finds Cas and Wan.
+Kip is in Ulu. He finds Cas and Wan. They survive the cold.
+
+Kip ventures into the forest, gets trapped, watches as his cohort gets captured. (Forest is one big tree that never dies)
 
 Ch9
-The shadestead rulers capture them. Kip tries to share with them that their shade trees are about to die, but they call him an imbecile and enslave them all.
+Kip tries to share about the obstruction, but they all laugh and enslave them, give Kip the worst job.
 Cas notices that they hunt and eat a giant sea mammal they call shayadj after the Palinian word for water and deer [sha=water yadj=deer]. They infer that the shadesteaders might survive the darkness longer than anyone on the continent, and that there must be boats that catch shayadj.
 
 Ch10
@@ -85,7 +87,7 @@ On the first night, Kip and Cas search for these boats and uncover
 a luminescent city underwater - the home of the shayadj.
 
 Ch11
-Kip and Cas uncover secrets of how they live underwater in Ulu(geothermal warmth and energy). 
+Kip and Cas uncover secrets of how they live underwater in Ulu(geothermal warmth and energy).
 
 
 Kip's part ends with hearing a loud sonic boom and seeing what he believes to be an asteroid of sorts - it's Lif's vessel, empty except for a few quick scribbles of hae observations.
