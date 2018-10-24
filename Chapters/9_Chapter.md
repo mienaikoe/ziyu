@@ -17,10 +17,35 @@ He asked Set, yelling through the noise, "How can you stand this stench?"
 
 "You get used to it," She replied.
 
-They came to the back of the tent, where a maman sat on a rug in front of a tent post, smoking something sweet and laughing with others around hae.
+They came to the back of the tent, where a maman no more than Kip's age sat on a rug in front of a tent post, smoking something sweet through a long pipe and laughing with others around hae.
 
 Set whispered something in hae ear, and the maman looked Kip up and down with a mischievous smile. Thi motioned to him to join hae on the other side of the tent wall. Set pushed him to go, and he hesitantly went. To his surprise, the other side wasn't the outside, but another smaller tent with just the maman and him. He knew where this was going.
 
-The maman looked at him with a straight face, "I own this island and all the people on it. That includes you. Get on your knees."
+The maman spoke to him with a charming face.
 
-""
+"I'm Lissa. I own this island and all the people on it, including you. If you cooperate with us, all of your fantasies can be fulfilled," thi said with her voice and thoughts trailing off into some other time and place.
+
+"If you choose not to... we have a way to steal all of your fun."
+
+Kip stared at hae, not knowing whether to run or say something.
+
+Lissa changed to a serious face. "We kill you," and back again, "Anyway, just cooperate and we'll all have a great time."
+
+Thi observed him with a feigned frown.
+
+"You seem a bit on-edge. Have a bit of this."
+
+Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took the pipe, but immediately tried to give it back.
+
+"See this is what I'm talking about," said Lissa, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he slowly took up the pipe onto his lips, trying his best not to inhale.
+
+"Inhale," thi commanded.
+
+He inhaled a small bit and the smoke triggered his cough reflex almost immediately. He tried to cough without moving forward into the dagger. Lissa lowered the dagger and put it away, saying "There you go. You'll get the hang of it. One more."
+
+He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable.
+
+"There you go," Lissa said. He could feel hae hands traveling across his skin as if thi had grown another pair. The floor became an ocean of pillows with hae hands as the waves and he was sinking into them.
+
+// all he can think of is Lif in his dream state.
+// Lis gives up on him \ can't fuck him while he's thinking about someone else.
