@@ -93,7 +93,7 @@ The forest floor was covered with dried thin leaves and branches that had fallen
 
 "There was a bonfire when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His memory of where the fire was foggy but he set out in the direction of Ulu, where he presumed the center of the island to be.
 
-He came to a small clearing in the trees where he noticed specific markings at the base of a very large branch. They were thin rings running around the branches with an ochre red fill. They resembled some sort of language that wasn't based on anything Throngian. He stopped to study them, running his fingers against the carvings. In the silence and intense concentration, he started to hear a faint static ticking noise as if it were coming from inside his head.
+He came to a small clearing in the trees where he noticed specific markings at the base of a very large branch. They were thin rings of copper running around the branches, oxidized by salt water in the air. Their bends and cruves resembled some sort of language that wasn't based on anything Throngian. He stopped to study them, running his fingers against the wires. In the silence and intense concentration, he started to hear a faint static ticking noise as if it were coming from inside his head.
 
 "Are you lost?" A voice suddenly called out.
 
