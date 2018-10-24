@@ -3,7 +3,7 @@
 ## Chapter 8
 
 
-The ship to Ulu's shadestead looked like it was made by a generation of Palinians no longer living, and instead of being repaired correctly it was patched up with scrap boards and bent nails. Kip was used to bikes and trains: the vehicles of the land, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved punishment if he thought about it long enough. The captain was a tall, muscular woman by the name of Zaenta, or at least that's what he thought he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of them seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a maman child, with clear signs of withdraw. *These people need medical help. Ulu will only make them worse.*
+The ship to Ulu's shadestead looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and bent nails. Kip was used to bikes and trains: the vehicles of the land, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved punishment if he thought about it long enough. The captain was a tall, muscular woman by the name of Zaenta, or at least that's what he thought he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of them seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a maman child, with clear signs of withdraw. *These people need medical help. Ulu will only make them worse.*
 
 After a few va'ma, they came near to a large island with tall trees and a bright bonfire roaring quite a way from the shore. The dimness of the sky made it feel like the end of the day, but they hadn't gone far. They could still see the outskirts of Shaki from across the sea. Kip's escort unchained his arms and shoved him to get in a line along the side of the boat with the others. The boat was still quite a ways from shore, and Kip couldn't tell what they were lining up for until he felt another stiff push behind him and the cold water hit like needles in his skin. He quickly surfaced and saw others fall in after him, some of them struggling to stay afloat. But he didn't have the strength to help them - he had to swim.
 
@@ -31,7 +31,7 @@ Those who were able sprung into action while the woman rushed over to Kip, still
 
 She said, "I'm Cas, a doctor from Shaki. I can take over if you're tired."
 
-Kip responded between pushes. "Thank you...shouldn't...stop". Cas understood and started digging a pit in the pebbles near the two to construct a fire. The people had started to bring small twigs and place them in the pit while Cas stood them to form a cone. Suddenly, a cough was heard and the people turned to find the child moving.
+Kip responded between pushes. "Thank you...shouldn't...stop". Cas understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit while Cas stood them to form a cone. Suddenly, a cough was heard and all turned to find the child moving.
 
 "You're alive!" Kip said, jubilant.
 
@@ -59,7 +59,7 @@ Kip responded, relieved, "I'm Kip. A doctor from Heiko."
 
 He smiled abruptly to himself - he was pondering the same thing.
 
-He asked her, "So, Cas Um Shaki, how did you wind up here?"
+He asked her, "So, Cas, how did you wind up here?"
 
 "I'd prefer to ask you first. Anxiety."
 
@@ -93,7 +93,7 @@ The forest floor was covered with dried thin leaves and branches that had fallen
 
 "There was a bonfire when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His memory of where the fire was foggy but he set out in the direction of Ulu, where he presumed the center of the island to be.
 
-He came to a small clearing in the trees where he noticed specific markings at the base of a very large branch. They were thin rings of copper running around the branches, oxidized by salt water in the air. Their bends and cruves resembled some sort of language that wasn't based on anything Throngian. He stopped to study them, running his fingers against the wires. In the silence and intense concentration, he started to hear a faint static ticking noise as if it were coming from inside his head.
+He came to a small clearing in the trees where he noticed specific markings at the base of a very large branch. They were thin rings of copper running around the branches, oxidized by salt water in the air. Their bends and cruves resembled some sort of language that wasn't based on anything Throngian. He stopped to study them, running his hands and fingers against the wires. In the silence and intense concentration, he started to hear a faint static ticking noise as if it were coming from inside his head.
 
 "Are you lost?" A voice suddenly called out.
 
@@ -115,11 +115,11 @@ Kip was aghast imagining what this child's life might be like.
 
 "Where are your parents?"
 
-"My nather lives under the light. My mother lives here."
+"My nather lives on the mainland. My mother lives here now."
 
 "Lives here? What do you mean?"
 
-"Hae sentence was for 10 ma'to. Thi got through half of it and decided thi didn't want to go back."
+"Hae first sentence was for one ma'to. After hae return, thi just wanted to go back to the shadestead. Now hae sentence is for life."
 
 "And your father?"
 
@@ -133,11 +133,11 @@ Thi hesitated again but quickly turned hae attention to something behind Kip. He
 
 She lifted the child up to stand and said, "Taun. Thank you for distracting this one. Run off now to your mother," she said with a peculiar accent.
 
-Wan obeyed, leaving Kip behind.
+"Yes, nather Set", Wan said, as he ran to the camp leaving Kip behind.
 
-"As for you: you're a vigorous one. We save the best jobs for people like you."
+"As for you... You're a rebellious one. And pretty sexy. We save the best jobs for people like you."
 
-Kip tried to stand up, but the woman drew her spear at him and shouted, "Running is futile. Trust me, nobody here wants you dead."
+Kip tried to stand up, but Set drew her spear at him and shouted, "Running is futile. Trust me, nobody here wants you dead."
 
 She pulled Kip up by the shirt like he was nothing more than a tree branch and looked him in the eye. The luminescent ink in her skin was reflecting off of Kip's terrified face and illuminating her own.
 

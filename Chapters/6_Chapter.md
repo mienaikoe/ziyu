@@ -72,7 +72,7 @@ She said, "When I saw you up there walking through the Yansha stairway, I was fu
 
 "Mel, you aren't..."
 
-"Mad? No. I'm just frustrated that your presence has swayed the senate. It's become difficult to negotiate for Heiko. Pinta, a senator from Tintinal argued that I must have been keeping it a secret so we could stockpile food and profit on the chaos. Now they want Heiko to distribute enough food for all Palinians to subsist on for 90 tova."
+"Mad? No. I'm just frustrated that your presence has swayed the senate. It's become difficult to negotiate for Heiko. Pinta, a senator from Tintinal argued that I must have been keeping it a secret so we could stockpile food and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
 
 "But we only stockpile enough for 30 tova."
 
