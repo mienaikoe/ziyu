@@ -133,11 +133,11 @@ Thi hesitated again but quickly turned hae attention to something behind Kip. He
 
 She lifted the child up to stand and said, "Taun. Thank you for distracting this one. Run off now to your mother," she said with a peculiar accent.
 
-"Yes, nather Set", Wan said, as he ran to the camp leaving Kip behind.
+"Yes, nather Setre", Wan said, as he ran to the camp leaving Kip behind.
 
 "As for you... You're a rebellious one. And pretty sexy. We save the best jobs for people like you."
 
-Kip tried to stand up, but Set drew her spear at him and shouted, "Running is futile. Trust me, nobody here wants you dead."
+Kip tried to stand up, but Setre drew her spear at him and shouted, "Running is futile. Trust me, nobody here wants you dead."
 
 She pulled Kip up by the shirt like he was nothing more than a tree branch and looked him in the eye. The luminescent ink in her skin was reflecting off of Kip's terrified face and illuminating her own.
 
