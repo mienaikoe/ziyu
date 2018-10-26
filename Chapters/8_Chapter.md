@@ -133,7 +133,7 @@ Thi hesitated again but quickly turned hae attention to something behind Kip. He
 
 She lifted the child up to stand and said, "Thank you for distracting this one. Run off now to your nather," she said with a peculiar accent.
 
-"Yes, Setre", Wan said, as he ran to the camp leaving Kip behind.
+"Yes, Setre", thi said, before running to the camp leaving Kip behind.
 
 "As for you... You're a rebellious one. And pretty sexy. We save the best jobs for people like you."
 

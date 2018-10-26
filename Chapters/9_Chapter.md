@@ -21,15 +21,17 @@ Setre took his shoulder and said, "In here, you stay close to me."
 
 He nodded. He didn't really have a choice.
 
-Setre glanced into the tent, and then turned her head back to him. "Also, what is your name?"
+Setre glanced into the tent, and then turned her head back to him. "Also, what is your name and your occupation?"
 
-"Kipnu... why?"
+"Kipnu. I'm a doctor... why do you need to know that?"
 
-"I need to call you something when I introduce you to... hae."
+She looked him up and down again, surprised.
 
-She flipped the tent cover and they entered a new world of blue light. Everyone had luminescence covering their bodies and wore nothing but this luminescence. Some were singing and clapping songs from the mainland, some were dancing to them, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
+"I need to call you something when I introduce you."
 
-She led him through narrow spaces between people. Some made room and others did not even notice them. As they progressed deeper into the tent, the odor of sweat and bodies became heavier and heavier.
+She flipped the tent cover and they entered a new world of blue light. Everyone had luminescence covering their bodies and wore nothing but this luminescence. Some were smoking some drug he hadn't encountered before, some were singing and dancing songs from the mainland, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
+
+She led him through the narrow spaces between people. Some made room and others did not even notice them. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat.
 
 He asked Setre, yelling through the noise, "How can you stand this stench?"
 
@@ -103,32 +105,46 @@ With a flick of the wrist, she sliced through a fatty part of his thigh, making 
 
 She pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the main hall. Lissa will speak with you."
+"Bandage yourself up and come back into the grand yurt. Lissa will speak with you."
 
 "I have nothing to talk with hae about."
 
-"You might not, but thi does."
+"You will do as commanded."
 
 She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming himself before he went into the next room.
 
-The room was full of hundreds of people. The same people from yesterday, but they were silent now, staring at him like he was livestock or a trophy or something. *Why is everyone here? What are they looking at me for?*
+The room was full of nearly a hundred people. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was something to eat. *Why is everyone here? What are they looking at me for?*
 
-Lissa sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
+Lissa and hae crew sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
 
 "Kip. Approach," Lissa said from across the tent. Setre was behind him, ensuring he didn't turn back.
 
-He turned his head, but kept walking, "Setre, why all the ceremony for me."
+He turned his head, but kept walking, "Setre, why all this ceremony for me?"
 
-"You are healthy. A bit of a rarity in these parts. Keep moving."
+"You are healthy, strong, and smart. A very rare combination for people sent to Ulu. Keep moving."
 
-Once he had gotten close enough Lissa instructed him to kneel, which he did slowly as it caused him pain in his thigh to do so.
+As he approached, the people behind him followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly as it caused him pain in his thigh to do so.
 
-Lissa began the ceremony, "Welcome, Kipnu. Yesterday you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace.
+Lissa began the ceremony, "Welcome, Kipnu. Yesterday you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace."
 
-<!--
-SHIT DO I KILL CAS OR NOT?
-There doesn't seem to be much justification for a sacrificial society, but Lissa is also like batshit psychopathic.
-Sacrifice can be used to control population in times of hunger. There is no hunger here...
-Also used in religion. No religion to speak of...
--->
-But we all must make sacrifices. If they choose you, they must give up one of their own "
+Kip stood shivering and just wanting to get the ceremony overwith.
+
+"But we all must make sacrifices to have the things we desire. Those who want you must be willing to trade something of their own."
+
+Thi paused again. *Is this an auction?*
+
+"Kipnu. Please tell us who you are."
+
+He stammered out his introduction through bouts of shivering, "I-I am K-Kipnu um Heiko. I am a doctor."
+
+The crowd filled with murmurs before he was done talking.
+
+"I am bound to Liffa and Melna," he shouted over the crowd, but no one heard him.
+
+Lissa gestured to them to quiet down and addressed the crowd, "Now you know who Kipnu is. Let the bidding begin!"
+
+"400 Kanosin!"
+
+"5 slaves!"
+
+The crowd bunched in and crowded Lissa who was receiving bids and telling them to hae scribe. Setre had moved away from Kip and was now forming a perimeter around Lissa. The noise was aggravating Kip's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to. There was no solace to take in his conscience, no friend he could turn to. So like a switch, all judgments turned off, all sense of right and wrong had left, his fortress of good will abandoned. He had been broken.
