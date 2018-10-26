@@ -1,13 +1,13 @@
 ## Character Arcs
 
-### Lif
+### Lif(fa)
 Has a major arc where thi goes from self-reliant and afraid to heroic and vulnerable to hae family, but thi maintains chaotic good throughout the story. Thi has constant imposter syndrome about hae own life. Lif is chaotic good and supports the pride party that wants to do stop the robots. Thi wants to participate in government and believes it's the most important thing to do.
 
-### Mel
-Is a lawful neutral character that believes in Lif's purpose, but isn't in a position to make decisions from a non-consensus standpoint. She does not have a major arc, but remains true to her promises to her family and her nation, even if she has to keep secrets from both of them sometimes to maintain order. Mel supports the Arkeza as she wants her family to survive the robotic culling that seems inevitable.
+### Mel(na)
+Is a lawful neutral character that believes in Lif's purpose, but isn't in a position to make decisions from a non-consensus standpoint. She remains true to her promises to her family and her nation, even if she has to keep secrets from both of them sometimes to maintain order. She has major trust, paranoia, and anxiety issues and has to learn to seek help from her family to get through her upcoming struggle. Kip's return brings a well of "I told you so" to her mind, and she has to learn to trust Kip when he brings other useful news like wireless communication with Lif.
 
-### Kip
-Is a character that starts out bored with life and becomes obsessed with sense of duty and heroism, to a fault. Kip does not take ideological sides when it comes to arguing a point. He does take a strong stance for his family and often finds himself fighting a bit to much about it. He is cynical of government, and just let's Mel handle that part of things - he doesn't want to hear about it very much. He finds his work more important - saving lives and helping people through pain.
+### Kip(nu)
+Is a character that starts out bored with life and has lots of dreams and fantasies. Some of them taboo and secretive. He ends up chasing them too far, and becomes entangled in a deep well of doubt that he then must pull himself out of and save his family in some very unsexy ways.
 
 
 

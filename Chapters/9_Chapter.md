@@ -35,7 +35,7 @@ The maman spoke to him with a charming face.
 
 "If you choose not to... we have a way to steal all of your fun."
 
-Kip stared at hae, not knowing whether to run or say something.
+Kip stared at hae with cold eyes, nothing he wanted to say would be helpful.
 
 Setre chimed in with glee, "We hunt you down and kill you."
 
@@ -53,14 +53,51 @@ Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took th
 
 He inhaled a small bit and the smoke triggered his cough reflex almost immediately. He tried to cough without moving his neck into the dagger, and Lissa lowered it and put it away, saying "There you go. You'll get the hang of it. One more."
 
-He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable.
+He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable. His head was rushing with thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment.
 
 "There you go," Lissa said while thi and Setre laid him down on the floor. He could feel their hands traveling across his skin and multiplying to eight, twelve hands. He was feeling an internal tension, like a tangled string being pulled too hard.
 
-"Lif, Mel," he called out.
+"Lif...Mel," he called out.
 
 "Shh," Lissa said, "We are all a family in the darkness."
 
 The floor became an ocean of linens and he was sinking into them. *All of your fantasies.* This was something he had imagined ma'to ago, to trim away all his inhibitions and bathe in carnal desires with strangers. Such things were taboo in Heiko as a corruption of consciousness, especially to those who were bound. But then, everything had come to feel like a corruption of consciousness. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
 
-The rest faded into the intoxicated night, never to be seen on any of their memories.
+The rest faded into the night, hidden forever from the mind as the luckiest of regretful memories are.
+
+---
+
+*Where am I?*
+
+Kip opened his eyes and found himself floating alone on an ocean of thick black fluid. The dark of Ulu lie above him, and a faint halo of light surrounded the horizon. He tried to lift himself up, but the ocean held fast. *Is this the afterlife? Have I died? This feels too real to be a dream.* Slowly, the fluid turned into hundred hands and began to pull him down. He tried fighting against them, but they held on tighter. He held his breath while sinking into the abyss until he couldn't hold it any longer. *Drowning would be ok. Ending would be ok.* His lungs let go, and he let the dark flow in, permeating his blood, until he couldn't feel anything.
+
+He woke up again, but this time he was suspended above Palinan with the full brightness of Ara behind him. Lif was in a small metal capsule directly in front of him. Thi was screaming trying to tell him something, but he couldn't hear hae.
+
+"Lif!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kip tried to grab Lif right as it swallowed him, but thi was lost in the darkness. Kip kept swimming through the dark, reaching for the next place Lif could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
+
+He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too real. His eyes glanced downward at his body and saw a single luminescent blue line going down his chest. He winced at its suggestion, and dropped his head back down.
+
+"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he so longed for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of his body, even his breathing. He felt detached from his body like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
+
+// HOW DOES SHE KNOW HIS NAME
+"Kip! Get up!" A voice called to him from the other room. It was Setre.
+
+She burst into the room, in full armor and spear, and didn't hesitate to pull Kip up to his feet. He pushed her away and shouted at her, "Get away from me."
+
+She pulled her spear on him, and he swatted it away, "You threaten my life with your spear. But how do you threaten a man who has lost meaning in his life?"
+
+With a flick of the wrist, she sliced through a fatty part of his thigh, making Kip shout out in pain.
+
+"With a spear," she said.
+
+She pulled out a cloth wrapping from her sling bag and threw it at him.
+
+"Bandage yourself up and come back into the main hall. Lissa will speak with you."
+
+"I have nothing to talk with hae about."
+
+"You might not, but thi does."
+
+She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming himself before he went into the next room.
+
+The room was full of hundreds of people. The same people from yesterday, but they were silent now, staring at him like he was some trophy animal. *Why is everyone here? What are they looking at me for?*
