@@ -128,5 +128,7 @@ Lissa began the ceremony, "Welcome, Kipnu. Yesterday you were a slave to the lig
 <!--
 SHIT DO I KILL CAS OR NOT?
 There doesn't seem to be much justification for a sacrificial society, but Lissa is also like batshit psychopathic.
+Sacrifice can be used to control population in times of hunger. There is no hunger here...
+Also used in religion. No religion to speak of...
 -->
 But we all must make sacrifices. If they choose you, they must give up one of their own "
