@@ -15,7 +15,17 @@ Setre led Kip from behind, with the darkness playing the role of both binding an
 
 The fire was a behemoth of heat eating through 10 logs at once. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and machinist were cleverly situated mere steps away, with its own fire stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kip lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
 
-At the far side of the fire a tent stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kip could hear the noises of a nearly a thousand people inside of it. Setre took his shoulder and said, "In here, you stay with me."
+At the far side of the fire a tent stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kip could hear the noises of a nearly a thousand people inside of it.
+
+Setre took his shoulder and said, "In here, you stay close to me."
+
+He nodded. He didn't really have a choice.
+
+Setre glanced into the tent, and then turned her head back to him. "Also, what is your name?"
+
+"Kipnu... why?"
+
+"I need to call you something when I introduce you to... hae."
 
 She flipped the tent cover and they entered a new world of blue light. Everyone had luminescence covering their bodies and wore nothing but this luminescence. Some were singing and clapping songs from the mainland, some were dancing to them, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
 
@@ -31,7 +41,7 @@ Setre whispered something in hae ear, and the maman looked Kip up and down with 
 
 The maman spoke to him with a charming face.
 
-"I'm Lissa. I own this island and all the people on it, including you. If you cooperate with us, all of your fantasies will be fulfilled," thi said with hae voice and thoughts trailing off into some other time and place.
+"Hello Kipnu. My name is Lissa. I own this island and all the people on it, including you. If you do what is asked of you, all of your fantasies will be fulfilled," thi said with hae voice and thoughts trailing off into some other time and place.
 
 "If you choose not to... we have a way to steal all of your fun."
 
@@ -63,7 +73,9 @@ He caught his breath and took another drag. This time it was longer and smoother
 
 The floor became an ocean of linens and he was sinking into them. *All of your fantasies.* This was something he had imagined ma'to ago, to trim away all his inhibitions and bathe in carnal desires with strangers. Such things were taboo in Heiko as a corruption of consciousness, especially to those who were bound. But then, everything had come to feel like a corruption of consciousness. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
 
-The rest faded into the night, hidden forever from the mind as the luckiest of regretful memories are.
+She said, "Never forget... I own you."
+
+The rest faded into the night, hidden forever from the mind where the luckiest of regretful memories live.
 
 ---
 
@@ -79,7 +91,6 @@ He woke up a third time, naked and alone in the small tent he remembered from la
 
 "Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he so longed for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of his body, even his breathing. He felt detached from his body like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
 
-// HOW DOES SHE KNOW HIS NAME
 "Kip! Get up!" A voice called to him from the other room. It was Setre.
 
 She burst into the room, in full armor and spear, and didn't hesitate to pull Kip up to his feet. He pushed her away and shouted at her, "Get away from me."
@@ -100,4 +111,22 @@ She pulled out a cloth wrapping from her sling bag and threw it at him.
 
 She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming himself before he went into the next room.
 
-The room was full of hundreds of people. The same people from yesterday, but they were silent now, staring at him like he was some trophy animal. *Why is everyone here? What are they looking at me for?*
+The room was full of hundreds of people. The same people from yesterday, but they were silent now, staring at him like he was livestock or a trophy or something. *Why is everyone here? What are they looking at me for?*
+
+Lissa sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
+
+"Kip. Approach," Lissa said from across the tent. Setre was behind him, ensuring he didn't turn back.
+
+He turned his head, but kept walking, "Setre, why all the ceremony for me."
+
+"You are healthy. A bit of a rarity in these parts. Keep moving."
+
+Once he had gotten close enough Lissa instructed him to kneel, which he did slowly as it caused him pain in his thigh to do so.
+
+Lissa began the ceremony, "Welcome, Kipnu. Yesterday you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace.
+
+<!--
+SHIT DO I KILL CAS OR NOT?
+There doesn't seem to be much justification for a sacrificial society, but Lissa is also like batshit psychopathic.
+-->
+But we all must make sacrifices. If they choose you, they must give up one of their own "

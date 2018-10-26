@@ -19,7 +19,7 @@ He quickly dug a small trench in the pebbles to insulate them while he used his 
 
 "The fire. We have to get hae to the fire," called a man from the crowd.
 
-"That's at least an arc-minute away," said a woman.
+"That's thousands of paces away," said a woman.
 
 "Well this isn't working," the man responded.
 
@@ -115,25 +115,25 @@ Kip was aghast imagining what this child's life might be like.
 
 "Where are your parents?"
 
-"My nather lives on the mainland. My mother lives here now."
+"My mother lives on the mainland. My nather lives here now."
 
 "Lives here? What do you mean?"
 
-"Hae first sentence was for one ma'to. After hae return, thi just wanted to go back to the shadestead. Now hae sentence is for life."
+"Her first sentence was for one ma'to. After her return, she just wanted to go back to the shadestead. Now her sentence is for life."
 
 "And your father?"
 
-Thi hesitated. "He's the reason my mother is here."
+Thi hesitated. "He's the reason my nather is here."
 
 He understood.
 
-Crouching down to hae level, he asked, "What is your name, kaln?"
+Crouching down to hae level, he asked, "What is your name?"
 
 Thi hesitated again but quickly turned hae attention to something behind Kip. He turned around quickly with his torch held high and caught the nose of a woman, covered with blue luminescent flow tattoos, and a spear in her hand as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip began to run, but between the child and the darkness, he couldn't find his way and tripped on a root after only a few steps. The woman tossed the torch down in front of her and walked toward them, crushing the torch's fire under her bare foot.
 
-She lifted the child up to stand and said, "Taun. Thank you for distracting this one. Run off now to your mother," she said with a peculiar accent.
+She lifted the child up to stand and said, "Thank you for distracting this one. Run off now to your nather," she said with a peculiar accent.
 
-"Yes, nather Setre", Wan said, as he ran to the camp leaving Kip behind.
+"Yes, Setre", Wan said, as he ran to the camp leaving Kip behind.
 
 "As for you... You're a rebellious one. And pretty sexy. We save the best jobs for people like you."
 
