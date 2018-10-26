@@ -89,7 +89,7 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 "Lif!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kip tried to grab Lif right as it swallowed him, but thi was lost in the darkness. Kip kept swimming through the dark, reaching for the next place Lif could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
 
-He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too real. His eyes glanced downward at his body and saw a single luminescent blue line going down his chest. He winced at its suggestion, and dropped his head back down.
+He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too real. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were real. Feeling sick, he dropped his head back down and tried to rest.
 
 "Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he so longed for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of his body, even his breathing. He felt detached from his body like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
 
@@ -111,9 +111,9 @@ She pulled out a cloth wrapping from her sling bag and threw it at him.
 
 "You will do as commanded."
 
-She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming himself before he went into the next room.
+She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming his own existence before he went into the next room.
 
-The room was full of nearly a hundred people. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was something to eat. *Why is everyone here? What are they looking at me for?*
+The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was something to eat. *Why is everyone here? What are they looking at me for?*
 
 Lissa and hae crew sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
 
