@@ -5,3 +5,6 @@
     - He gives in, and looks to redeem himself
   - Lif's struggle is self-confidence, doubt, fear
   - Mel's struggle is anxiety, paranoia, trust
+
+
+- Consider making the interlogue into a separate chapter where Mel is informed of what happened.

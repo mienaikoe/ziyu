@@ -57,8 +57,14 @@ Is a character that starts out bored with life and has lots of dreams and fantas
 ## Plot
 
 ### Background
-
 The Palinians live around a white dwarf, huddled in the last remnants of the universe. Invasive robots are moving in to harvest the intense energy of the white dwarf with a dyson sphere. Palinians become divided on what to do as they are forced to migrate and start a new life closer to the sunward side of the planet.  The robots were created by the progenitors who stripped the planet of its oil and rare earth metals when they left as a way to maintain technology growth so the planet would not undergo climate collapse as it had for every iteration of intelligent life that came before. The robots are detecting that the palinians are thriving despite the lack of oil and rare earths and are aiming to make a temporary ice age to slow their progress as the progenitors requested their AI to do.
+
+### Driver
+the discovery of wireless communication -
+  - Holragi's use of it to build a technologically superior military force.
+  - Kip's discovery that Ziyu and its cousins can communicate wirelessly.
+  - Mel's cracking of amplitude modulation, and the subsequent political issues with Holragi
+  - Lif's discovery of advanced modulation for targeted psychoacoustics.
 
 
 ### Part 1 - Lif
@@ -75,13 +81,13 @@ _Ch_
 Kip is in Ulu. He finds Cas and Wan. They survive the cold. Kip ventures into the forest, gets trapped.  Kip tries to share about the obstruction, but the champion laughs and enslaves him along with the rest of the group.
 
 _Ch_
-Kip is taken to the grand yurt, is drugged and has sex with the leader. He is then branded and sold to Cas.
+Kip is taken to the grand yurt by Setre, is drugged and has sex with the leader and Setre. He is then branded and sold to Cas.
 
 _Ch_
-Cas is benevolent. Has trust issues, but Kip has shown that he is a good man in a bad place by saving her kaln. He shares that Ara is dying, and she shares about the Shayadj that come from the heavens.
+Cas is benevolent. Has trust issues, but Kip has shown that he is a good man in a bad place by saving Lin. He shares that Ara is dying, and thi shares about the Shayadj that come from the heavens.
 
 _Ch_
-Kip and Cas meet the Shayadj (Forest is one big tree that never dies, becomes their religion). The Shayadj live in the canopy above the forest. Lots of fog, lots of wildlife. They installed the coils on the trees and show that it's a way to pickup invisible waves (blows their minds).
+Kip and Lin meet the Shayadj (Forest is one big tree that never dies, becomes their religion). The Shayadj live in the canopy above the forest. Lots of fog, lots of wildlife. They installed the coils on the trees and show that it's a way to pickup invisible waves (blows their minds).
 
 
 ### Part 3 - Mel
