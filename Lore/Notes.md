@@ -8,3 +8,5 @@
 
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
+
+- Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.

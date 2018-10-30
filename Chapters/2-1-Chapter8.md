@@ -129,7 +129,7 @@ He understood.
 
 Crouching down to hae level, he asked, "What is your name?"
 
-Thi hesitated again but quickly turned hae attention to something behind Kip. He turned around quickly with his torch held high and caught the nose of a woman, covered with blue luminescent flow tattoos, and a spear in her hand as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip began to run, but between the child and the darkness, he couldn't find his way and tripped on a root after only a few steps. The woman tossed the torch down in front of her and walked toward them, crushing the torch's fire under her bare foot.
+Thi hesitated again but quickly turned hae attention to something behind Kip. He turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathres and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip began to run, but between the child and the darkness, he couldn't find his way and tripped on a root after only a few steps. The woman tossed the torch down in front of her and walked toward them, crushing the it's fire under her bare foot.
 
 She lifted the child up to stand and said, "Thank you for distracting this one. Run off now to your nather," she said with a peculiar accent.
 

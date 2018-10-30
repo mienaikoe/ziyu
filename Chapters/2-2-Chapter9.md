@@ -105,7 +105,7 @@ With a flick of the wrist, she sliced through a fatty part of his thigh, making 
 
 She pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the grand yurt. Lissa will speak with you."
+"Bandage yourself up and come back into the shadestead. Lissa will speak with you."
 
 "I have nothing to talk with hae about."
 
@@ -121,17 +121,13 @@ Lissa and hae crew sat where he entered the tent yesterday, forcing him to walk 
 
 He turned his head, but kept walking, "Setre, why all this ceremony for me?"
 
-"You are healthy, strong, and smart. A very rare combination for people sent to Ulu. Keep moving."
+"You are healthy, strong, and smart. A rare combination for people sent to Ulu."
 
 As he approached, the people behind him followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly as it caused him pain in his thigh to do so.
 
-Lissa began the ceremony, "Welcome, Kipnu. Yesterday you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace."
+Lissa began the ceremony, "Tribes of Ulu. Yesterday, my ever-faithful knight, Setre, found and claimed the man you see before you."
 
 Kip stood shivering and just wanting to get the ceremony overwith.
-
-"But we all must make sacrifices to have the things we desire. Those who want you must be willing to trade something of their own."
-
-Thi paused again. *Is this an auction?*
 
 "Kipnu. Please tell us who you are."
 
@@ -141,9 +137,13 @@ The crowd filled with murmurs before he was done talking.
 
 "I am bound to Liffa and Melna," he shouted over the crowd, but no one heard him.
 
-Lissa gestured to them to quiet down and addressed the crowd, "Now you know who Kipnu is. Let the bidding begin!"
+Lissa gestured to them to quiet down and addressed Kip directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kip as their guardian must trade something of their own."
 
-"400 Kanosin!"
+Thi paused as if to . *Is this an auction?*
+
+"Let the bidding begin!"
+
+"400 doses!"
 
 "5 slaves!"
 
