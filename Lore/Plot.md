@@ -63,8 +63,8 @@ The Palinians live around a white dwarf, huddled in the last remnants of the uni
 the discovery of wireless communication -
   - Holragi's use of it to build a technologically superior military force.
   - Kip's discovery that Ziyu and its cousins can communicate wirelessly.
-  - Mel's cracking of amplitude modulation, and the subsequent political issues with Holragi
-  - Lif's discovery of advanced modulation for targeted psychoacoustics.
+  - Mel's kidnapping and interrogation from Fajro
+  - Lif's discovery of advanced modulation for
 
 
 ### Part 1 - Lif

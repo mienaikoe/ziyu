@@ -1,20 +1,56 @@
+<!--
 
+this chapter gets really confusing:
+- Casra: Wanted to remain secretive.
+  - Does not bargain with Lissa, as Lissa would just enslave hae.
+  - Might bargain with Setre, if Setre is an old flame.
+- Setre: Wants to maintain her post
+  - Captures Kip for slavery
+    - May or may not be a ploy to save him
+      - An alternate fate would have been Kip getting lost and dying in the forest
+      - Or being enslaved by some other tribe where Setre couldn't help him.
+      - Or being eaten by the birds
+        - Would have to write in some reference to giant silhouettes in the sky.
+  - Does not capture Casra or Linyu
+    - Setre is secretly playing for Casra's new team.
+      - Why doesn't Setre just take him somewhere else then? Why is the shadestead important?
+    - Setre doesn't know Casra is back
+      - Her dialog in ch8 says otherwise
+
+
+
+-->
 
 
 ## CHapter 10
 
 
-A hand fell upon Kip's back - intentionally, not accidentally. He looked up to see his surroundings again and noticed that everyone had gone while he wasn't paying attention.
+A hand fell upon Kip's back - intentionally, not accidentally. He looked up to see the chaos around him, and turned to find who touched him.
 
-"The worst is over," said Casra.
+It was a maman with the same reed clothing and a veil of white. Thi wasn't looking at him or at the crowd, but toward the exit.
+
+"Follow Setre," thi said. He could almost place the voice.
+
+Setre moved around the crowd to where Kip was sitting, and paused for Kip, holding her hand out slightly for him to take it. He had no reason to trust her but was desperate for a way out, so he stood up as much as he could and took her hand. Setre and the veiled figure took him behind Lissa and through the entrance of the shadestead. The second the cloth closed, they took his arms and started running with him in their arms. Kip was shocked and confused for a few seconds, but he
+
+to go back to the fire, and turned left, heading in a way he had never gone.
+
+
+
+
+
+
+
+
+
 
 "Casra? Casra! You made it!"
 
-Kip was ecstatic to hear a familiar voice, even if only an acquaintance. He turned around to see her and the child standing behind him dressed in woven reeds as the others had been dressed. She was holding a folded set of clothing for him.
+Kip was ecstatic to hear a familiar voice, even if only an acquaintance. He turned around to see her and the child standing behind him dressed in woven reeds as the others had been dressed. Thi was holding a folded set of clothing for him.
 
 "You're one of them?" he asked, clearly apprehensive.
 
-She took a step toward him, trying to give him the reed cloth, but he backed away.
+Thi took a step toward him, trying to give him the reed cloth, but he backed away.
 
 "Kipnu... I think I have a lot to explain."
 
@@ -22,7 +58,7 @@ She took a step toward him, trying to give him the reed cloth, but he backed awa
 
 "Please, give me some time to explain," Casra pleaded to him while taking another step forward. He took the clothing apprehensively, and began to dress himself.
 
-She said, "I bid for you and I won. You are now part of my tribe."
+Thi said, "I bid for you and I won. You are now part of my tribe."
 
 "I would thank you but I don't know you well enough to know if that's a good or bad thing."
 
@@ -50,13 +86,21 @@ She said, "I bid for you and I won. You are now part of my tribe."
 
 "Then I guess I should ask why you left."
 
-"I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre argued on my behalf but I knew that it was best for me to leave."
+"I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre fought on my behalf but I knew that it was best for me to leave."
 
-"What became of your tribe?"
+"Setre? Thi was with you?"
 
-"I promised them I would return one day, and they continued on without me. I taught them everything I knew, and they continued the tradition. When I came back to them last night, they were as strong as I had left them."
+"Yes. Before I left, we were... close. But she was frustrated that I wouldn't do anything to stop Lissa. That I had been too weak on hae. I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. When I came back last night, I found her with Lissa's markings and then... we fought. She was going to send us to Lissa until..."
+
+"...until you told her about me."
+
+"I'm sorry, Kip. It was the only way to protect ourselves."
 
 ""
+
+
+
+
 
 
 

@@ -99,7 +99,7 @@ She burst into the room, in full armor and spear, and didn't hesitate to pull Ki
 
 She pulled her spear on him, and he swatted it away, "You threaten my life with your spear. But how do you threaten a man who has lost meaning in his life?"
 
-With a flick of the wrist, she sliced through a fatty part of his thigh, making Kip shout out in pain.
+With a flick of the wrist, she sliced through a fatty part of his side, making Kip shout out in pain.
 
 "With a spear," she said.
 
@@ -113,7 +113,7 @@ She pulled out a cloth wrapping from her sling bag and threw it at him.
 
 She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming his own existence before he went into the next room.
 
-The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was something to eat. *Why is everyone here? What are they looking at me for?*
+The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was their prize animal. *Why is everyone here? What are they looking at me for?*
 
 Lissa and hae crew sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
 
@@ -123,7 +123,7 @@ He turned his head, but kept walking, "Setre, why all this ceremony for me?"
 
 "You are healthy, strong, and smart. A rare combination for people sent to Ulu."
 
-As he approached, the people behind him followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly as it caused him pain in his thigh to do so.
+As he approached, the people behind him followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly as it caused him pain in his side to do so.
 
 Lissa began the ceremony, "Tribes of Ulu. Yesterday, my ever-faithful knight, Setre, found and claimed the man you see before you."
 

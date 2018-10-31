@@ -25,9 +25,9 @@ He quickly dug a small trench in the pebbles to insulate them while he used his 
 
 Kip butted in, "It will take too long to get there. Thi'll be dead by the time we start running."
 
-The crowd paused, and then a maman spoke up, "Everyone gather kindling from the forest. We'll start a fire here."
+The crowd paused in thought, and then a maman spoke up, "Everyone gather kindling from the forest. We'll start a fire here."
 
-Those who were able sprung into action while the woman rushed over to Kip, still pushing on the child's hearts.
+Those who were able sprung into action while the maman rushed over to Kip who was still pushing on the child's hearts.
 
 Thi said, "I'm Casra, a doctor from Shaki. I can take over if you're tired."
 
@@ -87,7 +87,7 @@ He nodded and gently laid the child into Casra's arms before leaning over and fa
 
 ---
 
-Kip woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. He rolled over to see Casra asleep behind him and the child, still breathing. *What time of day is it? Can hardly tell in the eternal twilight here*. But his belly grumbled and told him it had been at least a va'la. *We aren't going to survive out here long unless we find a food source*. He sat up and searched the fire for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. The darkness was something he had anticipated, but he had never planned for the difficulties of surviving in the wild. The stories of the Shadestead had always painted to him a picture of a large prison, not a lawless forest island. But now wasn't the time to be frustrated about the past; he carried the light into the towering forest, determined to uncover its mysteries and secure nourishment for his new group.
+Kip woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. *What time of day is it? Can hardly tell in the eternal twilight here*. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his cold and aching back to an upright position, and then noticed that Casra and the child were gone. *Where would they have run off to in this darkness? I need to find them.* He moved to the fire and searched for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. The darkness was something he had anticipated, but he had never planned for the difficulties of surviving in the wild. The stories of the Shadestead had always painted to him a picture of a large prison, not a lawless forest island. But now wasn't the time to be frustrated about the past; he carried the light into the towering forest, determined to uncover its mysteries and secure nourishment for his new group.
 
 The forest floor was covered with dried thin leaves and branches that had fallen from the canopy. Kip listened closely for signs of life as he tried his best to quiet his crunching underfoot. This was not a place for Throngia. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only tree roots and compacted leaves appeared.
 
@@ -109,13 +109,13 @@ He turned around to find the child following his footsteps.
 
 "How do you know all this?"
 
-"I've been here three times."
+"This isn't my first time here."
 
 Kip was aghast imagining what this child's life might be like.
 
 "Where are your parents?"
 
-"My mother lives on the mainland. My nather lives here now."
+"My nather lives on the mainland. My mother lives here now."
 
 "Lives here? What do you mean?"
 
