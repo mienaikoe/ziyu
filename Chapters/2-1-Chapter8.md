@@ -93,7 +93,7 @@ The forest floor was covered with dried thin leaves and branches that had fallen
 
 "There was a bonfire when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His memory of where the fire was foggy but he set out in the direction of Ulu, where he presumed the center of the island to be.
 
-He came to a small clearing in the trees where he noticed specific markings at the base of a very large branch. They were thin rings of copper running around the branches, oxidized by salt water in the air. Their bends and cruves resembled some sort of language that wasn't based on anything Throngian. He stopped to study them, running his hands and fingers against the wires. In the silence and intense concentration, he started to hear a faint static ticking noise as if it were coming from inside his head.
+He came to a small clearing in the trees where he noticed a peculiar wrapping around it. They were thin rings of copper running around the trunk, oxidized to a sea green patina by salt water in the air. They looked to be for some strange tool that he couldn't quite understand. He stopped to study them, running his hands and fingers against the wires and in the silence he imagined what it could have been used for.
 
 "Are you lost?" A voice suddenly called out.
 
@@ -119,26 +119,14 @@ Kip was aghast imagining what this child's life might be like.
 
 "Lives here? What do you mean?"
 
-"Her first sentence was for one ma'to. After her return, she just wanted to go back to the shadestead. Now her sentence is for life."
+Thi hesitated, and then suddenly looked up and went wide-eyed. Kip turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip and the child began to run, but Kip struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kip grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kip's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kip. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
 
-"And your father?"
+She grabbed him by the shirt and demanded, "What do you know of Linyu?!"
 
-Thi hesitated. "He's the reason my nather is here."
+Kip remained silent in shock. The luminescent ink in her skin was reflecting off of Kip's terrified face and illuminating her own. Kip tried to wrestle free, but Setre drew her spear close to his neck.
 
-He understood.
+"Running is futile. Trust me, nobody here wants you dead."
 
-Crouching down to hae level, he asked, "What is your name?"
+She leaned in closer to his face and smirked at him.
 
-Thi hesitated again but quickly turned hae attention to something behind Kip. He turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathres and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip began to run, but between the child and the darkness, he couldn't find his way and tripped on a root after only a few steps. The woman tossed the torch down in front of her and walked toward them, crushing the it's fire under her bare foot.
-
-She lifted the child up to stand and said, "Thank you for distracting this one. Run off now to your nather," she said with a peculiar accent.
-
-"Yes, Setre", thi said, before running to the camp leaving Kip behind.
-
-"As for you... You're a rebellious one. And pretty sexy. We save the best jobs for people like you."
-
-Kip tried to stand up, but Setre drew her spear at him and shouted, "Running is futile. Trust me, nobody here wants you dead."
-
-She pulled Kip up by the shirt like he was nothing more than a tree branch and looked him in the eye. The luminescent ink in her skin was reflecting off of Kip's terrified face and illuminating her own.
-
-"They like their prey alive."
+"They like their slaves alive."
