@@ -1,28 +1,6 @@
-<!--
-
-this chapter gets really confusing:
-- Casra: Wanted to remain secretive.
-  - Does not bargain with Lissa, as Lissa would just enslave hae.
-  - Might bargain with Setre, if Setre is an old flame.
-- Setre: Wants to maintain her post
-  - Captures Kip for slavery
-    - May or may not be a ploy to save him
-      - An alternate fate would have been Kip getting lost and dying in the forest
-      - Or being enslaved by some other tribe where Setre couldn't help him.
-      - Or being eaten by the birds
-        - Would have to write in some reference to giant silhouettes in the sky.
-  - Does not capture Casra or Linyu
-    - Setre is secretly playing for Casra's new team.
-      - Why doesn't Setre just take him somewhere else then? Why is the shadestead important?
-    - Setre doesn't know Casra is back
-      - Her dialog in ch8 says otherwise
-        - Change the dialog to not include Linyu or Casra. Setre will run after Kip and Cas and then will have to make a judgment call whether to protect them or herself. Decides to protect them by pretending she didn't see them
-        - Okay done.
-
--->
 
 
-## CHapter 10
+## Chapter 10
 
 
 A hand fell upon Kip's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same reed clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
@@ -51,17 +29,17 @@ They walked no more than 50 paces before coming to the base of a massive tree th
 
 "Linyu, would you fix our guest a bowl?"
 
-"Hi Kipnu!"
+"Hi Kipnu. Thank you for saving me."
 
-"Hey... So when you were saying that your mother lives here –"
+"Hey there... So when you were saying that your mother lives here –"
 
-"I was protecting her identity."
+"I was protecting hae identity."
 
 Kip nodded, apprehensive, but glad he finally understood what was going on.
 
 Casra started, "Kipnu, I believe I have a lot to explain. This is my kaln, Linyu. We were sent here together yesterday, on your boat, but we used to live here for many ma'to before."
 
-Linyu handed Kip a bowl of some sort of fish stew, and he eagerly took it and started eating without pause.
+Linyu handed Kip a square reed bowl of some sort of fish stew, and he eagerly took it and started eating without pause. Linyu was surprised and awkwardly took a seat next to his mother.
 
 In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
@@ -89,15 +67,108 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "It's hard to miss."
 
-"Those coils are picking up some sort of signal in the tree. I don't know what it is, but you can clearly hear a pattern. I think it has something to do with the Shayadj."
+"Those coils are picking up some sort of signal in the tree. I don't know what it is, but you can clearly hear a pattern."
 
-"The what?"
+"Maybe its..."
 
-"Back in the shadestead, we used to hunt giant birds that we named Shayadj for food and bone tools. Nearly all of the ones we found are wounded."
+"Maybe it's what?" Thi asked eagerly.
 
-"So where do they come from?"
+"Ara. It's being blocked by... something."
 
-"Exactly."
+"And you know this... how?"
 
-<!-- Setre butts in -->
-<!-- Add portion to ch8 about Shayadj silhouettes -->
+"My wife is the senator for Heiko. The observers at Heiko found something anomalous object in space that's been blocking Ara and is growing in size. They predict an ice age in 60 days."
+
+"WHAT?!"
+
+"I know this sounds outlandish, and I wish I was kidding. But our observers are rarely wrong, and we've already seen the beginnings of a cold snap."
+
+Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age meant, but not quite old enough to know how to handle that knowledge.
+
+"I'm sorry... I may have said too much."
+
+Casra looked down at Linyu, and leaned in to hug hae. Thi looked back at Kip and said, "It's fine. It's better to face reality prepared, than to live in willful ignorance."
+
+Kip nodded, and put down his now-empty bowl. "Wise words from a kind Maman. Thank you for the meal. It is very much appreciated."
+
+"You saved my kaln. It's the least I could do."
+
+He moved to the stew pot to set his bowl down where theirs had been, and noticed a faint sound of rustling leaves coming from the chimney.
+
+"Someone's here," he whispered.
+
+Casra hurried Linyu over to their hay bed in the corner of the room, and pulled out two steel-tipped poles from under it, tossing one to Kip.
+
+"I'll go first and check how many we're dealing with," thi said.
+
+Kip watched as Cas went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu cowering in the corner under a blanket.
+
+"Stay here," Casra commanded Kip. Thi went up through the door, and Kip went up the ladder to watch and listen for the first sign of trouble.
+
+The figure in the dark was unmistakable - Setre was here.
+
+"Cas, I thought I'd find you here" She called to hae.
+
+"Are you holding Kipnu here? Don't lie to me. I'll find out sooner or later."
+
+"So what if I am?"
+
+"If you care about your life, you will hand him over."
+
+"I will not. I am rebuilding what you destroyed."
+
+"So now, you've come to save us all. You have no idea what happened in the 5 la'to you were gone. You destroyed it all on your own."
+
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. You could have ousted Lissa and brought justice to the Shadestead. Instead you let it go back to being a cesspool of addiction."
+
+"You let your jealousy cloud your words, Casra. You never could clear your head."
+
+"Fine then - craft your excuses. Tell me what happened."
+
+"Lissa has an army of spies set up in every tribe, plotting and scheming to bring them down from the inside out. Nobody knows who might be one, so nobody trusts each other. Thi's kicked all of the other tribes out of the shadestead and has killed people in hae own tribe that thi suspects to be spies."
+
+"You accused me of inaction all those years ago. Why didn't you take action to stop it?"
+
+"How do you stop an army you can't see?"
+
+"By building a resistance that can."
+
+Setre stopped, considering the idea, but then shook it off.
+
+"Nonsense," she said, "Lissa would be ahead at every step."
+
+"We have to be more invisible. More-"
+
+"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Lissa. Thi would have given me my own tribe to for your neck."
+
+"And yet you are here alone, your spear dry and your speech soft."
+
+Kip had never seen such a formidable spirit. In the face of capture Cas retained every thread of hae conviction.
+
+Setre removed her spear and held it to Cas's neck. Thi didn't flinch as they both stared each other down.
+
+"You're coming with me," She said in a broken voice, pushing Casra back on the pathway to the shadestead.
+
+Kip leapt up and forward to get through the door and run after them. Linyu wasn't far behind.
+
+Kip called out, "Stop Setre, it's over."
+
+She turned to face him. "I knew you'd come out of your hole sooner or later."
+
+
+
+<!-- Haven't decided on this ending -->
+
+Linyu ran to hae mother, refusing to let hae go while Setre did nothing to stop them.
+
+Casra picked hae up and wore the crying kaln around hae neck.
+
+"Lin...Mom's going away for a bit. You have to be strong now. Teach Kip everything we went over before, and don't leave his side."
+
+Thi turned to Kip and said, "Kip...This is how it must be. This is how I change the Shadestead for good. Learn from my kaln and stop this ice age you speak of."
+
+He pleaded to hae, "The future is lost "
+
+"Stopping the ice age won't matter if we continue to live in ignorance."
+
+Thi set Linyu down and bid hae to run off to Kip. Linyu stood still, unwilling to accept that hae mother was gone.

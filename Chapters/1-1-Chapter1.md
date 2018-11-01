@@ -17,16 +17,10 @@
 
   "I'll be there in a bit."
 
-  She stared at me for a moment - I assume to size up my strange behavior, and then turned to walk back home.
-
-  She reassured me, "I feel it too. There's a chill in the air."
-
-  I felt no comfort.
-
+  She stared at me for a moment - I assume to size up my strange behavior, and then turned to walk back home. She reassured me, "I feel it too. There's a chill in the air."
 
 
 *************
-
 
 
   Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
