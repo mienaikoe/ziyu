@@ -100,3 +100,4 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 "Exactly."
 
 <!-- Setre butts in -->
+<!-- Add portion to ch8 about Shayadj silhouettes -->
