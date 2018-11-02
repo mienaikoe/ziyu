@@ -102,7 +102,7 @@
     To:   Dr. Melna Colyun, Senator to Heiko
     From: Dr. Yanel Rinmet, Observer at Heiko Observatory
 
-    I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction. It is difficult to estimate size, but it is covering the entire span of view we have with Ara, and likely more. It is unlikely to be a natural phenomenon as the obstruction seems to be growing outward from centers that are evenly-spaced.
+    I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. It is difficult to estimate size, but it is covering the entire span of view we have with Ara, and likely more. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are automatically correcting themselves to be evenly-spaced.
 
     [Drawing of observation]
 

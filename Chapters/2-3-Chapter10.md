@@ -77,7 +77,7 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "And you know this... how?"
 
-"My wife is the senator for Heiko. The observers at Heiko found something anomalous object in space that's been blocking Ara and is growing in size. They predict an ice age in 60 days."
+"My wife is the senator for Heiko. The observers at Heiko found some anomalous objects in space that have been blocking Ara and are growing in number. They predict an ice age in 60 days."
 
 "WHAT?!"
 
@@ -107,9 +107,7 @@ Kip watched as Cas went up the ladder and cracked the door to peer through. From
 
 The figure in the dark was unmistakable - Setre was here.
 
-"Cas, I thought I'd find you here" She called to hae.
-
-"Are you holding Kipnu here? Don't lie to me. I'll find out sooner or later."
+"Cas, I thought I'd find you here," she said. "Are you holding Kipnu here? Don't lie to me. I'll find out sooner or later."
 
 "So what if I am?"
 
@@ -117,13 +115,13 @@ The figure in the dark was unmistakable - Setre was here.
 
 "I will not. I am rebuilding what you destroyed."
 
-"So now, you've come to save us all. You have no idea what happened in the 5 la'to you were gone. You destroyed it all on your own."
+"So you've come to save us all then? You have no idea what happened in the all the la'to you were gone. You destroyed it all on your own."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. You could have ousted Lissa and brought justice to the Shadestead. Instead you let it go back to being a cesspool of addiction."
+"Set... When I left, you had such conviction and even more strength than I had. You knew everything I knew. You could have ousted Lissa and brought justice to the Shadestead. Instead you let it go back to being a cesspool of addiction."
 
-"You let your jealousy cloud your words, Casra. You never could clear your head."
+"Your jealousy clouds your words!"
 
-"Fine then - craft your excuses. Tell me what happened."
+"Fine - craft your excuses. Tell me what happened."
 
 "Lissa has an army of spies set up in every tribe, plotting and scheming to bring them down from the inside out. Nobody knows who might be one, so nobody trusts each other. Thi's kicked all of the other tribes out of the shadestead and has killed people in hae own tribe that thi suspects to be spies."
 
@@ -139,7 +137,7 @@ Setre stopped, considering the idea, but then shook it off.
 
 "We have to be more invisible. More-"
 
-"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Lissa. Thi would have given me my own tribe to for your neck."
+"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Lissa. Thi would give me my own tribe for your neck."
 
 "And yet you are here alone, your spear dry and your speech soft."
 
@@ -151,24 +149,20 @@ Setre removed her spear and held it to Cas's neck. Thi didn't flinch as they bot
 
 Kip leapt up and forward to get through the door and run after them. Linyu wasn't far behind.
 
-Kip called out, "Stop Setre, it's over."
+He called out, "Stop!"
 
-She turned to face him. "I knew you'd come out of your hole sooner or later."
+Setre turned to face him. "Kipnu, don't try to stop us."
 
+She didn't move a muscle as Linyu ran straight to hae mother. Casra picked hae up and took the crying kaln around hae neck.
 
+"Lin...Mom's going away for a bit," thi tried to console Linyu.
 
-<!-- Haven't decided on this ending -->
+"You have to be strong now. Ulu is dangeorus place. Teach Kip everything we went over before, and don't leave his side. He needs you."
 
-Linyu ran to hae mother, refusing to let hae go while Setre did nothing to stop them.
+Thi turned to Kip and said, "Kip...This is how it must be. This is how we change the Shadestead for good. Learn from my kaln and stop this ice age you speak of."
 
-Casra picked hae up and wore the crying kaln around hae neck.
+He pleaded to hae, "This is what you want?"
 
-"Lin...Mom's going away for a bit. You have to be strong now. Teach Kip everything we went over before, and don't leave his side."
+"This is so much bigger than me," thi replied.
 
-Thi turned to Kip and said, "Kip...This is how it must be. This is how I change the Shadestead for good. Learn from my kaln and stop this ice age you speak of."
-
-He pleaded to hae, "The future is lost "
-
-"Stopping the ice age won't matter if we continue to live in ignorance."
-
-Thi set Linyu down and bid hae to run off to Kip. Linyu stood still, unwilling to accept that hae mother was gone.
+Casra set hae kaln down and bid hae run off to Kip, but Linyu stood still, unwilling to accept that hae mother was leaving. Kip's heart was full of rage at Casra's fate and he willed to do all in his power to save Cas while he was here.
