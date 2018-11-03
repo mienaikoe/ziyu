@@ -93,7 +93,7 @@ Kip nodded, and put down his now-empty bowl. "Wise words from a kind Maman. Than
 
 "You saved my kaln. It's the least I could do."
 
-He moved to the stew pot to set his bowl down where theirs had been, and noticed a faint sound of rustling leaves coming from the chimney.
+He moved to the stew pot to set his bowl down where theirs had been. With his ear close to the chimney, he noticed a faint sound of rustling leaves coming from the surface.
 
 "Someone's here," he whispered.
 
