@@ -63,6 +63,32 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "So everything you came back for is gone."
 
+"My people are still here. Drugged and enslaved. I can't go back to who I was under Ara. This is where I belong - in the dark, in the cold, making a home for the forgotten."
+
+"That's quite noble of you," Kip said.
+
+"And there's something else. I'm sure you saw the big coil around the tree you were hiding behind."
+
+"It's hard to miss."
+
+"Set is from Holragi, and she told me that they have these coils all over the trees there. She wanted me to figure out what they're for."
+
+Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi in all of the chaos. "Did you figure it out?"
+
+"I did. I tried different size coils and attached different things to the ends of the coil until I got something to work. I think they're some sort of listening device."
+
+"Listening? To what?"
+
+"I'm not sure, but there seem to be strange signals in the air. Holragi must know all about them by now if Set grew up with them."
+
+"Why can't we hear them?"
+
+"I don't know, but they must be electrical because-"
+
+"I want to hear them. Take me."
+
+
+<!--
 "There's something else. I'm sure you saw the big coil around the tree you were hiding behind."
 
 "It's hard to miss."
@@ -88,48 +114,77 @@ Kip noticed Linyu's face, turning more worried with the second. Thi was old enou
 "I'm sorry... I may have said too much."
 
 Casra looked down at Linyu, and leaned in to hug hae. Thi looked back at Kip and said, "It's fine. It's better to face reality prepared, than to live in willful ignorance."
+-->
 
-Kip nodded, and put down his now-empty bowl. "Wise words from a kind Maman. Thank you for the meal. It is very much appreciated."
 
-"You saved my kaln. It's the least I could do."
 
-He moved to the stew pot to set his bowl down where theirs had been. With his ear close to the chimney, he noticed a faint sound of rustling leaves coming from the surface.
+
+
+He rushed over to the stew pot to set his bowl down where theirs had been. He turned to go back out but a faint sound of rustling leaves echoing through the chimney perked his ears up. He motioned to them to stay quiet and they all listened as the footsteps approached their dug-in shelter.
 
 "Someone's here," he whispered.
 
 Casra hurried Linyu over to their hay bed in the corner of the room, and pulled out two steel-tipped poles from under it, tossing one to Kip.
 
-"I'll go first and check how many we're dealing with," thi said.
+"I'll go first," thi said.
 
 Kip watched as Cas went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu cowering in the corner under a blanket.
 
-"Stay here," Casra commanded Kip. Thi went up through the door, and Kip went up the ladder to watch and listen for the first sign of trouble.
+"Stay here," Casra commanded Kip. Thi went up through the door, and Kip went up the ladder to watch and listen.
 
-The figure in the dark was unmistakable - Setre was here.
+The figure in the dark had an unmistakable spear - Setre was here.
 
-"Cas, I thought I'd find you here," she said. "Are you holding Kipnu here? Don't lie to me. I'll find out sooner or later."
+"Cas. You're back.", she said. "Are you holding Kipnu here? Don't lie to me."
 
 "So what if I am?"
 
-"If you care about your life, you will hand him over."
+"I captured him. He is property of Lissa's tribe, you know this."
 
-"I will not. I am rebuilding what you destroyed."
+"People cannot be property. Set, who have you become?"
 
-"So you've come to save us all then? You have no idea what happened in the all the la'to you were gone. You destroyed it all on your own."
+"I'm not your right-hand knight anymore. You have no idea what happened in the all the la'to you were gone. We all had to grow stronger because of your weakness."
 
-"Set... When I left, you had such conviction and even more strength than I had. You knew everything I knew. You could have ousted Lissa and brought justice to the Shadestead. Instead you let it go back to being a cesspool of addiction."
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the shadestead reformed, but now it's gone back to being a cesspool of addiction."
 
-"Your jealousy clouds your words!"
+"We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, this is who I am now."
 
-"Fine - craft your excuses. Tell me what happened."
+Casra paused to calm haeself. "Tell me what happened."
 
-"Lissa has an army of spies set up in every tribe, plotting and scheming to bring them down from the inside out. Nobody knows who might be one, so nobody trusts each other. Thi's kicked all of the other tribes out of the shadestead and has killed people in hae own tribe that thi suspects to be spies."
+"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the shadestead and killed people in hae own tribe that thi suspected of espionage."
 
-"You accused me of inaction all those years ago. Why didn't you take action to stop it?"
+"Why didn't you take action to stop it?"
 
 "How do you stop an army you can't see?"
 
-"By building a resistance that can."
+They both looked at each other, at a loss. Kip could see Casra's longing stare in the blue gleam of Setre's skin.
+
+"Set... I'm sorry."
+
+"Don't be sorry, Cas," she said, "If I were anyone else, you would be sold to Lissa by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
+
+Setre looked toward the entrance to the safehouse and called, "Kip!"
+
+He went up the ladder and walked out to meet them.
+
+She looked him up and down and said, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Cas."
+
+He looked at her in a different light now. His fear for her had been mostly replaced with reverence, though the little bits of it had lingered in an animalistic sense of survival.
+
+"Setre...how will you-"
+
+She put her hand over his mouth saying, "Don't worry about me," and turned to Casra. They stared at each other for several seconds, desire in their eyes for things to go back to the way they were before. But this was now, not then. Setre turned to walk back the way she came.
+
+Casra called out to her, "The wind speaks!"
+
+Setre responded, "The tree listens!"
+
+And they looked on as the forest swallowed her cursed blue light, a memory of Ara wandering in the darkness.
+
+
+<!--
+
+
+"What if we built a counter resistance. A silent "
 
 Setre stopped, considering the idea, but then shook it off.
 
@@ -145,13 +200,16 @@ Kip had never seen such a formidable spirit. In the face of capture Cas retained
 
 Setre removed her spear and held it to Cas's neck. Thi didn't flinch as they both stared each other down.
 
+
+
+
 "You're coming with me," She said in a broken voice, pushing Casra back on the pathway to the shadestead.
 
 Kip leapt up and forward to get through the door and run after them. Linyu wasn't far behind.
 
 He called out, "Stop!"
 
-Setre turned to face him. "Kipnu, don't try to stop us."
+Setre turned to face him. "Kip, don't try to stop us."
 
 She didn't move a muscle as Linyu ran straight to hae mother. Casra picked hae up and took the crying kaln around hae neck.
 
@@ -163,6 +221,7 @@ Casra turned to Kip and said, "Kip...This is how it must be. This is how we chan
 
 He pleaded to hae, "This is what you want? To give up?"
 
-"This is much bigger than who I am," thi replied.
+"I'm not giving up. ," thi replied.
 
 Casra set hae kaln down and bid hae run off to Kip, but Linyu stood still, unwilling to accept that hae mother was leaving. Kip's heart was full of rage at Casra's fate and he willed to do all in his power to save Cas while he was here.
+-->

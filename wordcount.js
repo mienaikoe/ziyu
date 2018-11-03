@@ -1,11 +1,13 @@
 const fs = require('fs');
 const wordcount = require('wordcount');
 
+const COMMENT_REGEX = /<!--[\S\s]*?-->/g
 
 var total = 0;
 
 function countWords( filename ){
   var file = fs.readFileSync("Chapters/" + filename, "utf8");
+  file = file.replace(COMMENT_REGEX,"");
   var count = wordcount(file);
   total += count;
   let tabs = "\t";
