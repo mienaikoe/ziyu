@@ -159,10 +159,10 @@ She didn't move a muscle as Linyu ran straight to hae mother. Casra picked hae u
 
 "You have to be strong now. Ulu is dangeorus place. Teach Kip everything we went over before, and don't leave his side. He needs you."
 
-Thi turned to Kip and said, "Kip...This is how it must be. This is how we change the Shadestead for good. Learn from my kaln and stop this ice age you speak of."
+Casra turned to Kip and said, "Kip...This is how it must be. This is how we change the Shadestead for good. Learn from my kaln and stop the cold you speak of."
 
-He pleaded to hae, "This is what you want?"
+He pleaded to hae, "This is what you want? To give up?"
 
-"This is so much bigger than me," thi replied.
+"This is much bigger than who I am," thi replied.
 
 Casra set hae kaln down and bid hae run off to Kip, but Linyu stood still, unwilling to accept that hae mother was leaving. Kip's heart was full of rage at Casra's fate and he willed to do all in his power to save Cas while he was here.

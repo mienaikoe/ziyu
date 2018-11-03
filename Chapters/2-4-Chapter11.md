@@ -1,7 +1,4 @@
-
-
 <!-- Haven't decided on this ending
-
   - Cas resigns to be captured in an attempt to be martyred
     - Kip and Lin try to stop hae
       - Set and Cas plan on the way back to the shadestead
@@ -15,5 +12,10 @@
         - Kip understands more radio tech, starts hearing more Holragi broadcasts about the space rail. Stays up for hours listening and starts recording clues.
       ch12
         - Resistance grows to critical mass. They storm the shadestead. Lissa says a key word, and they kill Lissa while she kills Casra. Setre, Lin, and Kip mourn. His term served, he goes back to Shaki to bring Radio to Mel.
-
 -->
+
+
+## Ch11
+
+
+  "Lin," said Kip. Lin wouldn't take hae eyes off of the path to the Shadestead.
