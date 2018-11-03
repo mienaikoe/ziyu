@@ -164,9 +164,11 @@ They both looked at each other, at a loss. Kip could see Casra's longing stare i
 
 Setre looked toward the entrance to the safehouse and called, "Kip!"
 
-He went up the ladder and walked out to meet them.
+He went up the ladder and walked out to meet them, with Linyu not far behind. The kaln ran to Setre and gave her a leg-hug, which she stopped down to return after some hesitation.
 
-She looked him up and down and said, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Cas."
+Kip leaned to Casra and asked, "Setre... is she the nather?". Thi confirmed with a nod.
+
+Setre lifted herself back up and said to Kip, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Cas."
 
 He looked at her in a different light now. His fear for her had been mostly replaced with reverence, though the little bits of it had lingered in an animalistic sense of survival.
 
@@ -176,7 +178,7 @@ She put her hand over his mouth saying, "Don't worry about me," and turned to Ca
 
 Casra called out to her, "The wind speaks!"
 
-Setre responded, "The tree listens!"
+Setre responded, "The circle listens!"
 
 And they looked on as the forest swallowed her cursed blue light, a memory of Ara wandering in the darkness.
 

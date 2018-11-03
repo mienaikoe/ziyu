@@ -115,11 +115,11 @@ Kip was aghast imagining what this child's life might be like.
 
 "Where are your parents?"
 
-"My nather lives on the mainland. My mother lives here now."
+"My father lives on the mainland. My nather lives here, and my mother..."
 
 "Lives here? What do you mean?"
 
-Thi hesitated, and then suddenly looked up and went wide-eyed. Kip turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip and the child began to run, but Kip struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kip grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kip's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kip. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
+Kip was confused, but then noticed that the kaln had been staring wide-eyed at something behind him. Kip turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip and the child began to run, but Kip struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kip grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kip's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kip. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
 
 She grabbed him by the shirt and demanded, "What do you know of Linyu?!"
 

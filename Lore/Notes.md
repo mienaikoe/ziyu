@@ -36,4 +36,3 @@ End
         - Readers would hate humanity for kicking the can down the road
       - Deliver the message in the next book
         - This would be like mass effect
--->
