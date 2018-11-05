@@ -59,7 +59,7 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "Setre? Thi was with you?"
 
-"Yes. Before I left, we were... close. Very close... But she was frustrated that I wouldn't do anything to stop Lissa. That I had been too weak on hae. I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. When I heard from Linyu that she had Lissa's markings and had captured you, I knew that the tribe had disbanded."
+"Yes. she had been a child slave in Holragi, a miner for poisonous sulfate minerals. When she was still a child, she escaped from slavery but could never find a place to call home in Shaki. When she was sent to the Shadestead, she discovered that she was very good at protecting herself and so she decided to protect me. Before I left, we were... close. Very close... But she was frustrated that I wouldn't do anything to stop Lissa. That I had been too weak on hae. I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. When I heard from Linyu that she had Lissa's markings and had captured you, I knew that the tribe had disbanded."
 
 "So everything you came back for is gone."
 

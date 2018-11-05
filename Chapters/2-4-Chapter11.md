@@ -101,6 +101,10 @@
 
   "Yes. Setre climbed this tree a few La'to ago to mount a casting wire to the top. It was a dangerous job, but hardly the most dangerous thing she's ever done."
 
-  "What was all of this for, Casra? What were you planning to do?"
+  "What was all of this for, Casra? What were you planning to do before you left?"
 
-  
+  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was a way to let everyone from Ara know they would have a home here under Ulu. Setre, on the other hand, believed that Holragi had malicious plans and so she wanted to recruit spies that used radio to figure out Holragi's intentions."
+
+  "What sorts of plans?"
+
+  ""
