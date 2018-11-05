@@ -11,7 +11,7 @@ A hand fell upon Kip's back and stayed there - intentional, not accidental. He l
 
 The forest was darker here, but he found that somehow he could see better than yesterday. Perhaps it was the light from the blue line he had been marked with, or his eyes adjusting to an eternal nighttime. It was still quite difficult to look for fallen trees in a forest of gigantic trees that block a great deal of view in any direction. He made a point to listen more intently for places where the light breeze would whistle across the bark. Maybe a fallen tree would likely sound a bit different, he thought.
 
-He came across another tree with a coil around its base. This time, the coil was polished and covered in sap, presumably from the tree it was wrapped around, and the ends were almost touching. *The veiled person must have put these around. Who is thi?*
+He came across another tree with a coil around its base. This time, the coil was polished and covered in sap, presumably from the tree it was wrapped around, and again one of the ends climbed the tree. *That veiled maman must have put these around. Who is thi?*
 
 Behind him, Kip heard quiet and quick footsteps approaching. He ducked behind a tree and waited for the footsteps to approach before he decided his next move.
 
@@ -75,7 +75,7 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi in all of the chaos. "Did you figure it out?"
 
-"I did. I tried different size coils and attached different things to the ends of the coil until I got something to work. I think they're some sort of listening device."
+"I did. I tried different size coils and attached different things to the ends of it until I got something to work. I think they're some sort of listening device."
 
 "Listening? To what?"
 
@@ -180,7 +180,7 @@ Casra called out to her, "The wind speaks!"
 
 Setre responded, "The circle listens!"
 
-And they looked on as the forest swallowed her cursed blue light, a memory of Ara wandering in the darkness.
+They looked on as the forest swallowed her cursed blue light, a living memory of Ara wandering in the darkness.
 
 
 <!--
