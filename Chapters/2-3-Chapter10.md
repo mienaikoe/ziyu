@@ -79,9 +79,9 @@ Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi
 
 "Listening? To what?"
 
-"I'm not sure, but there seem to be strange signals in the air. Holragi must know all about them by now if Set grew up with them."
+"Signals in the air? Ghosts? Whoever decides to transmit what they hear. I just learned how to do it before I left the Shadestead, but Holragi must know all about them by now if Set grew up with them."
 
-"Why can't we hear them?"
+"So you're saying people from Holragi can just talk to each other over vast distances with nobody butting in? Why can't we hear them?"
 
 "I don't know, but they must be electrical because-"
 
