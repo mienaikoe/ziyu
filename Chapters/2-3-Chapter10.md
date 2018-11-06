@@ -71,7 +71,7 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "It's hard to miss."
 
-"Set is from Holragi, and she told me that they have these coils all over the trees there. She wanted me to figure out what they're for."
+"Set is from Holragi, and she told me that they have these coils on some of the trees there. She wanted me to figure out what they're for."
 
 Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi in all of the chaos. "Did you figure it out?"
 

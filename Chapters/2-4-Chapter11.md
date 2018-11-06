@@ -30,19 +30,25 @@
 ## Ch11
 
 
-  "Lin, fetch your radio and a listener," Casra requested.
+  "Lin, fetch a listener and some bluekelp," Casra requested.
 
   Kip was surprised, "What are we doing now?"
 
-  "You wanted to learn about the coils right? If we're to change anything in the Shadestead, you're going to have to learn how to use it."
+  "You wanted to learn about the coils right? If we're to change anything in the Shadestead, you're going to have to learn how to use them."
 
   "I don't follow," he said, perplexed.
 
   "You'll see."
 
-  The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel...Which big-headed jerks are you entertaining today?*
+  The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel... What ire does your day bring? Will you take me back?*
 
-  Linyu emerged with a wooden box no longer than hae forearm, and a small wooden disc with a hole in the middle. They looked plain and rather ordinary - not the huge metal monstrosities he had imagined them to be. Thi handed the box and disc to Kip and then went to hae mother to help hae with the large coil. Near the tree they cleared away some shrubs and opened another door in the ground, far too shallow to live in. From the trench, they produced another wooden box slightly large than the other, with a crank on the side.
+  Linyu emerged with a wooden box and a handful of bright blue sea plants - a color exactly matching the glowing lines the Shadesteaders marked themselves with. The box was no longer than hae forearm with a small wooden disc in the middle. They seemed plain and rather ordinary - not the huge metal monstrosities he had imagined them to be. Thi handed the box to Kip and then went to hae mother to spread the plants all around the tree.
+
+  "That must be where the lines-"
+
+  "Yep," Linyu butted in. He seemed amused that he could predict this foreigner's thoughts.
+
+  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced another wooden box slightly large than the other, with a crank on the side.
 
   "What's that crank for?" he asked.
 
@@ -64,7 +70,7 @@
 
   "Ahh, I see," Kip said, only half understanding.
 
-  "I need some light. Come over here, Kip," Casra said. He walked over, realizing his new flow line had become a useful tool. Thi pulled opened a cover on the "radio" and handed it to Kip to look at.
+  "Come over here, Kip," Casra said. Thi pulled opened a cover on the listener and handed it to Kip to look at.
 
   "See these two glass pieces?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these pieces to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps the machine listening to those bumps in the air. It's like a bell - it rings when sung to. If you make one differently in any way, it will respond to a different tone of singing, so it's important to make them all the same." Linyu handed the small wooden disc to Casra, as if cued to do so, and Casra continued, "This is a listener. You plug it in to listen to the voices in the air. You want to try it?"
 
@@ -103,8 +109,60 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was a way to let everyone from Ara know they would have a home here under Ulu. Setre, on the other hand, believed that Holragi had malicious plans and so she wanted to recruit spies that used radio to figure out Holragi's intentions."
+  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was a way to let everyone from Ara know they would have a home here if they had good intention. Setre, on the other hand, believed that Holragi had malicious plans and recruited spies to uncover them."
 
   "What sorts of plans?"
 
-  ""
+  "She couldn't recruit anyone. They thought we were crazy fake-scientists with a dangerous idea. Even when we showed them that it works."
+
+  "I'm glad we met. I have every intention of going back and figuring out what Holragi is up to."
+
+  "I've never met someone so interested in what we're doing. What's in this for you?"
+
+  "You remember the reason I gave you for why I was here?"
+
+  "Yea."
+
+  "The man was an ex-senator from Holragi. And he pressured my maman into going on some experimental flight to space."
+
+  "Why would he do that?"
+
+  "He says it's because thi's a perfect fit for the program, but I think it's really because my woman is a senator for Heiko, and he wants a playing card."
+
+  "What's happened that people are suddenly at each others' necks? When I left, everything was boring and humdrum in the news."
+
+  Kip paused and pondered if he should mention it.
+
+  He said, "I'll tell you later."
+
+  "I may not know you that well, but I'm not naive. What's going on?"
+
+  He stood up and walked back toward their home.
+
+  "Kip. We deserve to know," thi said.
+
+  He turned back around, and stared at Casra and hae kaln with despair. They needed to know.
+
+  "Ara. It's being blocked by... something."
+
+  "And you know this... how?"
+
+  "The observers found some anomalous objects in space that have been blocking Ara. They're growing in number and will soon block out all of Ara. An ice age is predicted in... 58 days."
+
+  "Days?!"
+
+  "I know this sounds outlandish, and I wish I was kidding. But the observers are rarely wrong, and we've already seen evidence of its effects."
+
+  Casra started talking to her self, "All our work... Everyone I've ever known..."
+
+  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age meant, but not quite old enough to know how to handle it.
+
+  "I'm sorry... I may have said too much."
+
+  Casra leaned in to hug Linyu, and looked to the side at Kip.
+
+  "It's fine. It's better to face reality prepared, than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Shadestead."
+
+  "You came here without a sentence, didn't you? Come with me to Ara after your work here is done. Maybe we can use radio to talk to those things at Ara."
+
+  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again."

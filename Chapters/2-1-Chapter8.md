@@ -65,7 +65,7 @@ He asked her, "So, Casra, how did you wind up here?"
 
 "Well. I pinned a guy against a wall who wanted to send my spouse to space."
 
-Thi laughed until thi noticed that he wasn't.
+Casra laughed until thi noticed that Kip wasn't.
 
 "Oh. That... must be a long story."
 
