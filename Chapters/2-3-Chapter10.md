@@ -19,13 +19,15 @@ Behind him, Kip heard quiet and quick footsteps approaching. He ducked behind a 
 
 "Casra! Is that you?"
 
-Kip was ecstatic to see a familiar face, even if only an acquaintance.
+Kip was immeasurably relieved to see a familiar face, even if only an acquaintance.
 
-"Kipnu. Oh thank Ara. Let's get to my safehouse under the fallen tree."
-
-"Lead the way."
+"Kipnu, you're here. Come now, under the fallen tree."
 
 They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He covered himself, remembering he was still naked. Casra had already prepared him a set of reed cloths and shoved them toward him the moment he set foot on the ground.
+
+
+<!-- issues: Kip needs some rest. Give some time for him to think about his life before Casra arrives -->
+
 
 "Linyu, would you fix our guest a bowl?"
 
