@@ -91,17 +91,19 @@
     It's you who fills our lives with love.
   ***
 
-  He was moved to tears. It was a lullaby from his childhood - faint and delayed to his open ear, but warm, clear, and instant from the radio box. It struck him with a magical awe he hadn't felt in a long time. Invisible voices, hidden walls, he didn't understand any of it, but he had to learn more. This would surely change the world.
+  He was moved to tears. It was a lullaby from his childhood - faint and delayed to his open ear, but through the box, it was warm and instant. It struck him first with a magical awe, then a longing homesickness. It had been a long time since he felt either of those emotions.
 
-  He ran back to Casra, both of them beaming with joy. There was no doubt in his mind that thi never got tired of seeing someone hear it for the first time.
+  He made his way back, and saw a beam of joy on their faces. There was no doubt in his mind that Casra never got tired of seeing someone hear it for the first time. Thi knew it would change the world.
 
-  "This is incredible. Imagine if everyone had one of these. A single voice could cover the entire planet."
+  "What did you think?" Casra asked.
+
+  "That was incredible. Imagine if everyone had one of these boxes. A single voice could cover the entire planet."
 
   "That is the next thing I need to teach you. There are limits to radio."
 
   "Limits?"
 
-  "The coil on this tree is powered by a strong battery. Just as you need a strong voice and a pedestal to be heard from far away, you need a strong transmitter and a high antenna for your signal to reach further."
+  "The coil on this tree is powered by a strong battery. Just as you need a strong voice and a raised platform to be heard from far away, you need a strong transmitter and a high antenna for your signal to reach further."
 
   "Is that why you built it into a tree?"
 
@@ -109,29 +111,29 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was a way to let everyone from Ara know they would have a home here if they had good intention. Setre, on the other hand, believed that Holragi had malicious plans and recruited spies to uncover them."
+  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was going to be a way to let everyone from Ara know they would have a home here if they had good intentions, in spite of any mistakes they might have made. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
 
   "What sorts of plans?"
 
-  "She couldn't recruit anyone. They thought we were crazy fake-scientists with a dangerous idea. Even when we showed them that it works."
+  "We never found out. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holragi and help us find out. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
 
-  "I'm glad we met. I have every intention of going back and figuring out what Holragi is up to."
+  "Well, I'm glad we met then. I have every intention of going back and figuring out what Holragi is up to."
 
-  "I've never met someone so interested in what we're doing. What's in this for you?"
+  "I've never met someone so interested in what we're doing, so pardon if I ask: what's in this for you?"
 
   "You remember the reason I gave you for why I was here?"
 
-  "Yea."
+  "You pinned a man against a wall."
 
-  "The man was an ex-senator from Holragi. And he pressured my maman into going on some experimental flight to space."
+  "The man was an ex-senator from Holragi. And he pressured my maman, Liffa, into going on some experimental flight to space."
 
   "Why would he do that?"
 
   "He says it's because thi's a perfect fit for the program, but I think it's really because my woman is a senator for Heiko, and he wants a playing card."
 
-  "What's happened that people are suddenly at each others' necks? When I left, everything was boring and humdrum in the news."
+  "What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
 
-  Kip paused and pondered if he should mention it.
+  Kip paused and pondered again if he should mention it.
 
   He said, "I'll tell you later."
 
@@ -155,14 +157,16 @@
 
   Casra started talking to her self, "All our work... Everyone I've ever known..."
 
-  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age meant, but not quite old enough to know how to handle it.
+  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to know what to do.
 
   "I'm sorry... I may have said too much."
 
-  Casra leaned in to hug Linyu, and looked to the side at Kip.
+  Casra leaned in to hug Linyu, while keeping her eyes up.
 
-  "It's fine. It's better to face reality prepared, than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Shadestead."
+  "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Shadestead."
 
-  "You came here without a sentence, didn't you? Come with me to Ara after your work here is done. Maybe we can use radio to talk to those things at Ara."
+  Kip, kneeled down to set with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
-  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again."
+  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again. Besides, anyone can learn how radio works. You can bring it to Ara yourself."
+
+  

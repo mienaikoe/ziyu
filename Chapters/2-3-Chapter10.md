@@ -11,13 +11,17 @@ A hand fell upon Kip's back and stayed there - intentional, not accidental. He l
 
 The forest was darker here, but he found that somehow he could see better than yesterday. Perhaps it was the light from the blue line he had been marked with, or his eyes adjusting to an eternal nighttime. It was still quite difficult to look for fallen trees in a forest of gigantic trees that block a great deal of view in any direction. He made a point to listen more intently for places where the light breeze would whistle across the bark. Maybe a fallen tree would likely sound a bit different, he thought.
 
-He came across another tree with a coil around its base. This time, the coil was polished and covered in sap, presumably from the tree it was wrapped around, and again one of the ends climbed the tree. *That veiled maman must have put these around. Who is thi?*
+He came across another tree with a coil around its base. This time, the coil was polished and covered in sap, presumably from the tree it was wrapped around, and again one of the ends climbed the tree. *That veiled maman must have put these around. Who is thi?* He wanted to stop to observe, but he forced himself to continue on to the tree he was told of. About ten more steps, and he quickly found a wall of a giant fallen tree thrusting its behemoth roots toward the sky. He rested himself on the roots and gazed into the darkness from where he had fled.
 
-Behind him, Kip heard quiet and quick footsteps approaching. He ducked behind a tree and waited for the footsteps to approach before he decided his next move.
+"Damn this cold," He whispered to himself. His body shivered but it could only find temporary relief. He tried retracing the events of last night in his head. He remembered inhaling something, and then feeling suddenly euphoric with Setre and Lissa on top of him. He felt a knot grow in his stomach and tighten both of his hearts. *Did I want it? Of course not, I'm a bonded man... Maybe I did want it... want them... People are sent to Ulu for cheating. Do I belong here? Am I...evil?*
 
-"Kipnu," thi called. Kip could faintly see the figure of the one who approached him. He looked closer at hae and finally realized who it was.
+A headache had set in again, and he pushed on his eyes to ease the pain. Lif came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered thi was being treated as he was, if Fajro was using hae life to bargain with the senate. Maybe Mel was having better luck with the senate, remaining her cool and composed self while the rest of the world teeters above a cliff of mindless panic. *Would they understand? Would they accept what I've done? What would I do if they didn't?*
 
-"Casra! Is that you?"
+Behind him, Kip heard quiet and quick footsteps approaching. He quickly got up to his feet and ducked behind a tree, waiting for the footsteps to approach before he decided his next move.
+
+"Kipnu," the maman called, quietly. Kip could faintly see the figure of the one who approached him. He looked closer at hae and finally realized who it was.
+
+"Casra? Casra! Is that you?"
 
 Kip was immeasurably relieved to see a familiar face, even if only an acquaintance.
 
