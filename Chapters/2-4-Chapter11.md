@@ -167,6 +167,24 @@
 
   Kip, kneeled down to set with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
-  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again. Besides, anyone can learn how radio works. You can bring it to Ara yourself."
+  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again."
 
-  
+  "Please... when the time comes...reconsider. Radio could be the answer we're looking for."
+
+  "Then it's good of you to learn it."
+
+  He smirked and bowed his head, acknowledging that thi couldn't be swayed.
+
+  "Well, I'll try my best to learn then," he said.
+
+  "Thank you...Kip."
+
+  Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment of new people will arrive in a Va'la and I want to be prepared for anything."
+
+  "Shipment?" Kip asked.
+
+  "Yes. The same one we came in on yesterday."
+
+  "What will we do with them?"
+
+  "Start a resistance."
