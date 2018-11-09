@@ -59,9 +59,9 @@ Thi observed him with a feigned frown.
 
 Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took the pipe, but immediately tried to give it back.
 
-"See this is what I'm talking about," said Lissa, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he slowly took up the pipe onto his lips, trying his best not to inhale.
+"See this is what I'm talking about," said Lissa, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he carefully took up the pipe onto his lips, trying his best not to inhale.
 
-"Inhale," thi commanded.
+"Inhale!," thi commanded, tightening hae grip on the dagger.
 
 He inhaled a small bit and the smoke triggered his cough reflex almost immediately. He tried to cough without moving his neck into the dagger, and Lissa lowered it and put it away, saying "There you go. You'll get the hang of it. One more."
 
@@ -89,15 +89,15 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 "Lif!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kip tried to grab Lif right as it swallowed him, but thi was lost in the darkness. Kip kept swimming through the dark, reaching for the next place Lif could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
 
-He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too real. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were real. Feeling sick, he dropped his head back down and tried to rest.
+He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
 
-"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he so longed for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of his body, even his breathing. He felt detached from his body like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
+"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he had such desire for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
 
 "Kip! Get up!" A voice called to him from the other room. It was Setre.
 
-She burst into the room, in full armor and spear, and didn't hesitate to pull Kip up to his feet. He pushed her away and shouted at her, "Get away from me."
+She burst into the room, in full armor and spear, and didn't hesitate to pull Kip up to his feet. He pushed her away with what little strength he had and shouted at her, "Get away from me."
 
-She pulled her spear on him, and he swatted it away, "You threaten my life with your spear. But how do you threaten a man who has lost meaning in his life?"
+She pulled her spear on him, and he swatted it away saying, "I've lost... all meaning in my life. How do you threaten that, huh?"
 
 With a flick of the wrist, she sliced through a fatty part of his side, making Kip shout out in pain.
 

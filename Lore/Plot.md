@@ -67,7 +67,7 @@ the discovery of wireless communication -
   - Lif's discovery of advanced modulation for
 
 
-### Part 1 - Lif
+### Part 1 - "The Messenger" (Lif)
 
 Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it. Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holragi.
 
@@ -76,7 +76,7 @@ Lif is a bound Maman who is a lowly farmer with two very successful and well-edu
 Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and then Lif leaves with Fajro.
 
 
-### Part 2 - Kip
+### Part 2 - "The Dreamer" (Kip)
 _Ch_
 Kip is in Ulu. He finds Cas and Wan. They survive the cold. Kip ventures into the forest, gets trapped.  Kip tries to share about the obstruction, but the champion laughs and enslaves him along with the rest of the group.
 
@@ -89,18 +89,24 @@ Cas is benevolent. Has trust issues, but Kip has shown that he is a good man in 
 _Ch_
 Kip and Lin meet the Shayadj (Forest is one big tree that never dies, becomes their religion). The Shayadj live in the canopy above the forest. Lots of fog, lots of wildlife. They installed the coils on the trees and show that it's a way to pickup invisible waves (blows their minds).
 
+### Interlogue - Lif
+Lif reaches L1 and begins seeing details in the obstruction in the shadows. Hae realizes it's not one diffuse cloud, but several large machine-rock hybrids that seem to be dotting the sky and being modified by small robots. Thi reports on it but realizes thi's been spotted. Thi panics when a robot latches on to hae craft and moves it toward one of the machine-rock hybrids. The part ends with Lif being taken aboard one and not knowing what will happen. *SUPER SUSPENSE*
 
-### Part 3 - Mel
-Mel stays in Shaki to argue for Heiko. She finds difficulty with the Arkeza, and braves the hardship of having no one to go home to. She finally gives up with debate in Shaki and goes home to Heiko to support them in their preparations. She finds a great deal of people who are angry at her for giving away their food stores. They throw pohua at her as a mocking gesture of her recommendation. She gives a moving speech to rally Heiko for the path forward. She goes to the observatory to speak with them about Ara's obstruction, and they tell her about a pattern they've been detecting in a piece of metal they had lying on the desk. They believe it's a message sent wirelessly (they don't know how wireless communication works yet) and start trying to translate it. The part ends with Kip arriving in Heiko from Ulu and announcing he knows how to get energy in the dark. Kip returns to Heiko on foot with the new knowledge, and shares it with Mel. Heiko by now has lost some to malnutrition, hypothermia, and suicide. Kip and Mel decide to announce their findings and dig at a nearby mountain close to Ara. Mel stays with the observers to keep watch on Ara and translate the message. Kip goes to the dig site to help dig  deep into the ground with the last bits of steam in their tools. They hit hot ground and immediately build a steam lamp setup in the area surrounding it for growing more crops and keeping the people warm. Kip goes to Mel to tell her the good news, and Mel has a terrible look on her face. The message was translated, and it's Lif warning them what thi found and what the robots intentions are. Mel decides on a dime to go to Holragi to bargain a ride to L1. Kip follows along to help. She finds that Holragi has built a series of destruction vessels (Holragi found a way to receive the message too). They hold Fajro hostage, remove the destruction payload on the first vessel, steal a pressure suit, and Mel takes first vessel and rides out to L1.
+### Part 3 - "The Wager" (Mel)
+Mel stays in Shaki to argue for Heiko. She finds difficulty with the Arkeza, and braves the hardship of having no one to go home to. She finally gives up with debate in Shaki and goes home to Heiko to support them in their preparations. She finds a great deal of people who are angry at her for giving away their food stores. They throw pohua at her as a mocking gesture of her recommendation. She gives a moving speech to rally Heiko for the path forward.
 
+Mel and Kip meet up in Yansha. Kip tells her about radio, and she commissions a team to build a transmitter/receiver in Heiko. Once built, Lif is shown to be alive and well, talking to the robots.
 
-### Part 3 - Lif
-Lif is ready. The initial launch goes well, but then once hae gets to a lower pressure, there's an opening in hae pressure suit (simple wrappings and a helmet for oxygen). Thi has to fix it really quickly while the craft is traveling through the small bits of turbulent air in the upper atmosphere. Once fixed, thi realizes hae hearing is permanently muffled from the sudden pressure difference. thi ensures trajectory is good with hae instruments and starts logging hae experiences in a notebook. Lif reaches L1 and begins seeing details in the obstruction in the shadows. Hae realizes it's not one diffuse cloud, but several large machine-rock hybrids that seem to be dotting the sky and being modified by small robots. Thi scribbles of it down, when thi realizes thi's been spotted. Thi panics when a robot latches on to hae craft and moves it toward one of the machine-rock hybrids. The part ends with Lif being taken aboard one and not knowing what will happen.
+Lif tells them the robots' intentions are to cull their population so that overcrowding doesn't dwindle their food supply. Thi still doesn't know who made them. The only way to stop them is to reduce their numbers. Mel has a bright idea of sending a lot of people to live in the Shadestead to "hide" their numbers.
 
+Mel decides on a dime to go to Holragi to sneak a ride to L1. Kip follows along to help. She finds that Holragi has built a series of destruction vessels for the space rail. Holragi knows this, and is building huge bombs to destroy destroy Heiko in an elliptical trajectory.
 
+They remove the destruction payload on the first vessel, steal a pressure suit, and Mel takes first vessel and rides out to L1.
+
+Mel is taken aboard to where Lif is. Lif is perfectly healthy and expecting Mel. Mel is suspicious of Lif because thi's acting strangely, but decides to take hae home on hae converted destruction vessel. Mel must bargain with the robots for Lif's life(?)
 
 ### Epilogue
-Mel is taken aboard to where Lif is. Lif is perfectly healthy and expecting Mel. Mel is suspicious of Lif because thi's acting strangely, but decides to take hae home on hae converted destruction vessel. The epilogue ends with the two having landed safely near a ziyu tree in Heiko and Lif losing it - either from not being able to hear the tree activate since Ara's light is bringing in more wind, or the robots being destroyed. The reader and the author don't know.
+The epilogue ends with the two having landed safely near a ziyu tree in Heiko and Lif losing it - either from not being able to hear the tree activate since Ara's light is bringing in more wind, or the robots being destroyed. The reader and the author don't know.
 
 
 

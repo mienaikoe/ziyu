@@ -179,11 +179,11 @@
 
   "Thank you...Kip."
 
-  Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment of new people will arrive in a Va'la and I want to be prepared for anything."
+  Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment will arrive in a Va'la and I want to be prepared for anything."
 
   "Shipment?" Kip asked.
 
-  "Yes. The same one we came in on yesterday."
+  "Of convicted. The same one we came in on yesterday."
 
   "What will we do with them?"
 

@@ -5,7 +5,7 @@
 
 A hand fell upon Kip's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same reed clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
 
-"Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kip, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kip out of the tent. He looked back for a second and saw nothing but the door to the tent closed. Stark naked, and severely malnourished, he made a break for some fallen tree he had never seen before in the darkest part of the island.
+"Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kip, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kip out of the tent. He looked back for a second and saw nothing but the door to the tent closed. Stark naked, severely malnourished, and fighting withdraw from something he did not know, he made a break for some fallen tree he had never seen before in the darkest part of the island.
 
 *I've escaped! But surely they'll be after me soon.*
 
@@ -19,57 +19,61 @@ A headache had set in again, and he pushed on his eyes to ease the pain. Lif cam
 
 Behind him, Kip heard quiet and quick footsteps approaching. He quickly got up to his feet and ducked behind a tree, waiting for the footsteps to approach before he decided his next move.
 
-"Kipnu," the maman called, quietly. Kip could faintly see the figure of the one who approached him. He looked closer at hae and finally realized who it was.
+"Kipnu," the maman called, quietly. He could faintly see the silhouette of the one who approached him. It was that same familiar voice of the veiled figure, but the veil had been removed. He looked closer at hae and finally recognized who it was.
 
 "Casra? Casra! Is that you?"
 
 Kip was immeasurably relieved to see a familiar face, even if only an acquaintance.
 
-"Kipnu, you're here. Come now, under the fallen tree."
+Thi said, "Kipnu, you've made it! Come now, under the fallen tree."
 
 They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He covered himself, remembering he was still naked. Casra had already prepared him a set of reed cloths and shoved them toward him the moment he set foot on the ground.
 
+"Linyu, grab some antikan from the cupboard."
 
-<!-- issues: Kip needs some rest. Give some time for him to think about his life before Casra arrives -->
+"Hi Kipnu. Thank you for saving me," the kaln said to him.
 
-
-"Linyu, would you fix our guest a bowl?"
-
-"Hi Kipnu. Thank you for saving me."
-
-"Hey there... So when you were saying that your mother lives here –"
+"Hey there... So your mother is..."
 
 "I was protecting hae identity."
 
 Kip nodded, apprehensive, but glad he finally understood what was going on.
 
-Casra started, "Kipnu, I believe I have a lot to explain. This is my kaln, Linyu. We were sent here together yesterday, on your boat, but we used to live here for many ma'to before."
+Casra took a satchel from Linyu and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
+
+He did as she told and immediately winced. "Tha a ot o singing," he tried to said.
+
+"Like I said, it will subside," thi reassured him. After a minute, the stinging went away along with his headache and and mental haze.
+
+"It's... gone. What is that stuff?" he asked.
+
+"Kipnu, I have a great deal to explain. This is my kaln, Linyu. We were sent here together yesterday, on your boat, but we used to live here for many ma'to before."
 
 Linyu handed Kip a square reed bowl of some sort of fish stew, and he eagerly took it and started eating without pause. Linyu was surprised and awkwardly took a seat next to his mother.
 
-In between spoonfuls, he asked, "Why did you come back to a place like this?"
+In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
-"I spent three ma'to here. I started like most people here - a slave and a kanosin addict. The stuff is made here so it's very easy to get. I worked the darkness and resigned myself to the addiction. When my wife Pokyi was sent here, pregnant with our child, I was changed. There was only one choice for me: the choice to be a mother. I wish I could say that I never had second thoughts, but addiction has a way of demonizing parts of your mind."
+"I spent three ma'to here. I started like most people here - a slave and a kanosin addict. The stuff is made here so it's very easy to get. I worked in the darkness and resigned myself to the addiction. When my kaln arrived on the island, I was changed. There was only one choice for me: sober up and be the mother I couldn't be before. I wish I could say that I never had second thoughts, but addiction has a way of demonizing parts of your mind."
 
 "Many mothers choose Kanosin. You did the right thing."
 
-"Thank you for thinking so."
+"Thank you for thinking so, but..."
 
-"You still haven't answered my question. Why did you come back?"
+"What is it?"
 
-"Well, before I was a Kanosin addict, I was a doctor - one of the best in Shaki harbor. I would often see addicts that had come directly from Ulu looking to escape their addiction and I developed my own treatment protocol that worked really well. When I found myself sober in Ulu, I decided I would do the same for those in my tribe. It worked so well that I was able to create a tribe of my own, full of ex-addicts that owed me their lives."
+"Before I was a Kanosin addict, I was a doctor - one of the best in Shaki harbor. I would often see addicts that had come directly from Ulu looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to Shaki how effective it was, but I underestimated how important having a coach was and I was unable to pull out of it."
 
-"You grew your power here through medicine."
+"You were the cause of your own suffering."
 
-"More than I could ever have found under Ara. But, I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre fought on my behalf but I knew that it was best for me to leave."
+"Yes. I lost my spouses and my kaln. When I found out that Lin had come to the Shadestead to be with me, I sobered up out of slavery and decided I would help those within my tribe to do the same thing. It worked so well that I was able to create a tribe of my own, full of ex-addicts that swore to me the lives I had given back to them. My tribe became the largest and most powerful in the Shadestead. But, I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre fought on my behalf but I knew that it was best for me to leave."
 
 "Setre? Thi was with you?"
 
-"Yes. she had been a child slave in Holragi, a miner for poisonous sulfate minerals. When she was still a child, she escaped from slavery but could never find a place to call home in Shaki. When she was sent to the Shadestead, she discovered that she was very good at protecting herself and so she decided to protect me. Before I left, we were... close. Very close... But she was frustrated that I wouldn't do anything to stop Lissa. That I had been too weak on hae. I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. When I heard from Linyu that she had Lissa's markings and had captured you, I knew that the tribe had disbanded."
+"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she had grown to adulthood, she escaped from slavery and went to Shaki Harbor. She searched for a long time for a place to call home, but could never trust anyone enough to make a living. She came to the Shadestead on her own request, and discovered that her skills at protecting herself could be put to good use protecting me. We became... close. Very close... But then Lissa came onto the scene, and she grew impatient with me and convinced that I should have taken her out hae before. When Lin and I were forced to leave, I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. I asked old patients who had just come back what they knew about the Shadestead, and I learned that Lissa had come into power, and that my tribe was completely gone. When I heard from Lin that Set had captured you and was covered with Lissa's markings, I knew she had given up."
 
 "So everything you came back for is gone."
 
-"My people are still here. Drugged and enslaved. I can't go back to who I was under Ara. This is where I belong - in the dark, in the cold, making a home for the forgotten."
+"My people are still here. Drugged and enslaved. I can't go back to being a doctor. This is where I belong - in the dark, in the cold, making a home for the forgotten."
 
 "That's quite noble of you," Kip said.
 
@@ -77,7 +81,7 @@ In between spoonfuls, he asked, "Why did you come back to a place like this?"
 
 "It's hard to miss."
 
-"Set is from Holragi, and she told me that they have these coils on some of the trees there. She wanted me to figure out what they're for."
+"Set is from Holragi. She told me once that they have these coils on some of the trees there. She wanted me to figure out what they're for."
 
 Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi in all of the chaos. "Did you figure it out?"
 
