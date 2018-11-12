@@ -20,42 +20,40 @@
 
 	He reviewed the plan and glanced again into the bag of earrings he had been tasked to carry, wondering if something this small could really make sound out of thin air. Linyu was carrying bread and firestarters, and Casra the kanosin antidote. If he had gotten a welcome such as this, Kip would likely have followed any plan thi had.
 
-	"There, to the South," Linyu said. They immediately turned their heads and saw a silhouette of a boat and some swimmers already flailing about in the water.
+	"There, to the South," Linyu said. They immediately turned their heads and saw two silhouettes of boats and a huge crowd of people on each. Some swimmers were already flailing about in the water.
 
-	"Quickly!" Casra yelled and they all leapt toward the shoreline. Kip pushed his bag to a startled Casra, and leapt into the icy sea of needles to save them.
+	"Quickly!" Casra yelled and they all ran toward the closest point on the shoreline. Kip pushed his bag to a startled Casra, and leapt into the icy sea of needles to save them.
 
   "I'm starting to wonder if he enjoys jumping into cold water," Linyu said.
 
-  "He's a dreamer...and he wants to wake up," Casra replied.
+  "He's a dreamer...he'll wake up eventually," Casra replied.
 
-  The cold of the sea bit at his limbs but he wasn't letting it bother him - he was called to help. The pebble sea floor took him as far as it could, and then he began to swim toward that crimson red horizon. But before he got to them, they had reached solid footing and no longer needed help. His feet, however, were starting to go numb and he took that as a sign that he needed to get quickly. He reached an area of solid footing before the water began to feel warmer, and his frustration turned to fear.
+  The cold of the sea bit at his limbs but he wasn't letting it bother him - these people needed his help. The pebble sea floor took him as far as it could, and then he began to swim toward that crimson red horizon. But before reached them, they had found solid footing and no longer needed help. His own feet, however, were starting to go numb and he realized that he was in a worse predicament than they were. He turned back toward the shoreline and made it to an area of solid footing before the water began to feel warmer, and his frustration had turned to fear. Breathing had become too difficult to call for help and everyone was too focused on getting to safety to notice that he was still behind them. His muscles started to spasm and lock up - first his legs, then his arms, then he started to sink.
 
-  Casra and Linyu were too busy starting a fire and passing out bread to notice that he was still in the water. He felt his muscles start to spasm and lock up - first his legs, then his arms, then he managed to get out a few yelps before his lungs started to do it. Casra sensed that Kip should have returned by now, and shot a glance out to the water where thi saw his head, barely above the water. At a pace quicker than Linyu had ever seen hae run, Casra waded into the water to pull Kip out by his armpit, and drag him nearer to the fire. She laid underneath him and covered both of their bodies with pebbles just as he had done for Linyu.
+	Casra sensed that Kip should have returned by now, and shot a glance out to the water where his head was barely breaking the surface. At a pace quicker than Linyu had ever seen hae run, Casra waded into the water and swam out to him. Thi locked hae arms around Kips' and pulled hard against the pebble floor. Kip was confused, but conscious of what was going on. When they made it to shore, thi set him nearer to the fire and laid underneath him, covering both of their bodies with pebbles just as he had done for Linyu.
 
   "C...Cas"
 
   "Shh. Just focus on getting warmer."
 
-  His muscle control began to return and then he felt an unexplainable frustration building from his belly and circling inward. He let his mind be overtaken by it and he wiggled free from Casra's grasp, making a direct line for the trees. Casra stood up and dusted haeself off as everybody's eyes were on hae.
+	His muscle control began to return and violent full-body shivers came along with it. He moaned in agony as feeling slowly returned from his core to his limbs, and Casra held him tighter so he wouldn't throw off too many rocks. An unexplainable frustration was building from his belly and circling inward and he let his mind be overtaken by it, wrestling free from Casra's grasp, and making a direct line for the trees. Casra stood up and dusted haeself off as the massive crowd of people looked on at them.
 
-  "I'll be right back, everyone," thi said, and then trotted off to find Kip.
+  "I'll be right back," thi said, and then trotted off to find Kip.
 
-  "Something eating you, Kipnu?" she asked, disappointedly.
+  Thi shouted at him in a hushed tone, so other wouldn't hear, "Were you trying to die? You jumped into that water like you were invincible. You aren't some superhero, Kip. The cold will kill anyone who permits it."
 
-  "I'm fine," he lied.
-
-  "Kip, cut your crap. You jumped into that water like you were *trying* to die of hypothermia. Either you have an over-inflated hero complex or you're trying to atone for something. Which is it?"
-
-  "I told you I'm fine."
+  "Who the hell even are you, Cas? Why should I trust anything you have to say?"
 
   Casra grabbed his arm and leaned hae face into his.
 
-  "You may have saved my kaln's life, but I just saved yours, so you might show some fucking gratitude," thi screamed at him, "This island isn't a place for your ego to come out and play. There are too many lives at risk, too many things to fight for. The last thing we need is a man who thinks he can save everyone alone. If you're going to be part of my tribe, you can't–"
+  "You may have saved my kaln's life, but I just saved yours, so you might show some fucking gratitude," thi screamed, "This island isn't a place for your ego to come out and play. There are too many people who suffer the . The last thing we need is a man who thinks he can save everyone singlehandedly. If you're going to be part of my tribe, you can't–"
 
-  "I never asked to be part of your tribe, Casra. I got roped into this mess because my alternative was to be a slave."
+  "I never asked to be part of your tribe. I got roped into this mess because my only alternative was slavery."
 
-  "And you don't think that's a fair trade? Risking my own life to give you freedom for a La'To? I thought you would be a man of the people, that you would support me in bringing an end to slavery in the Shadestead. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I right?"
+  "And you don't think that's a fair trade? Risking my own life to give you freedom for a La'To? I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Shadestead. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I right?"
 
-  "I don't care what happens here. I am only here for 10 days and then I go back to Heiko to hopefully save the world. My focus is on solving the only problem that matters right now."
+  "You know what, I don't even care what happens here. In ten days I'm getting off this dark wasteland you call an island and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
 
   "And what good would that be? Why save a world that's not worth saving?"
+
+	"Maybe you"
