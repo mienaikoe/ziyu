@@ -11,6 +11,8 @@
 
 - Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.
 
+- Show the fervor of industrial revolution.
+
 Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
   - Most realistic
   - This would be interesting to plot Casra against Kip.

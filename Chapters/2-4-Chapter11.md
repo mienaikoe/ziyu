@@ -42,13 +42,13 @@
 
   The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel... What ire does your day bring? Will you take me back?*
 
-  Linyu emerged with a wooden box and a handful of bright blue sea plants - a color exactly matching the glowing lines the Shadesteaders marked themselves with. The box was no longer than hae forearm with a small wooden disc in the middle. They seemed plain and rather ordinary - not the huge metal monstrosities he had imagined them to be. Thi handed the box to Kip and then went to hae mother to spread the plants all around the tree.
+  Linyu emerged with a small circular trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines the Shadesteaders marked themselves with. The trinket was a ring of coiled copper with a few beads attached to it and a another smaller coil with a large bead in the middle of it. It smaller than he imagined - not the huge metal monstrosities he had imagined them to be. Thi handed the listener to Kip and then went to hae mother to spread the plants all around the tree.
 
   "That must be where the lines-"
 
   "Yep," Linyu butted in. He seemed amused that he could predict this foreigner's thoughts.
 
-  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced another wooden box slightly large than the other, with a crank on the side.
+  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced a wooden box slightly large than their torsos, with a crank on the side.
 
   "What's that crank for?" he asked.
 
@@ -58,7 +58,7 @@
 
   Kip was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
 
-  "I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your hand to the rock while I pounded on it with a hammer from the other side."
+  "I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your ear to the rock while I knocked on it with a hammer from the other side."
 
   "Ok, I think I follow."
 
@@ -70,19 +70,21 @@
 
   "Ahh, I see," Kip said, only half understanding.
 
-  "Come over here, Kip," Casra said. Thi pulled opened a cover on the listener and handed it to Kip to look at.
+  "Come over here, Kip," Casra said. Thi took the listener from Kip and held it up to the light from the bluekelp.
 
-  "See these two glass pieces?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these pieces to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps the machine listening to those bumps in the air. It's like a bell - it rings when sung to. If you make one differently in any way, it will respond to a different tone of singing, so it's important to make them all the same." Linyu handed the small wooden disc to Casra, as if cued to do so, and Casra continued, "This is a listener. You plug it in to listen to the voices in the air. You want to try it?"
+  "See these two glass beads?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these beads to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps those bumps in the air constant. They're like bells - they ring when sung to. If you make one event slightly different in any way, it will respond to a different tone of singing, so each one must be made the same."
+
+	Casra handed the listener back to Kip and asked, "You want to try it?"
 
   Kip could barely understand what thi was talking about, but was eager to learn anyway.
 
-  "Ok, so take this radio, and walk about fifty paces back. Don't look back - just listen to what you can hear."
+  "Ok, so take this listener, and walk about fifty paces back. Don't look back - just listen to what you can hear from it."
 
   "Just listen? that's it?"
 
   "Yes. That's it."
 
-  He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard Casra.
+  He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard Casra singing as if thi were right at his ear.
 
   ***
     A little fish, swimming down below,
@@ -111,7 +113,7 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to live here after they became sober. They felt forgotten by their cities or their families, so they found a new family, a new city to be a part of here. For me, radio was going to be a way to let everyone from Ara know they would have a home here if they had good intentions, in spite of any mistakes they might have made. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
+  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave the Shadestead to and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
 
   "What sorts of plans?"
 

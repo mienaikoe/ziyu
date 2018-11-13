@@ -3,6 +3,8 @@
 - The saved go into the Shadestead to bring earrings to them.
 - Casra announces haeself to everyone with one. (Lissa doesn't know, but gets suspicious and steals one from Setre.)
 - Lissa becomes furious and orders Setre to round up anyone found with an earring to be sentenced to death.
+
+- Linyu dies -> we don't want a Holdo scenario
  -->
 
 ## Chapter 12
@@ -18,7 +20,7 @@
 
 	Kip looked out at the dark sea and the dark hint of red and infrared that lie above it. There was far more he could see now that his eyes adjusted, but the waves were still waves. Casra's face was the same expression he had come to expect from hae: calm, intelligent, and resolute. Whatever this plan was, he was certain thi had thought about it for many Ma'to.
 
-	He reviewed the plan and glanced again into the bag of earrings he had been tasked to carry, wondering if something this small could really make sound out of thin air. Linyu was carrying bread and firestarters, and Casra the kanosin antidote. If he had gotten a welcome such as this, Kip would likely have followed any plan thi had.
+	He reviewed the plan and glanced again into the bag of listeners he had been tasked to carry, wondering if Casra could really rally a resistance with something so small. Linyu was carrying bread and firestarters, and Casra the kanosin antidote. If he had been given a welcome such as this, Kip would likely have followed any plan thi had.
 
 	"There, to the South," Linyu said. They immediately turned their heads and saw two silhouettes of boats and a huge crowd of people on each. Some swimmers were already flailing about in the water.
 
@@ -40,20 +42,70 @@
 
   "I'll be right back," thi said, and then trotted off to find Kip.
 
-  Thi shouted at him in a hushed tone, so other wouldn't hear, "Were you trying to die? You jumped into that water like you were invincible. You aren't some superhero, Kip. The cold will kill anyone who permits it."
+  Casra's voice was hushed, to keep the other from hearing much, "Kipnu, what's wrong?"
 
-  "Who the hell even are you, Cas? Why should I trust anything you have to say?"
+	"I'm fine," he said in an angry tone.
+
+	"Come back and warm up. You're confused right now."
+
+	"I said. I'm fine."
+
+	Thi looked at him with a stern eye, but his own remained vacantly fixed on that invisible specter that haunts in the distance.
+
+  After a tense moment, he turned around and asked, "Who the hell even are you, Cas? Why should I trust anything you have to say?"
 
   Casra grabbed his arm and leaned hae face into his.
 
-  "You may have saved my kaln's life, but I just saved yours, so you might show some fucking gratitude," thi screamed, "This island isn't a place for your ego to come out and play. There are too many people who suffer the . The last thing we need is a man who thinks he can save everyone singlehandedly. If you're going to be part of my tribe, you can't–"
+  "You may have saved my kaln's life, but I just saved yours, so you might show some fucking gratitude," thi screamed, "This island isn't a playground for your ego. There are too many people who suffer here, whose lives would be destroyed if you make just one mistake. The last thing we need is a man who's out to save the universe. If you're going to be part of my tribe, you can't–"
 
-  "I never asked to be part of your tribe. I got roped into this mess because my only alternative was slavery."
+  "I never asked to be part of your tribe, Casra," He said, wrestling free from hae grip. "I got roped into this mess because my only alternative was slavery."
 
-  "And you don't think that's a fair trade? Risking my own life to give you freedom for a La'To? I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Shadestead. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I right?"
+  "And you don't think that's a fair trade? I risked my own life to give you freedom for a La'To. You don't think that's fair?"
 
-  "You know what, I don't even care what happens here. In ten days I'm getting off this dark wasteland you call an island and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
+	Thi shuffled about, trying to calm hae anger.
 
-  "And what good would that be? Why save a world that's not worth saving?"
+	She said, "I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Shadestead. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I wrong? Tell me I'm wrong."
 
-	"Maybe you"
+  "You know what, I don't even care what happens here," Kip replied. "In eleven days I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
+
+  "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they were driven to escape from the stresses of constant work. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're a Kano-head'? For me, I'd rather it all freeze to death. The Shadestead will forge a new path in the dark."
+
+	"And you would leave your husband and wife to die too?"
+
+	Casra cast her sights to the ground, thinking of hae spouses, and looked up in a solemn gaze.
+
+	"They've already done that to me," she said.
+
+	Thi turned around to return to the fire. Kip hesitated, but his anger had subsided and turned to humility, and he followed behind hae.
+
+	Casra stopped just short of the fire, and the people all turned to hae. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. Linyu had run out of bread to pass out, so everyone was splitting pieces for each other, and huddling to keep warm.
+
+	Thi addressed them, "Mamen, Women, Men. My name is Casra, and I'm a doctor here on the Shadestead. There are far more of you here today than we have ever had before."
+
+	A voice called out from the crowd, "Ara is dying!"
+
+	Another yelled, "This is the only safe place!"
+
+	A clamor erupted, and Casra and Kipnu began to realize the weight of the news of the obstruction. Casra raised hae hands to calm the noise and spoke again, "I too, have been informed of the obstruction at Ara, and I wish I could tell you that you are safe here, but there is a tribe in the center of this island that would enslave you all if they could. If you want to survive, you will all have to fight for your freedom."
+
+	"Why should we trust you?" asked another.
+
+	Kip moved forward to stand by Casra's side.
+
+	"I came here just yesterday. Like all of you, I was untrusting, afraid of the dark. I was enslaved and drugged with Kanosin. I did things I will regret forever, for a ruler I never thought could be so ruthless. I was put up for sale as a slave, but Casra saved me and showed me hae past and hae plans for the future. You can choose to follow your own path, but consider my story a warning of what could happen if you do."
+
+	Casra took his hand as a gesture of gratitude and solidarity.
+
+	Thi continued, "The Shadestead can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. We hike East in a Va'ma. For those who choose not to join us, may fate be gentle to your consciousness."
+
+	The people returned to talking, and Casra began to approach a fire when a man from the back stood up.
+
+	"Liar! Liar!!" He yelled to Casra. Thi looked at him and stared, wondering what he could have been talking about. A woman tugged on his arm to sit back down, but he twisted free of her grasp.
+
+	He stepped forward into the center and continued, "Lissa is a great ruler. Thi brought stability to this place and got rid of the backward religious law of Ara. Thi granted wishes to those who earned them and rebuilt this place on the backs of the lazy and the wicked. Thi did what you could never do, Casra. Liar!"
+
+	Casra had walked to him now, with the woman who had pulled on his arm approaching behind him. Casra said to her, "It's okay," and she stopped and stood at a distance.
+
+	"Runmi. Ten La'to ago, you betrayed me to work for a slaver and then left the Shadestead when your sentence was up. What brings you back here?"
+
+	"Hardly any of your business." 
