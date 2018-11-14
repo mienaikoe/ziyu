@@ -68,19 +68,21 @@
 
   "You know what, I don't even care what happens here," Kip replied. "In eleven days I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
 
-  "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they were driven to escape from the stresses of constant work. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're a Kano-head'? For me, I'd rather it all freeze to death. The Shadestead will forge a new path in the dark."
+  "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they can't control. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're an addict'? For me, I'd rather it all freeze to death. The Shadestead will forge a new path in the dark."
 
 	"And you would leave your husband and wife to die too?"
 
-	Casra cast her sights to the ground, thinking of hae spouses, and looked up in a solemn gaze.
+	Casra cast her sights to the ground, thinking of hae spouses, and looked up in a solemn gaze into the past.
 
 	"They've already done that to me," she said.
 
-	Thi turned around to return to the fire. Kip hesitated, but his anger had subsided and turned to humility, and he followed behind hae.
+	Thi turned around to return to the fire. Kip hesitated, but his anger had melted into humility, and he followed behind hae.
 
-	Casra stopped just short of the fire, and the people all turned to hae. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. Linyu had run out of bread to pass out, so everyone was splitting pieces for each other, and huddling to keep warm.
+	Casra stopped just short of the fire, and looked out at crowd before hae. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. Linyu had run out of bread to pass out, so everyone was splitting pieces for each other, and huddling to keep warm.
 
-	Thi addressed them, "Mamen, Women, Men. My name is Casra, and I'm a doctor here on the Shadestead. There are far more of you here today than we have ever had before."
+	Thi stood on a rock and called out for quiet before addressing them.
+
+	"Mamen, Women, Men. My name is Casra, and I'm a doctor here on the Shadestead. There are far more of you here today than we have ever had before."
 
 	A voice called out from the crowd, "Ara is dying!"
 
@@ -96,16 +98,60 @@
 
 	Casra took his hand as a gesture of gratitude and solidarity.
 
-	Thi continued, "The Shadestead can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. We hike East in a Va'ma. For those who choose not to join us, may fate be gentle to your consciousness."
+	Thi continued, "The Shadestead can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. We hike East in a Va'ma. For those who choose not to join us, may fate be gentle to you."
 
 	The people returned to talking, and Casra began to approach a fire when a man from the back stood up.
 
-	"Liar! Liar!!" He yelled to Casra. Thi looked at him and stared, wondering what he could have been talking about. A woman tugged on his arm to sit back down, but he twisted free of her grasp.
+	"Liar! Liar!!" He yelled to the wind and pointed at Casra. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A woman, a bit younger than him, tugged on his arm to sit back down, but he twisted free of her grasp and pushed her away.
 
-	He stepped forward into the center and continued, "Lissa is a great ruler. Thi brought stability to this place and got rid of the backward religious law of Ara. Thi granted wishes to those who earned them and rebuilt this place on the backs of the lazy and the wicked. Thi did what you could never do, Casra. Liar!"
+	He stepped forward into the center and continued, "Lissa is a great ruler. Thi brought stability to this place and rid us of the backward religious law of Ara. Lissa granted the wishes of those who earned the right to have them and built all of its glory on the backs of the lazy and the wicked. Thi did what you could never do. Liar!"
 
-	Casra had walked to him now, with the woman who had pulled on his arm approaching behind him. Casra said to her, "It's okay," and she stopped and stood at a distance.
+	Casra had walked to the gap in between fires that he was standing in, and saw the woman who had pulled on his arm approaching as well. Casra said to her, "It's okay," and she stopped and stood at a distance.
 
-	"Runmi. Ten La'to ago, you betrayed me to work for a slaver and then left the Shadestead when your sentence was up. What brings you back here?"
+	"Ramne. How long ago was it when you betrayed me to peddle Kano for Lissa? If I recall, you mysteriously left before your sentence was up. Did you come back to finish your time?"
 
-	"Hardly any of your business." 
+	"Ah, Casra, the rich kaln who couldn't lead a tribe to lunch if thi tried. You know what I'm here for. And now that I've got you cornered, I imagine I'll be getting a sweet sweet bonus."
+
+	"Kano? It's really that simple for you."
+
+	"How do I say it? Life is good on the other side of poverty. Though you wouldn't know anything about that, would you?"
+
+	"Ram... Stop this. You're going to get us hurt." The woman said.
+
+	Casra interrupted, "Oh, so there's an us now?"
+
+	"A product this good? I couldn't possibly sell it all on my own." He said casually.
+
+	Casra looked around at the crowd, searching for who else might be working with him, but couldn't spot anyone in particular.
+
+	Kip sensed this too, and leaned in to whisper to hae, "Could be an ambush. You'd better stop this blabbering soon."
+
+	"Go. Protect Linyu," thi asked him.
+
+	"I can't leave you here-"
+
+	"Do it!" thi snapped, still under hae breath.
+
+	Kip made haste toward the treeline, where Linyu was sitting around a fire, never taking his eyes off of hae.
+
+	Casra said, "If you're going to take me, then do it already."
+
+	Ramne made a thunderous grunt, and nearly twenty others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Kip started running toward Casra but was stopped in his tracks by a long dagger held out by a woman twice his weight in muscle - one of Ramne's allies.
+
+	Casra said to Ramne, "I hope your woman is as disappointed in you as I am."
+
+	He was expressionless as he bound Casra's unfighting arms behind hae.
+
+	"She won't be so disappointed when she's higher than Ara."
+
+	Kip clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Lissa. He winced at the thought of what Lissa might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, visibly angry and upset at herself, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
+
+	"I... am Kipnu," he said to the crowd, "And Casra is a dear friend."
+
+	A tear came to an eye as he looked at Linyu, who had turned hae focus to him. *"Protect Linyu,"* Casra's request resounded in his head.
+
+	"Know this. The Shadestead is not a prison, it is a slave cartel. Wherever you go here, you cannot escape from its reach. Right here... Right now... You must make a choice that will affect the rest of your lives. Do you resign yourself to a life of addiction and slavery, or do you reject it and fight so that others may never know such a miserable fate? Do you surrender to kanosin, or strive for the dream of something far greater?"
+
+	"I choose to fight!" yelled a maman near him.
+
+	"I'll fight!" yelled another. And person-by-person, the entire shore had galvanized in the red light of fire. Linyu held tightly to the satchel of listeners and thought of hae mother with a flame of hope still inside.

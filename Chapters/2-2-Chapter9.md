@@ -139,7 +139,7 @@ The crowd filled with murmurs before he was done talking.
 
 Lissa gestured to them to quiet down and addressed Kip directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kip as their guardian must trade something of their own."
 
-Thi paused as if to . *Is this an auction?*
+Thi paused and looked out at the crowd in anticipation. *Is this an auction?*
 
 "Let the bidding begin!"
 
@@ -147,4 +147,4 @@ Thi paused as if to . *Is this an auction?*
 
 "5 slaves!"
 
-The crowd bunched in and crowded Lissa who was receiving bids and telling them to hae scribe. Setre had moved away from Kip and was now forming a perimeter around Lissa. The noise was aggravating Kip's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to. There was no solace to take in his conscience, no friend he could turn to. So like a switch, all judgments turned off, all sense of right and wrong had left, his fortress of good will abandoned. He had been broken.
+The crowd bunched in and crowded Lissa and hae scribe who was taking the bids faster than he could write them. Setre had moved away from Kip and was now forming a perimeter around Lissa. The noise was aggravating Kip's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to. There was no solace to take in his conscience, no friend he could turn to. So like a switch, all judgments turned off, all sense of right and wrong had left, his fortress of good will abandoned. He had been broken.
