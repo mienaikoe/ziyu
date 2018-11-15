@@ -1,12 +1,23 @@
 <!--
 
 ch13
-- Setre rounds up nearly half of the tribe, and as she is surprised by the number, she drugs them with Kanosin instead to enslave them to her whims.
-- Setre visits Casra to tell her off and ask what hae plan is. Casra gives her an antidote and tells her to give it to every slave and tell them to gather at the shadestead at the start of morning breeze.
-- Kip and Casra present to Lissa. Lissa is suspicious, but too greedy to care. Commands Setre to kill Casra.
-- The healed slaves come to the shadestead and see the three. Lissa knows this is an ambush, and pulls a dagger to Casra's neck.
-- Casra tells Setre "you know what to do"
-- Setre kills Lissa and Casra is killed in the process.
-- Kip hears Lif's voice on the radio
+
+- Linyu dies -> we don't want a Holdo scenario
+
+- Setre visits Kip in the night, and is furious at him for letting Casra get to a vulnerable position
+  - Setre plans the attack with Kip, tells them where the armory is so they can steal weapons.
+  - Linyu suggests using radio to synchronize movements
+  - Linyu teaches the people radio
+  - Linyu and Ramne's woman, Punyu, become closer
+  - Setre takes the antidote back to the Shadestead to heal the slaves who still follow Setre
+- Armed with listeners, they surround the Shadestead
+  - Kip hears strange signals from Holragi on the radio
+
+
+Setting:
+  - It's starting to get just above freezing temps
 
 -->
+
+
+## Chapter 13

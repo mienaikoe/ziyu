@@ -1,11 +1,4 @@
-<!--
-- They bring water, bread, and radio earrings to the dumped.
-- The saved go into the Shadestead to bring earrings to them.
-- Casra announces haeself to everyone with one. (Lissa doesn't know, but gets suspicious and steals one from Setre.)
-- Lissa becomes furious and orders Setre to round up anyone found with an earring to be sentenced to death.
 
-- Linyu dies -> we don't want a Holdo scenario
- -->
 
 ## Chapter 12
 
