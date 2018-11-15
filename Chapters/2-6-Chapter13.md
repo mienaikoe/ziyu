@@ -19,3 +19,6 @@ Setting:
 
 
 ## Chapter 13
+
+
+  "How did you meet Ramne?" Kipnu asked the woman. She was clothed in a long black robe
