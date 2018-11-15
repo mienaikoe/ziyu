@@ -137,7 +137,7 @@
 
 	"She won't be so disappointed when she's higher than Ara."
 
-	Kip clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Lissa. He winced at the thought of what Lissa might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, visibly angry and upset at herself, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
+	Kip clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Lissa. He winced at the thought of what Lissa might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, seeking pity from the ground, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
 
 	"I... am Kipnu," he said to the crowd, "And Casra is a dear friend."
 

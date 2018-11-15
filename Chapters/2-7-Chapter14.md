@@ -12,6 +12,8 @@
       - Cas and Set head to Kip, to find Linyu being murdered because Kip tried to outmaneuver him.
       - Cas holds Lin in hae arms and weeps with what strength thi has.
         - They both die? Or just Lin?
+        - Linyu dies? -> we don't want a Holdo scenario
+
     - Kip hears Lif in his listener
 
 -->

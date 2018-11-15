@@ -2,8 +2,6 @@
 
 ch13
 
-- Linyu dies -> we don't want a Holdo scenario
-
 - Setre visits Kip in the night, and is furious at him for letting Casra get to a vulnerable position
   - Setre plans the attack with Kip, tells them where the armory is so they can steal weapons.
   - Linyu suggests using radio to synchronize movements

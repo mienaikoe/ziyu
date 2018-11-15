@@ -84,7 +84,7 @@
 
   "Yes. That's it."
 
-  He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard Casra singing as if thi were right at his ear.
+  He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard a maman clearing hae throat. *Is that...Casra? But thi is so far away.* Thi began singing and Kip heard it as if were coming from inside his own head.
 
   ***
     A little fish, swimming down below,
@@ -93,7 +93,7 @@
     It's you who fills our lives with love.
   ***
 
-  He was moved to tears. It was a lullaby from his childhood - faint and delayed to his open ear, but through the box, it was warm and instant. It struck him first with a magical awe, then a longing homesickness. It had been a long time since he felt either of those emotions.
+  He was moved to tears. Thi sang a simple lullaby from his childhood, but through the listener it was like a memory hallucinated into life. It struck him first with a magical awe, then a longing homesickness. It had been a long time since he felt either of those emotions.
 
   He made his way back, and saw a beam of joy on their faces. There was no doubt in his mind that Casra never got tired of seeing someone hear it for the first time. Thi knew it would change the world.
 

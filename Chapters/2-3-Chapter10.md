@@ -130,7 +130,7 @@ Casra looked down at Linyu, and leaned in to hug hae. Thi looked back at Kip and
 
 
 
-He rushed over to the stew pot to set his bowl down where theirs had been. He turned to go back out but a faint sound of rustling leaves echoing through the chimney perked his ears up. He motioned to them to stay quiet and they all listened as the footsteps approached their dug-in shelter.
+He rushed over to the chimney to set his bowl down where theirs had been and turned to go back out but a faint sound of rustling leaves echoing through the chimney perked his ears up. He motioned to them to stay quiet and they all listened as the footsteps approached their dug-in shelter.
 
 "Someone's here," he whispered.
 
@@ -188,7 +188,7 @@ She put her hand over his mouth saying, "Don't worry about me," and turned to Ca
 
 Casra called out to her, "The wind speaks!"
 
-Setre responded, "The circle listens!"
+Setre responded, "The wood listens!"
 
 They looked on as the forest swallowed her cursed blue light, a living memory of Ara wandering in the darkness.
 
