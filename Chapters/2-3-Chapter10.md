@@ -144,21 +144,27 @@ Kip watched as Cas went up the ladder and cracked the door to peer through. From
 
 The figure in the dark had an unmistakable spear - Setre was here.
 
-"Cas. You're back.", she said. "Are you holding Kipnu here? Don't lie to me."
+"Cas. You've come back?", she asked in a bewildered tone. "Are you holding Kipnu here? Don't lie to me."
 
 "So what if I am?"
 
-"I captured him. He is property of Lissa's tribe, you know this."
+"I captured him. He is property of our tribe, you know this."
 
 "People cannot be property. Set, who have you become?"
 
 "I'm not your right-hand knight anymore. You have no idea what happened in the all the la'to you were gone. We all had to grow stronger because of your weakness."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the shadestead reformed, but now it's gone back to being a cesspool of addiction."
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the Shadestead reformed, but now it's gone back to being a cesspool of addiction."
 
 "We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, this is who I am now."
 
-Casra paused to calm haeself. "Tell me what happened."
+"And Ramne?"
+
+"He became a dealer. Shipped off to Yansha long before his sentence. Probably bribes."
+
+"No..." Casra paused to fully understand what this meant. "All of our work... was in vain."
+
+She regained hae composure and said, "Please... Tell me what happened."
 
 "There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the shadestead and killed people in hae own tribe that thi suspected of espionage."
 

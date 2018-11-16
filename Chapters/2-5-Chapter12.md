@@ -101,7 +101,7 @@
 
 	Casra had walked to the gap in between fires that he was standing in, and saw the woman who had pulled on his arm approaching as well. Casra said to her, "It's okay," and she stopped and stood at a distance.
 
-	"Ramne. How long ago was it when you betrayed me to peddle Kano for Lissa? If I recall, you mysteriously left before your sentence was up. Did you come back to finish your time?"
+	"Ramne. How long ago was it when you betrayed me to peddle Kano for Lissa? Setre tells me you mysteriously left before your sentence was up. Did you come back to finish your time?"
 
 	"Ah, Casra, the rich kaln who couldn't lead a tribe to lunch if thi tried. You know what I'm here for. And now that I've got you cornered, I imagine I'll be getting a sweet sweet bonus."
 
