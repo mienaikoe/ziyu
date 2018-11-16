@@ -21,36 +21,38 @@ Setting:
 ## Chapter 13
 
 
+  Lin was silent on the walk back home. Kip was walking to him, trying to think of things to say to comfort hae, but nothing seemed appropriate for the moment.
+
   "Kipnu," the woman called to him.
 
   She was clothed in a long black robe that hadn't quite dried yet, folding her hands to keep warm on their walk to Casra's safehouse. He looked back at her, and slowed to match her pace.
 
-  "Ramne is your man, right?"
+  "Yes? Um.."
+
+  "Ginnu. Ginnu um Holragi."
+
+  "Ginnu. Ramne is your man, right?"
 
   "We are not bound, but I do work with him, yes."
 
   "And yet he left you behind?"
 
-  She hesitated then changed the subject, "I wanted to ask about you."
+  She fell silent, and changed the subject.
 
-  He faced forward and kept walking, "Oh. What about?"
+  "I know it may seem strange, that I chose to go with you and not my partner, but I wanted to tell you that I support your efforts."
 
-  "How do you know Casra?"
+  "Is that so?" Kip asked, unconvinced. "How far are you willing to go, Ginnu um Holragi?"
 
-  "Just met hae yesterday, why?"
+  "I'll make weapons, I'll cook food, I'll fight alongside you."
 
-  "Do you know about Casra's past?"
+  "Would you kill Ramne if it came to that?"
 
-  "Yea, thi told me"
+  She paused, not having thought of that possibility.
 
-  "I mean... the dark parts"
+  "Didn't think so," said Kip. "Look, I don't trust you, Ginnu. And I think I have a good reason not to. If you're going to stick with us, you have to accept the fact that Ramne might try to protect Lissa, and die if there is a battle."
 
-  "I'm not really one for gossip, uh... what was it? Your name."
+  "He wouldn't protect hae. He just likes hae for the money. Casra would find him a different job."
 
-  "Ginnu. Ginnu um Holragi."
+  "I wouldn't count on it."
 
-  "Pleased to meet you, Ginnu."
-
-  "Likewise," she said. And let it fade to silence.
-
-  Kip was walking next to Linyu who had been silent and brooding since hae mother was taken. He tried thinking of things to say to comfort hae, but nothing seemed appropriate for the moment. He tried putting his hand on hae shoulder, and thi brushed it off.
+  She went silent again, to process what he had just said.
