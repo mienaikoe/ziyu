@@ -1,3 +1,10 @@
+<!--
+
+In the rape scene or afterward, depict Setre as feeling disgusting a little bit
+
+-->
+
+
 
 
 ## Chapter 9
