@@ -41,7 +41,7 @@ Setting:
 
   "I know it may seem strange, that I chose to go with you and not my partner, but I wanted to tell you that I support your efforts."
 
-  "Is that so?" Kip asked, unconvinced. "How far are you willing to go, Ginnu um Holragi?"
+  "Is that so?" Kip asked, unconvinced. "How far are you willing to support us, Ginnu um Holragi?"
 
   "I'll make weapons, I'll cook food, I'll fight alongside you."
 
@@ -55,4 +55,4 @@ Setting:
 
   "I wouldn't count on it."
 
-  She went silent again, to process what he had just said.
+  She went silent again.
