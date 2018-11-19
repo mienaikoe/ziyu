@@ -15,6 +15,8 @@
 
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
 
+- More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
+
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
 
 

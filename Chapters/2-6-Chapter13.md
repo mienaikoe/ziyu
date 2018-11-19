@@ -70,9 +70,145 @@ Setting:
 
 	"Are you high or something?"
 
-	He sighed. "You'll understand what I mean soon."
+	He sighed. "You wouldn't understand."
 
-	They arrived at the safehouse, and Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
+	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the eastern shore to catch a late dinner while the rest stayed behind to build a fire and get a start on making defense weapons. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
+
+	"Kipnu, we need to talk!," she yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
+
+	"Setre, what are you doing here?"
+
+  "No time, let's talk in the house"
+
+  "Oh.. uh ok," he said.
+
+  Setre barely jumped off the ladder into the safehouse when she started talking again.
+
+  "Cas' plan is working, but I need you to–... Oh hey Linyu," she said, surprised at seeing hae face in the lantern light.
+
+  Next to Linyu was Ginnu who was rummaging through the herb box with her own lantern, and she asked in a suspicious tone, "How did you get here?"
+
+  Startled, Ginnu shot her head toward Setre and abruptly closed the herb box. Kipnu got off the ladder and set his arm on Setre's shoulder.
+
+  "It's alright," he said, oblivious to the tension in the room. "This is Ginnu. She's with us."
+
+  A long pause punctuated the air, and Setre pierced through it.
+
+	"Get the fuck away from my kaln," she said.
+
+	Ginnu's face was unchanged as she walked closer to them and the ladder. When she got close enough, Setre swiftly grabbed her wrists and held them behind her back.
+
+	Ginnu rebuked her, "Get your hands off me."
+
+	"Lin, get me some rope," said Setre.
+
+	Kip was perplexed, "What's this all about?"
+
+	"Ginnu is one of the spies I was telling you about," she responded, struggling to keep Ginnu still.
+
+	Kip was growing tired of secrets. *How many hidden identities are people keeping on this island?*
+
+	"Everyone has at least one," Setre said, and he suddenly realized that his question hadn't stayed fully in his head.
+
+	Linyu scurried up the ladder and quickly came back with a handfull of strong rope - a thicker variant of the material used for their clothing. Setre first bound Ginnu's wrists, and then hae feet, and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
+
+	"Save your tears for Lissa."
+
+	Kip pleaded to her, "You've gone too far, Setre. Ginnu's been nothing but helpful ever since she arrived on this island."
+
+	"This is exactly how Lissa's spies work. She makes you think she's on your side until she steals all your advantages and gives them to Lissa. She already knows that I'm working with you. What have you told her about?"
+
+	"A little about radio. She thought I was crazy."
+
+	"By Ara, are you thick?"
+
+	Kip was getting frustrated with Setre's sensationalism. "Look, we'll just leave her here and come back for her when we've taken the Shadestead."
+
+	"And then what? She's lives the rest of her life as a prisoner? As long as Kanosin exists in this world, she will do whatever it takes to get it."
+
+	Ginnu interrupted her, "You aren't such an angel yourself, Guardian of Ulu. Unlike you I'm trying to be free of the madness that goes on here."
+
+	Setre lifted her by her shirt and she shouted in pain, but Setre maintained her hold and said, "And unlike you, I'm trying to stop it."
+
+	Kip put himself in between them and shouted, "Setre, what's gotten into you? Let's figure this out later. For now, Ginnu, we'll have to keep you tied up. I'm sorry it had to be this way, but Setre is right about the danger you pose."
+
+	Ginnu nodded her head and sank back into herself. Kip felt pity for her, but Setre was not amused.
+
+	He told Setre, "I'll take her to the fire. When I come back, we'll talk."
+
+	"You'd be better off throwing her into it."
+
+	Kip shot her a glare, and then climbed up the ladder, stopping at the top to lift Ginnu up by the shoulders. He carried her in his arms toward the now roaring fire. The fishing party had just returned with a large amount of fish and bluekelp for the group. On a soft patch of ground, he set her down at a comfortable distance away while the others stared at them in curiosity.
+
+	"What's she tied up for?" asked a maman.
+
+	"It's nothing big, but I'd prefer not to say right now."
+
+	"Tried to take a swing at you, did she?" the maman asked.
+
+	"No nothing like that. We just need some privacy right now, and I'm worried she might run away."
+
+	"To Ramne, you mean."
+
+	"Yes, and he might want her back so keeping her here and healthy is a good thing. If I come back and any one of you has taken advantage of her vulnerable position, you will answer to the giant warrior in the house."
+
+	They heeded his bluff of a warning, and as he turned he paused to check on Ginnu again.
+
+	"Thank you," she whispered to him through tearful eyes. If this was all an act, she was quite convincing.
+
+	Setre was drawing of a map on the rocky ground of the safehouse with some charcoal and a lantern, too engrossed to greet Kip as he came back in.
+
+	He squatted down to her level and said the first word, "Setre. When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
+
+	"Casra kept this plan from you because you were completely unexpected. You came out of nowhere, you saved Linyu, and got caught up in this war of secrets. But now when I look at you, leading a band of hundreds, picking up where Casra left; I can tell thi made the right choice to pull you out of Lissa's reach."
+
+	"I would be honored, but I know thi only did it expecting I would help hae. There have been many times when I doubted hae vision and my role in it."
+
+	"You're still here, ready to unseat a sociopathic brute from hae throne in the biggest cartel in Palinan."
+
+	"I guess I can't complain then," he said.
+
+	"So, the plan. Casra had originally intended to be captured by Lissa in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Lissa's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Lissa, and she started by plucking you straight from under the Shadestead. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
+
+	He stood up and faced the wall adjacent to the ladder.
+
+	"I'm just a doctor who got here yesterday, Setre. I will do the best I can, but I really don't know what I'm doing."
+
+	"You're wrong, Kipnu. Every person out there followed you here."
+
+	"They didn't have a better choice."
+
+	"They had the choice of trusting you or trusting Ram."
+
+	He let out a sigh. "And what about our numbers? We are outnumbered ten to one."
+
+	Setre laughed, "There are only a few hundred who can actually fight. And half of them are Casra's old tribemates. And besides, you have radio."
+
+	"The listeners? The whole invisible wall thing is revolutionary, but those listeners are just toys."
+
+	"Kipnu, have you ever considered how you could use it in a battle."
+
+	"Well... no."
+
+	"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners could be used for tactics. If you have one or two people surveying the Shadestead, your whole army can have the guardians pinned down and tied up before anyone knows sees through the inevitable chaos."
+
+	"That's brilliant."
+
+	"I know. That was my part of the idea."
+
+
+
+
+
+
+
+
+
+
+
+
+
+	Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
 
 	"Mamen, men, women. I've just given you  about to demonstrate something that will help us in our fight. What I've given you is called a listener. Casra made them here, and entrusted them to hae kaln and myself, and now I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
 
@@ -98,58 +234,6 @@ Setting:
 
 	Kip responded, "It's an invisible wall. And Casra taught us all how to knock on it."
 
-	For dinner, some of the experienced in the group had gone to catch fish on the eastern shore while the rest stayed behind to build a fire and rest for a following shift. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
-
-	"Kipnu, we need to talk!," she yelled. Many of the firemakers ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
-
-	"Setre, I know what you–"
-
-  "No time, let's talk in the house"
-
-  "Oh.. uh ok," he said.
-
-  Setre barely jumped off the ladder when she started talking again.
-
-  "Casra's plan is working, but I need you to–... Oh hi Linyu," she said, surprised at seeing hae face in the lantern light.
-
-  Her eyes wandered over to Ginnu who was rummaging through the herb box with her own lantern, and she asked in a suspicious tone, "How did you get here?"
-
-  Kipnu got off the ladder and set his arm on her shoulder.
-
-  "It's alright," he said, oblivious to the tension in the room. "This is Ginnu. She's with us."
-
-  An awkward pause punctuated the air, and Setre sliced through it, saying "Get the fuck away from my kaln."
-
-  
-
-<!--
-  Setre can't let Ginnu leave, or she might run to Ramne and tell Lissa that she's a traitor
-
-
-  They exchanged glares as Ginnu passed by her and up the ladder. A thump told Setre that Ginnu had closed the
--->
-
-
-  "Hold on. Hae plan?"
-
-  "Yes."
-
-
-<!--
-	"Ginnu, hide Linyu," he said, and she took hae into the safehouse. Kip grabbed a nearby stick to defend himself with.
--->
-
-<!--
-	Ramne had donned new luminescent flow tattoos much like the ones on Setre and had changed into reed clothing. But Kip saw that he had the same careless demeanor as he did at the shore.
-
-	"Kipnu, you're quite the talk of the island these days," Ramne said.
-
-	He responded, "Where is Casra?"
-
-	Setre tried to calm them, "Quiet, the both of you. We're here to negotiate."
-
-	Kipnu suddenly felt a twinge of distrust with Setre, but he considered that Setre might be putting on a show
--->
 
 <!--
 	"Ginnu, can you spare a moment?" Kip called out to her as she was building the fire. She paused to join them and he continued,
