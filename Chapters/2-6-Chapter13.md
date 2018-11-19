@@ -100,9 +100,39 @@ Setting:
 
 	For dinner, some of the experienced in the group had gone to catch fish on the eastern shore while the rest stayed behind to build a fire and rest for a following shift. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
 
-	"Kipnu, we need tot alk!," she screamed.
+	"Kipnu, we need to talk!," she yelled. Many of the firemakers ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
 
-	""
+	"Setre, I know what you–"
+
+  "No time, let's talk in the house"
+
+  "Oh.. uh ok," he said.
+
+  Setre barely jumped off the ladder when she started talking again.
+
+  "Casra's plan is working, but I need you to–... Oh hi Linyu," she said, surprised at seeing hae face in the lantern light.
+
+  Her eyes wandered over to Ginnu who was rummaging through the herb box with her own lantern, and she asked in a suspicious tone, "How did you get here?"
+
+  Kipnu got off the ladder and set his arm on her shoulder.
+
+  "It's alright," he said, oblivious to the tension in the room. "This is Ginnu. She's with us."
+
+  An awkward pause punctuated the air, and Setre sliced through it, saying "Get the fuck away from my kaln."
+
+  
+
+<!--
+  Setre can't let Ginnu leave, or she might run to Ramne and tell Lissa that she's a traitor
+
+
+  They exchanged glares as Ginnu passed by her and up the ladder. A thump told Setre that Ginnu had closed the
+-->
+
+
+  "Hold on. Hae plan?"
+
+  "Yes."
 
 
 <!--

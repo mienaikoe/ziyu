@@ -184,9 +184,9 @@ They both looked at each other, at a loss. Kip could see Casra's longing stare i
 
 Setre looked toward the entrance to the safehouse and called, "Kip!"
 
-He went up the ladder and walked out to meet them, with Linyu not far behind. The kaln ran to Setre and gave her a leg-hug, which she stopped down to return after some hesitation.
+He went up the ladder and walked out to meet them, with Linyu not far behind. The kaln ran to Setre and gave her a leg-hug, which she kneeled down to return after some hesitation.
 
-Kip leaned to Casra and asked, "Setre... is she the nather?". Thi confirmed with a nod.
+Kip leaned to Casra and asked, "You were bound?". Thi confirmed with a nod.
 
 Setre lifted herself back up and said to Kip, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Cas."
 
