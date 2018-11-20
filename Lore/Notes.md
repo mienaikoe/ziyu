@@ -17,6 +17,10 @@
 
 - More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
 
+- Make note of how firewood works in the Shadestead
+
+- Make a name for the island of the Shadestead, if you're going to call the Shadestead the big tent.
+
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
 
 

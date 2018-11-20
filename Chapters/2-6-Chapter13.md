@@ -46,7 +46,7 @@ Setting:
 
   "Is that so?" Kip asked, unconvinced. "How far are you willing to go to prove it?"
 
-  "I'll make weapons, I'll cook food, I'll fight alongside you."
+  "I cooked for Ramne, I can cook for a hundred. Or I'll fight alongside you."
 
   "And you would kill Ramne if it came to that?"
 
@@ -72,9 +72,35 @@ Setting:
 
 	He sighed. "You wouldn't understand."
 
-	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
+	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and thinking about what sort of torture Lissa had planned for Casra.
 
-	"Kipnu, we need to talk!," she yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
+	"Kipnu?" Linyu broke his silence for the first time since coming home.
+
+	"Linyu!" he said with a smile, and hugged hae. "How are you feeling?"
+
+	"I want to fight."
+
+	"Linyu, it's dangerous out there. Your mother would never forgive me if something happened to you."
+
+	"But mom needs me."
+
+	He held hae hands in his own.
+
+	"You're right, Linyu. But there are many ways to help that don't put your life in danger."
+
+  The firewood had been gathered, and a flame started. Ginnu was itching to build friendships, so she asked them, "Hey you two, did Casra ever keep any spices here?"
+
+  Linyu said, "Yea, plenty."
+
+  "Would you mind showing me?"
+
+  Kip retained some suspicion and said, "Yea, let's go," to make sure she wasn't alone with Linyu.
+
+  He followed behind them and waited until they entered, but before he entered he heard footsteps, hard and fast in the distance.
+
+  "You two go down. I'll handle this," he told them.
+
+	"Kipnu, we need to talk!," Setre yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
 
 	"Setre, what are you doing here?"
 
@@ -212,7 +238,7 @@ Setting:
 
 	"But that means you'll look just like the others."
 
-	"I'll personally make sure your guardians don't try to kill anyone. By the time you start, my job of restarting Casra's old tribe will be done."
+	"I'll have a listener on my ear. By the time you start, my job of restarting Casra's old tribe will be done."
 
 	"What about Casra, where will thi be?"
 
@@ -279,52 +305,13 @@ Setting:
 	"Yea. Let's go," he said.
 
 	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as bound triples, and some were unbound triples and couples. Some were older people who had known people who had lived in the Shadestead a long time ago, and they told their stories of survival and building. The younger ones had just heard offhand that the Shadestead was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
-	
+
 	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
 
-	"Mamen, men, women. I've just given you  about to demonstrate something that will help us in our fight. What I've given you is called a listener. Casra made them here, and entrusted them to hae kaln and myself, and now I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
+	"Mamen, men, women. Linyu is about to demonstrate something that will be crucial to our cause tonight. What I've given each of you is called a listener. Casra made them here, and entrusted them to hae kaln and myself. Now, I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
 
-	He walked over to Linyu, who had prepared the transmitter, and thi broke hae silence for the first time since Casra was taken away.
-
-	"Kipnu?"
-
-	"Linyu," he said, and hugged hae. "How are you feeling?"
-
-	"I want to fight."
-
-	"Linyu, it's dangerous out there. Your mother would never forgive me if something happened to you."
-
-	"But mom needs me."
-
-	He held hae hands in his own.
-
-	"You're right, Linyu. But there are many ways to help that don't put your life in danger." He looked at the transmitter and back at hae. "You know the radio better than anyone here. We'll need your help when the time comes, but we also need your help now. Can you show us how this works?"
-
-	Thi affirmed and moved to the transmitter box, connecting the battery to it with well-worn wires of steel. With a clear of the throat, as hae mother had done, thi began to sing the same song that Casra had sung to Kip. He watched as the group slowly began to comprehend what they were hearing, their faces lighting up with awe as they looked back at Kipnu. Casra's presence was filling the air like an invisible spirit of knowledge. He looked back at Linyu who for only a moment cracked a small smile.
+	Kip sent a nod in Linyu's direction which thi confirmed and moved to the transmitter box, connecting the battery to it with well-worn wires of steel. With a clear of the throat, as hae mother had done, thi began to sing the same song that Casra had sung to Kip. He watched as the group slowly began to comprehend what they were hearing, their faces lighting up with awe as they looked back at Kipnu. Casra's presence was filling the air like an invisible spirit of knowledge. He looked back at Linyu who for only a moment cracked a small smile.
 
 	Ginnu paced quickly toward him without a trace of the doubt she had before. She asked, "How is this possible?"
 
 	Kip responded, "It's an invisible wall. And Casra taught us all how to knock on it."
-
-
-<!--
-	"Ginnu, can you spare a moment?" Kip called out to her as she was building the fire. She paused to join them and he continued,
-
-	"I want to prevent any bloodshed tomorrow. Do you know of a way to "
--->
-
-<!--
-  "Do you even know their relationship?"
-
-  "Their hostility was pretty apparent back there."
-
-  "He's Linyu's father."
-
-  "Hah! You expect me to believe that? Casra was bound when thi got here."
-
-  "Everyone here lives a second life. Even Casra."
-
-  Linyu broke hae silence, and said, "It's true. Ram is my father."
-
-  Kip remembered that Casra had told him about hae darker life, but he never thought thi would be with a man like that.
--->
