@@ -72,7 +72,7 @@ Setting:
 
 	He sighed. "You wouldn't understand."
 
-	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the eastern shore to catch a late dinner while the rest stayed behind to build a fire and get a start on making defense weapons. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
+	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and planning their approach with Linyu who knew the terrain, and an apprehensive Ginnu who knew the people. Linyu was the first to hear footsteps in the distance, nudging Kip to look toward them. It was Setre.
 
 	"Kipnu, we need to talk!," she yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
 
@@ -182,7 +182,7 @@ Setting:
 
 	He let out a sigh. "And what about our numbers? We are outnumbered ten to one."
 
-	Setre laughed, "There are only a few hundred who can actually fight. And half of them are Casra's old tribemates. And besides, you have radio."
+	Setre smirked and said, "There are only a few hundred who can actually fight. And half of them are Casra's old tribemates. And besides, you have radio."
 
 	"The listeners? The whole invisible wall thing is revolutionary, but those listeners are just toys."
 
@@ -190,25 +190,97 @@ Setting:
 
 	"Well... no."
 
-	"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners could be used for tactics. If you have one or two people surveying the Shadestead, your whole army can have the guardians pinned down and tied up before anyone knows sees through the inevitable chaos."
+	"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Shadestead, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
 
-	"That's brilliant."
+	"That's brilliant, but how can I transmit from trees?"
 
-	"I know. That was my part of the idea."
+	"You think that big tree out there is the only one Casra made? Thi and Linyu wrapped countless trees when they lived in the Shadestead and Linyu made a small transmitter box that can work with any of them."
 
+	"Linyu?"
 
+	Thi nodded and said, "I like climbing, and mom wanted to know where I was when I did."
 
+	Kip smiled at him, impressed and thinking of Casra.
 
+	He continued his questions, "Okay, so how do we even locate guardians?"
 
+	"They all have markings like mine. Impossible to miss in a dark place like the Shadestead."
 
+	"Seems like an oversight. That's unlike hae."
 
+	"The Guardians rely on fear and intimidation. The blue light is so we can see our enemies clearly while they see nothing but a flash of light."
 
+	"But that means you'll look just like the others."
 
+	"I'll personally make sure your guardians don't try to kill anyone. By the time you start, my job of restarting Casra's old tribe will be done."
 
+	"What about Casra, where will thi be?"
 
+	"It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa and Ramne hid hae and they haven't been seen since then."
 
+	"Where do you suppose they hid?"
 
-	Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
+	"I don't know. I saw them go East, but there's not much over there besides trees and snow."
+
+	"Snow?"
+
+	"Ah yea there's no snow on the mainland is there? Snow is fun."
+
+	"So what should we do? They could come back at any time."
+
+	"You have radio. If they come back at a bad time, change your strategy."
+
+	"You make this sound easy. Maybe you should be there."
+
+	"It's easier than you think, Kipnu. If your team is in danger, call a retreat. If they've already taken the guardians down, then just tell them to hide and wait for one of us. As for me, I can't be with you. I need to stay at the Shadestead to make sure everything stays smooth until your ambush."
+
+	Kip let out a sigh but Setre didn't give him the time to doubt himself again, "Kipnu, you need to commit this map to memory. When you look down at us from the trees, and see nothing but fire and blue lines, you'll need to imagine this map imprinted in the ground so you can tell your team where to go."
+
+	He took the lantern from Setre and studied the ground while she moved to the hay bed where Linyu was fidgeting with a box that Kip assumed was a transmitter. For a moment, Setre began to show a softer side, a natherly side, while Kip snuck glances at the two, but Linyu didn't share the same warmth that Setre had. He wondered if Setre chose to silently face her regrets or just ignore them altogether. Whichever it was, it got her this far without turning into the disgusting person Ramne had turned into.
+
+	"How's that map?" Setre asked.
+
+	"I think I've got it."
+
+	"Where's the armory?"
+
+	"Whoa we're doing a quiz? Uhh directly East of the great fire."
+
+	"And the slaves tents?"
+
+	"Directly east of that"
+
+	"Where are the entrances to the Shadestead"
+
+	"I knew you put those stakes in the drawing for a reason. The whole perimeter is an entrance."
+
+	"You are ready," Setre said with a smile. "Now let's go prepare the rest of them. Linyu, go have some dinner with the group. We'll be right behind you."
+
+	Once Linyu had left, Setre became very somber.
+
+	"There's one more thing we haven't discussed yet."
+
+	"Is it about Linyu?"
+
+	"No. It's about what happened last night."
+
+	Kip was listening, but felt a slight panic ensuing.
+
+	"Kip, I might be pregnant, and... I know you're bound..."
+
+	Setre struggled to finish the sentence, her sighs unwavering in their interruptions. His arm went to her shoulder and she lifted her own to catch it and hold it. They shared a moment that was not romantic, but placid.
+
+	Kip swore to her, "Set, if it is true that you're pregnant, and if you decide to keep it. I swear to you that I will do everything to make sure our child will not just have one parent."
+
+	Setre refused to cry, but Kip didn't have the same mental strength. He leaned into her and took a moment to let out all of what had happened to him as tears on her shoulder. Setre wrapped her arms around him, letting a single tear of understanding fall on his neck.
+
+	Once Kip had calmed back down, Setre said to him, "Alright. let's get some dinner."
+
+	"Yea. Let's go," he said.
+
+	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as bound triples, and some were unbound triples and couples. Some were older people who had known people who had lived in the Shadestead a long time ago, and they told their stories of survival and building. The younger ones had just heard offhand that the Shadestead was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
+	
+	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
 
 	"Mamen, men, women. I've just given you  about to demonstrate something that will help us in our fight. What I've given you is called a listener. Casra made them here, and entrusted them to hae kaln and myself, and now I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
 
