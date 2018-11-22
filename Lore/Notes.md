@@ -23,6 +23,8 @@
 
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
 
+- Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
+
 
 Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
   - Most realistic

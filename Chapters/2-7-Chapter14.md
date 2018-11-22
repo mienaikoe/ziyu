@@ -67,12 +67,42 @@
 
 	"You'll see."
 
-	When they reached an area with a lot of smaller branches, they could see clear rays of an infrared light dancing between the leaves. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a minute.
+	When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
 
 	"Why is it so bright up here?"
 
 	"When you've been in the dark for so long, the light can seem painful."
 
-	He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara in a gradient from dark to light. The Shaki Mountains, the Northern one of which the city was carved. And the lines of houses and farms, mere specks on the land that formed a geometric pattern as natural as Ara itself.
+	He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara in a gradient from dark to light. The Shaki Mountains, the Northern one out of which the city was carved. And the lines of houses and farms, mere specks on the land that formed a geometric pattern as natural as Ara itself.
 
-	"This is beautiful. I could never leave."
+	"Absolutely beautiful," he said. Linyu remained quiet, remembering all the times hae mother brought hae there. Kip secured his footing and turned around to look toward Ulu. Through the darkness, Kip could see cloud cover for at least as far as he could see, which was only about the length of the island. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky.
+
+  "Linyu, what are those red dots?" he asked, pointing toward the horizon.
+
+  "Don't know. Mom calls them Ara's children. They're always right above the clouds when Ara is far away."
+
+  "And they've always been there?"
+
+  "Always."
+
+  Kip was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do.
+
+  "Well, shall we move a bit closer?" He asked.
+
+  "Can I ask you something first?"
+
+  He hesitated, "Well, sure."
+
+  "Once this ends, and you go back to your home on the mainland. Don't forget about us."
+
+  Hae doubtful eyes peered into a part of himself he had long forgotten. As if Linyu was directing Kip's subconscious, and he himself was just a passenger.
+
+  "I could never forget about you, Linyu. Or your mother, or your nather."
+
+  "You can. And you might. I'm just saying this so you don't have an excuse."
+
+  Kip felt a tear well up without surfacing. *Your father. He must have forgotten you.* He cracked a small smile to cover his sympathy and said, "No excuses, no mistakes. You have my word."
+
+  But Linyu didn't smile; thi gathered hae things for the climb across the canopy, toward the clearing where the great fire burned bright in the darkness.
+
+  

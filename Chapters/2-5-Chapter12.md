@@ -131,7 +131,7 @@
 
 	"And yet you would humiliate me in front of hae? If you're going to take me, then get to it."
 
-	Ramne made a thunderous grunt, and nearly twenty others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them. Kip followed after hae but they were both stopped in their tracks by a long dagger held out by a woman twice Kip's weight in muscle - one of Ramne's allies.
+	Ramne made a thunderous grunt, and ten others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them. Kip followed after hae but they were both stopped in their tracks by a long dagger held out by a woman twice Kip's weight in muscle - one of Ramne's allies.
 
 	Casra said to Ramne, "I hope your woman is as disappointed in you as I am."
 
