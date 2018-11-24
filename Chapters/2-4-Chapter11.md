@@ -109,7 +109,7 @@
 
   "Is that why you built it into a tree?"
 
-  "Yes. Setre climbed this tree a few La'to ago to mount a casting wire to the top. It was a dangerous job, but hardly the most dangerous thing she's ever done."
+  "Yes. Lin climbed this tree many La'to ago to mount a casting wire to the top. It was dangeorus, but I raised hae to fight danger with skill."
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 

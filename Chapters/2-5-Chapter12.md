@@ -21,7 +21,7 @@
 
   "I'm starting to wonder if he enjoys jumping into cold water," Linyu said.
 
-  "He's a dreamer...he'll wake up eventually," Casra replied.
+  "He's a dreamer...and he wants to wake up," Casra replied.
 
   The cold of the sea bit at his limbs but he wasn't letting it bother him - these people needed his help. The pebble sea floor took him as far as it could, and then he began to swim toward that crimson red horizon. But before reached them, they had found solid footing and no longer needed help. His own feet, however, were starting to go numb and he realized that he was in a worse predicament than they were. He turned back toward the shoreline and made it to an area of solid footing before the water began to feel warmer, and his frustration had turned to fear. Breathing had become too difficult to call for help and everyone was too focused on getting to safety to notice that he was still behind them. His muscles started to spasm and lock up - first his legs, then his arms, then he started to sink.
 
@@ -43,7 +43,7 @@
 
 	"I said. I'm fine."
 
-	Thi looked at him with a stern eye, but his own remained vacantly fixed on that invisible specter that haunts in the distance.
+	Thi looked at him with a stern eye, but his own remained vacantly fixed on an invisible specter in the distance.
 
   After a tense moment, he turned around and asked, "Who the hell even are you, Cas? Why should I trust anything you have to say?"
 
@@ -95,7 +95,7 @@
 
 	The people returned to talking, and Casra began to approach a fire when a man from the back started cackling.
 
-	"Fate be gentle! Hahaha" He laughed to the wind as he reclined next to the fire. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A woman, a bit younger than him, tugged on his arm to stop, but he twisted free of her grasp and pushed her away.
+	"Fate be gentle! Hahaha" He laughed to the wind as he reclined next to the fire. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A woman, a bit younger than him and dressed in a tight black robe, tugged on his arm to stop but he twisted free of her grasp and pushed her away.
 
 	He stepped forward into the center and continued, "Casra, you fool. Lissa grants the wishes of those who earn the right to have them. These slaves, you call them, they're lazy and they're wicked. Lissa did what you were too weak to do."
 
@@ -109,7 +109,7 @@
 
 	"How do I say it? Life is good on the other side of poverty. Though you wouldn't know anything about that, would you?"
 
-	The woman begged him to stop, "Ram... Stop this. You're going to get us hurt."
+	The woman begged him to stop, "Ram... Stop this."
 
 	Casra interrupted, "Oh, so there's an us now?"
 
@@ -131,7 +131,7 @@
 
 	"And yet you would humiliate me in front of hae? If you're going to take me, then get to it."
 
-	Ramne made a thunderous grunt, and nearly twenty others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them. Kip followed after hae but they were both stopped in their tracks by a long dagger held out by a woman twice Kip's weight in muscle - one of Ramne's allies.
+	Ramne made a thunderous grunt, and ten others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them. Kip followed after hae but they were both stopped in their tracks by a long dagger held out by a woman twice Kip's weight in muscle - one of Ramne's allies.
 
 	Casra said to Ramne, "I hope your woman is as disappointed in you as I am."
 

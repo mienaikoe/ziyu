@@ -11,7 +11,20 @@
 
 - Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.
 
-- Show the fervor of industrial revolution.
+- Show the fervor of industrial revolution in depictions of Shaki or trains.
+
+- Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
+
+- More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
+
+- Make note of how firewood works in the Shadestead
+
+- Make a name for the island of the Shadestead, if you're going to call the Shadestead the big tent.
+
+- Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
+
+- Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
+
 
 Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
   - Most realistic
