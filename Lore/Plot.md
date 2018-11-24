@@ -52,6 +52,24 @@ Is a character that starts out bored with life and has lots of dreams and fantas
       - Nature only speaks when it suffers.
       - You can only learn from suffering.
 
+  - Part 1
+    - How do you place a value on people in a perfect communism?
+    - The pitfalls of legalism
+  - Part 2
+    - Mental/Emotional torture
+    - The power of Radio
+    - Inherent evil/good and the pitfalls in believing in either
+    - In some situations, trust is impossible
+  - Part 3
+    - How people deal with famine and fear through war, greed, and turning a blind eye in favor of legalism.
+      - Even utopian socialisms can be corrupt in times of great fear.
+    - How dictatorships can stymie their own progress by setting up a chain of distrust.
+    - How fear can lead to rash thought leadership that leads to worse positions (Holragi's bombs).
+  - Part 4 / Epilogue
+    - The Final Problem: What will life come up with if it can be sustained for millenia?
+      - An end to the great filter
+    - The value of ethics wrt radical climate change stoppage.
+
 
 
 ## Plot
