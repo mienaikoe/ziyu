@@ -105,4 +105,4 @@
 
   He cracked a small smile to cover his sympathy and said, "No excuses, no mistakes. You have my word."
 
-  But Linyu didn't smile; thi gathered hae things for the climb across the canopy, toward the clearing where the great fire burned bright in the darkness below.
+  But Linyu didn't smile; thi gathered hae things and climbed across the canopy, toward the clearing where the great fire burned bright in the darkness below.

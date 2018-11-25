@@ -13,6 +13,11 @@
 
 - Show the fervor of industrial revolution in depictions of Shaki or trains.
 
+- Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
+
+- Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
+  - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?
+
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
 
 - More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
