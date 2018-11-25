@@ -97,12 +97,12 @@
 
   Hae doubtful eyes peered into a part of himself he had long forgotten. As if Linyu was directing Kip's subconscious, and he himself was just a passenger.
 
-  "I could never forget about you, Linyu. Or your mother, or your nather."
+  "I could never forget about you, Linyu. Or your mother, or your nather. I will find a way to clear Ara and I'll come back to tell you all the stories."
 
-  "You can. And you might. I'm just saying this so you don't have an excuse."
+  "That's what all of the clean say to the people they meet while they're here. They never come back."
 
-  Kip felt a tear well up without surfacing. *Your father. He must have forgotten you.* He cracked a small smile to cover his sympathy and said, "No excuses, no mistakes. You have my word."
+  Kip felt a tear well up without surfacing. *Your father. Where has he been in your life?*
 
-  But Linyu didn't smile; thi gathered hae things for the climb across the canopy, toward the clearing where the great fire burned bright in the darkness.
+  He cracked a small smile to cover his sympathy and said, "No excuses, no mistakes. You have my word."
 
-  
+  But Linyu didn't smile; thi gathered hae things for the climb across the canopy, toward the clearing where the great fire burned bright in the darkness below.
