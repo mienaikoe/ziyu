@@ -220,7 +220,7 @@ Setting:
 
 	"That's brilliant, but how can I transmit from trees?"
 
-	"You think that big tree out there is the only one Casra made? Thi and Linyu wrapped countless trees when they lived in the Shadestead and Linyu made a small transmitter box that can work with any of them."
+	"You think that big tree out there is the only one Casra made? Thi and Linyu wrapped countless trees when they lived there and Linyu made a small transmitter box that can work with any of them."
 
 	"Linyu?"
 
@@ -230,7 +230,7 @@ Setting:
 
 	He continued his questions, "Okay, so how do we even locate guardians?"
 
-	"They all have markings like mine. Impossible to miss in a dark place like the Shadestead."
+	"They all have markings like mine. Impossible to miss in the dark."
 
 	"Seems like an oversight. That's unlike hae."
 
@@ -276,7 +276,7 @@ Setting:
 
 	"Directly east of that"
 
-	"Where are the entrances to the Shadestead"
+	"Where are the entrances to the Great Tent?"
 
 	"I knew you put those stakes in the drawing for a reason. The whole perimeter is an entrance."
 
@@ -304,7 +304,7 @@ Setting:
 
 	"Yea. Let's go," he said.
 
-	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as bound triples, and some were unbound triples and couples. Some were older people who had known people who had lived in the Shadestead a long time ago, and they told their stories of survival and building. The younger ones had just heard offhand that the Shadestead was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
+	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as families bound and unbound, and some were individuals who had heard stories of Ulukoma from people they knew. The younger ones only knew that Ulukoma was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
 
 	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
 

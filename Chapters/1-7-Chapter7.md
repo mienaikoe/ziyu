@@ -159,7 +159,7 @@ I felt a slight relief, but knew the other was inescapable.
 
 The conviction was expected, but it still hurt in an aggravating way. Like a tiny worm latched to my ribcage.
 
-"The sentence shall be a period of three La'To at the Shadestead in Ulu. Do you understa-"
+"The sentence shall be a period of three La'To in Ulukoma. Do you understa-"
 
 The door opened in a rush, and the magistrate paused to see who caused the disturbance. Two lanterns were in view.
 

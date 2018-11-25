@@ -98,7 +98,7 @@
 
   "Surely you can make an exception"
 
-  "And I would surely be sent to Ulu for it."
+  "And I would surely be sent to Ulukoma for it."
 
   He sighed in frustration burying his eyes in his hand.
 
@@ -118,7 +118,7 @@
 
   "That's crazy, you'll be sent away."
 
-  "If this is as important as you say, then it would be worth a few tova in Ulu."
+  "If this is as important as you say, then it would be worth a few tova in the dark."
 
   He shouted, "More than just a few!"
 
@@ -175,7 +175,7 @@
 
   He released his grip, and I stood in the doorway, still vying with my own thoughts.
 
-  *I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulu and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land*
+  *I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land*
 
   He pushed again, "If you won't tell me, then I'm going with you to find out myself."
 

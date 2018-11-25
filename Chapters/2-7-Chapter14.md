@@ -51,11 +51,11 @@
 
 	"This is the tree you start on. We can travel between trees once we get up above."
 
-	He looked up into the dark abyss, and put his full trust in Linyu. Linyu and Kip tied a rope to each other, one to the transmitter, and another long one for rappeling back down, and began the climb up the tree. They were relying on the lean of the tree to support their weight with each vault to the next position. With such a large tree, Kip was struggling to wrap his legs in a way that would secure him, but he watched as Lin focused on scaling it with hae feet in the various crevasses that formed out of the bark.
+	He looked up into the dark abyss, and put his full trust in Linyu. They tied a rope to each other, one to the transmitter, and another long one for rappeling back down, and began the climb up the tree. They were relying on the lean of the tree to support their weight on each vault to the next position. With such a large tree, Kip was struggling to wrap his legs in a way that would secure him, but he watched as Linyu focused on scaling it with hae feet in the various crevasses that formed out of the bark.
 
-	"Wait up, Linyu," he said, feeling a tug on the rope.
+	"Wait up, Linyu," he said, feeling an upward tug on the rope.
 
-	"Sorry, Kipnu. I got carried away."
+	"Sorry, Kipnu."
 
 	Nearing the top, Kip could see branches, which served as nice places to rest, and the beginning of a canopy, with hints of Ara at the top.
 
@@ -99,10 +99,18 @@
 
   "I could never forget about you, Linyu. Or your mother, or your nather. I will find a way to clear Ara and I'll come back to tell you all the stories."
 
-  "That's what all of the clean say to the people they meet while they're here. They never come back."
+  "That's what every outsider says to the people they meet while they're here. They never come back."
 
-  Kip felt a tear well up without surfacing. *Your father. Where has he been in your life?*
+  Kip felt a tear well up without surfacing. He wanted to say *I'm not whoever disappointed you. I mean the things that I say*. But instead he cracked a small smile to cover up his sadness and said, "No excuses, no mistakes. You have my word."
 
-  He cracked a small smile to cover his sympathy and said, "No excuses, no mistakes. You have my word."
+  But Linyu didn't smile; thi gathered hae things and climbed across the canopy, toward the clearing where the great fire burned brightly in the darkness below.
 
-  But Linyu didn't smile; thi gathered hae things and climbed across the canopy, toward the clearing where the great fire burned bright in the darkness below.
+	They reached the base of a long thick branch that jutted its way into the opening, and Linyu found a coil wrapped around a smaller branch that grew out of it. Kip pulled up the battery and wrapped the slack rope in a simple knot around the smaller branch while Linyu twisted wires from the transmitter box to the coil ends. One-by-one, Linyu checked all of the connections and oriented the long face of the box toward the ground. Kip pulled a listener out of a satchel he was carrying and held it to his ear as an eager Linyu positioned haeself to speak into the transmitter.
+
+	Thi spoke into the transmitter with anticipation, "If you can hear this, we're ready to go," and then laughed at Kip who had pulled it away from his ear because it was so loud.
+
+	"It's louder, the closer you are," thi said.
+
+	"Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked down onto the Shadestead, mapping the outlines of different sectors in their heads. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks and the others were eating a late dinner closer to the armory. The faint raucous of the tent.
+
+	feeling the mix of warm currents from the fire and the cold Ulu breeze above. 

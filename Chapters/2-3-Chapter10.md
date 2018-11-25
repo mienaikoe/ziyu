@@ -69,11 +69,11 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
 "You were the cause of your own suffering."
 
-"Yes. I lost my spouses and my kaln. When I found out that Lin had come to the Shadestead to be with me, I sobered up out of slavery and decided I would help those within my tribe to do the same thing. It worked so well that I was able to create a tribe of my own, full of ex-addicts that swore to me the lives I had given back to them. My tribe became the largest and most powerful in the Shadestead. But, I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre fought on my behalf but I knew that it was best for me to leave."
+"Yes. I lost my spouses and my kaln. When I found out that Lin had come to Ulukoma to be with me, I sobered up out of slavery and decided I would help those within my tribe to do the same thing. It worked so well that I was able to create a tribe of my own, full of ex-addicts that swore to me the lives I had given back to them. My tribe became the largest and most powerful in the Shadestead. But, I was deposed... Lissa's tribe became dominant through manipulation. You saw firsthand what thi will do to get hae way. Lissa became possessive of some of my men and women and turned them against me. Setre fought on my behalf but I knew that it was best for me to leave."
 
 "Setre? Thi was with you?"
 
-"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she had grown to adulthood, she escaped from slavery and went to Shaki Harbor. She searched for a long time for a place to call home, but could never trust anyone enough to make a living. She came to the Shadestead on her own request, and discovered that her skills at protecting herself could be put to good use protecting me. We became... close. Very close... But then Lissa came onto the scene, and she grew impatient with me and convinced that I should have taken her out hae before. When Lin and I were forced to leave, I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. I asked old patients who had just come back what they knew about the Shadestead, and I learned that Lissa had come into power, and that my tribe was completely gone. When I heard from Lin that Set had captured you and was covered with Lissa's markings, I knew she had given up."
+"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she had grown to adulthood, she escaped from slavery and went to Shaki Harbor. She searched for a long time for a place to call home, but could never trust anyone enough to make a living. She came to Ulukoma on her own request, and discovered that her skills at protecting herself could be put to good use protecting me. We became... close. Very close... But then Lissa came onto the scene, and she grew impatient with me and convinced that I should have taken her out hae before. When Lin and I were forced to leave, I promised her I would return one day. I taught her everything I knew, hoping she would keep the tradition. I asked old patients who had just come back what they knew about the Shadestead, and I learned that Lissa had come into power, and that my tribe was completely gone. When I heard from Lin that Set had captured you and was covered with Lissa's markings, I knew she had given up."
 
 "So everything you came back for is gone."
 
@@ -93,7 +93,7 @@ Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi
 
 "Listening? To what?"
 
-"Signals in the air? Ghosts? Whoever decides to transmit what they hear. I just learned how to do it before I left the Shadestead, but Holragi must know all about them by now if Set grew up with them."
+"Signals in the air? Ghosts? Whoever decides to transmit what they hear. I just learned how to do it before I left Ulukoma, but Holragi must know all about them by now if Set grew up with them."
 
 "So you're saying people from Holragi can just talk to each other over vast distances with nobody butting in? Why can't we hear them?"
 
@@ -170,7 +170,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 She regained hae composure and said, "Please... Tell me what happened."
 
-"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the shadestead and killed people in hae own tribe that thi suspected of espionage."
+"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the Shadestead and killed people in hae own tribe that thi suspected of espionage."
 
 "Why didn't you take action to stop it?"
 

@@ -112,7 +112,7 @@ With a flick of the wrist, she sliced through a fatty part of his side, making K
 
 She pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the shadestead. Lissa will speak with you."
+"Bandage yourself up and come back into the Great Tent. Lissa will speak with you."
 
 "I have nothing to talk with hae about."
 

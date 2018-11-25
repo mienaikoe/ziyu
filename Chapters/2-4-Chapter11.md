@@ -42,7 +42,7 @@
 
   The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel... What ire does your day bring? Will you take me back?*
 
-  Linyu emerged with a small circular trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines the Shadesteaders marked themselves with. The trinket was a ring of coiled copper with a few beads attached to it and a another smaller coil with a large bead in the middle of it. It smaller than he imagined - not the huge metal monstrosities he had imagined them to be. Thi handed the listener to Kip and then went to hae mother to spread the plants all around the tree.
+  Linyu emerged with a small circular trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a another smaller coil with a large bead in the middle of it. It smaller than he imagined - not the huge metal monstrosities he had imagined them to be. Thi handed the listener to Kip and then went to hae mother to spread the plants all around the tree.
 
   "That must be where the lines-"
 
@@ -113,7 +113,7 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave the Shadestead to and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
+  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
 
   "What sorts of plans?"
 
@@ -169,7 +169,7 @@
 
   Kip, kneeled down to set with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
-  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let the Shadestead fall into anarchy once before and I must not let it happen again."
+  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let it fall into anarchy once before and I must not let it happen again."
 
   "Please... when the time comes...reconsider. Radio could be the answer we're looking for."
 

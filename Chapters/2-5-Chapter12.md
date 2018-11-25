@@ -9,7 +9,7 @@
 
 	"Sounds like you know her well."
 
-	"I'm a traveler between the Shadestead and Shaki... I find friends in strange places."
+	"I'm a traveler between Ulukoma and Shaki... I find friends in strange places."
 
 	Kip looked out at the dark sea and the dark hint of red and infrared that lie above it. There was far more he could see now that his eyes adjusted, but the waves were still waves. Casra's face was the same expression he had come to expect from hae: calm, intelligent, and resolute. Whatever this plan was, he was certain thi had thought about it for many Ma'to.
 
@@ -61,7 +61,7 @@
 
   "You know what, I don't even care what happens here," Kip replied. "In eleven days I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
 
-  "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they can't control. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're an addict'? For me, I'd rather it all freeze to death. The Shadestead will forge a new path in the dark."
+  "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they can't control. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're an addict'? For me, I'd rather all under Ara freeze to death. Ulukoma will forge a new path in the dark."
 
 	"And you would leave your husband and wife to die too?"
 
@@ -75,7 +75,7 @@
 
 	Thi stood on a rock and called out for quiet before addressing them.
 
-	"Mamen, Women, Men. My name is Casra, and I'm a doctor here on the Shadestead. There are far more of you here today than we have ever had before."
+	"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. There are far more of you here today than we have ever had before."
 
 	A voice called out from the crowd, "Ara is dying!"
 
