@@ -2,28 +2,48 @@
   - They storm the castle
     - Linyu and Kip watch from the treetops
       - Linyu issues orders based on what thi sees
-    - They steal the weapons successfully
-      - was way too easy. It's a ambush yo
-      - Guardians are outside the armory. Kip tells them to hold tight and leaves post
-      - Bares his chest and looks for Setre.
 
-  - Kip instead finds Casra and Ram holding hae
-    - Ram knocks Kip down
-    - Setre saves him and Casra
-    - Ram runs away
+		- It takes a long time for a recon to come back
+			- Kip goes out to check what's going on
+			- Finds Setre tied by Ramne, who is interrogating her.
+			- The recon is dying in front of them.
+			- Ramne is surprised and turns his attention away for a second, and Setre trips him.
+			- Setre holds him down while Kip unties her ropes and uses them on him.
 
-  - They go back to find Setre's force and Kip's force working together to take subdue guardians.
-    - Some are killed, some yield.
-    - Setre and Kip declare a victory, but they don't hear Linyu's voice anymore.
+		- They leave to take the recon back to the group.
+			- Kip helps hae while Setre leads the charge with Linyu's help and the armory's weapons.
+			- Setre says "The wind speaks", many guardians say "Ulu listens" and rise against the other guardians.
+			- Most Shadesteaders flee for safety as the few that aren't allied with Casra try to fight back and fail.
+			- Most try to escape and are captured by Kip's group, and surrender.
+			- One of them escapes, and carries a hot burning twig from the great fire to burn the tent down, and everyone flees.
 
-  - Cas, Kip, and Set find the transmitter box on the ground and footsteps to safehouse.
-    - They go to safehouse where Lin is held by knifepoint
-    - Ginnu has been untied
-    - Ram bows out as it's "not his battle"
-    - X tries to stop Lissa, but Lissa kills Linyu
-    - Lissa dies by X
-    - Ginnu and Ramne disappear. Ginnu left a note on the floor of the house.
+		- Lissa comes back amidst the sound of chaos, and finds the great tent burning
+			- (Has been torturing Casra, tying hae up and marking hae whole body with luminescent tattoos in the cold, doping hae with kanosin)
+			- Lissa goes to the armory and finds Ramne tied up, and unties him
+			- Linyu notifies Set and Kip of Ram and Lissa trying to ambush them
+				- Ramne distracts them while Lissa swiftly injures them both.
+				- Ramne goes straight to the tent to save several boxes of Kanosin.
+			- Casra returns, naked and bloody and drugged, but fighting through it.
+				- Thi stops Lissa from killing Setre, pushing hae off of Setre and killing hae in a vengeful rage.
+			- The heat and smoke start to make Linyu woozy. Thi falls off the branch and holds on by the radio wires, barely conscious.
+				- Casra climbs after hae, but is too late.
+				- Ramne is busy saving Kanosin from the fire at the great tent, and sees Linyu.
+				- Ramne leaves hae dangling, and thi falls into the fire.
 
+
+
+	= I can kill Setre and Casra, leaving no one to lead, while totally enraged at Kip for leaving hae.
+		- Mel will need hae help to feed and hold people in the dark, away from robot sight.
+			- Robots would be smarter than this, wouldn't they?
+		- Ramne and Ginnu would likely take over and repeat the same problem.
+			- What's the point?
+				- Linyu will become a villain, conquering Ulukoma and then the rest of the world.
+				- Kip wakes up from the dream of a happy ending.
+	= If I kill Linyu instead, Kip wakes up from the dream of a happy ending still
+		- Ulukoma goes on in better hands, but is eternally bitter at Kip for his negligence.
+			- Reluctant to help Heiko store people.
+				- Question of whether robots would be smarter than this.
+				- Heiko doesn't do this to hide people, but to buy time.
 
 -->
 
@@ -67,7 +87,7 @@
 
 	"You'll see."
 
-	When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
+	When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind above. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
 
 	"Why is it so bright up here?"
 
@@ -111,6 +131,38 @@
 
 	"It's louder, the closer you are," thi said.
 
-	"Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked down onto the Shadestead, mapping the outlines of different sectors in their heads. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks and the others were eating a late dinner closer to the armory. The faint raucous of the tent.
+	"Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked over the big branch onto the Shadestead, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
 
-	feeling the mix of warm currents from the fire and the cold Ulu breeze above. 
+	Kip moved to the transmitter and said, "Seven guardians around the fire. Five near the armory. Approach from the East, everyone. Approach from the East."
+
+	Linyu pointed to the south as the first signs of movement came from their group, moving in a line toward the Shadestead and shifting their movement to the East. *Setre's plan is working!*, he whispered.
+
+	Their view of the armory was slightly obscured, but they watched as the group circled around it from the back.
+
+	He noticed one of the eating guardians look to the side, and he quickly said, "Stop! Stop!" into the transmitter. They did, and the guardian went back to eating.
+
+	"Walk slower and spread out," he said. And they watched as the group followed his orders. Once they reached the back side of the armory, Kip addressed the most agile maman in the group, "Penyi, go in and survey the place. The rest of you, sit tight and get your bearings." Kip kept his eyes on the guardians, watching every move and thinking of contingencies in case they did catch on. Moments stretched longer and longer until Kip began to feel uneasy about the time it was taking to search a tent so small.
+
+	He asked Linyu, "What do you think is taking hae so long?"
+
+	Thi shrugged and kept watching the scene, but Kip was getting impatient.
+
+	"I'm going down there"
+
+	"But I need you up here," thi said.
+
+	"You'll be fine. It's just calling out things you see."
+
+	"But-"
+
+	He unwrapped the rope from Linyu and looped it around the first branch
+
+	"I'll be right back," he said.
+
+	"Kip!"
+
+	But he was off, heading down the tree before thi could stop him.
+
+	Once on the ground, Kip took the rope off and followed the pathway the group had taken as quietly as they had.
+
+	

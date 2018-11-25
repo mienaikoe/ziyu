@@ -198,7 +198,7 @@ She put her hand over his mouth saying, "Don't worry about me," and turned to Ca
 
 Casra called out to her, "The wind speaks!"
 
-Setre responded, "The wood listens!"
+Setre responded, "Ulu listens!"
 
 They looked on as the forest swallowed her cursed blue light, a living memory of Ara wandering in the darkness.
 
