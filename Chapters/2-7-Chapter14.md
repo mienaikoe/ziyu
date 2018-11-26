@@ -163,6 +163,22 @@
 
 	But he was off, heading down the tree before thi could stop him.
 
-	Once on the ground, Kip took the rope off and followed the pathway the group had taken as quietly as they had.
+	Once on the ground, Kip took the rope off and followed the pathway the group had taken as quickly and quietly as they had. Nearing the group, he saw their listeners and remembered to put his own on.
 
-	
+  "Hey, what's going on?" he asked them at a whisper.
+
+  A maman told him, "Not sure. Penyi went in, then... nothing."
+
+  "I'm going in. Someone come with me to be a messenger in case something goes wrong."
+
+  "I'll go," whispered a woman. She came forward on all fours to quiet her movements, introducing herself, "I am Fanla, a tracker from Heiko."
+
+  She was young, likely the kind who had come to Ulukoma on a whim. But fear was not apparent in her expressions - only excitement.
+
+  "Ok Fanla. Follow a few paces behind me. If I get hit, you run, got it?"
+
+  "Got it," She said.
+
+  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. He began by surveying the tent a little closer than he had before. Everything was blue and still, with no sign of Penyi. *Thi didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Fanla to come in.
+
+  They both slowly walked around the room, looking at the weapons that were stockpiled - daggers, spears, swords, bows and arrows. All hardened and sharpened to an infinitesimal edge.
