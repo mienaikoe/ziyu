@@ -53,7 +53,7 @@
 
 	Kip paused the group in their walk toward the Shadestead, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him.
 
-	"From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, confirm that the area is safe and get out. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one we could all be captured, so do not let this happen. And finally, Do Not Kill; I repeat Do Not Kill unless they are endangering your life or your partner's life. Setre will be there and she cannot be harmed. Everyone clear?"
+	"From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get out. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one we could all be captured, so do not let this happen. And finally, Do Not Kill; I repeat Do Not Kill unless they are endangering your life or your partner's life. Setre will be there and she cannot be harmed. Everyone clear?"
 
 	"Yea," the said in a broken unison.
 
@@ -81,7 +81,7 @@
 
 	"Why is it so bright up here?"
 
-	"These trees are so tall so their needles can reach Ara's light."
+	"These trees are so tall so their leaves can reach Ara's light."
 
 	"How do you mean?"
 
@@ -163,7 +163,7 @@
 
 	But he was off, heading down the tree before thi could stop him.
 
-	Once on the ground, Kip took the rope off and followed the pathway the group had taken as quickly and quietly as they had. Nearing the group, he saw their listeners and remembered to put his own on.
+	Back on the ground, Kip took the rope off and followed the pathway the group had taken as quickly and quietly as they had. Nearing the group, he saw their listeners and remembered to put his own on.
 
   "Hey, what's going on?" he asked them at a whisper.
 
@@ -179,6 +179,14 @@
 
   "Got it," She said.
 
-  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. He began by surveying the tent a little closer than he had before. Everything was blue and still, with no sign of Penyi. *Thi didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Fanla to come in.
+  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. His ears listening for any sign of trouble from the fire or from Lin, he began surveying the tent a little closer than he had before. All was blue and still, with no sign of Penyi. *Thi didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Fanla to come in.
 
   They both slowly walked around the room, looking at the weapons that were stockpiled - daggers, spears, swords, bows and arrows. All hardened and sharpened to an infinitesimal edge.
+
+	"Hey, look at this," Fanla beckoned from another side of the tent.
+
+	Kip shot a glance toward her feet where a small wooden door lay among the thin damp leaves. Its greased steel hinges and handle were made to be precise and quiet as it closed and opened.
+
+	"Maybe this is where Penyi went," she said.
+
+	""
