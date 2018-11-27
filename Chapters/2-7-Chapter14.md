@@ -5,21 +5,22 @@
 
 		- It takes a long time for a recon to come back
 			- Kip goes out to check what's going on
-			- Finds Setre tied by Ramne, who is interrogating her.
-			- The recon is dying in front of them.
-			- Ramne is surprised and turns his attention away for a second, and Setre trips him.
-			- Setre holds him down while Kip unties her ropes and uses them on him.
+			- Finds Fanla tied by Ramne, who is interrogating hae.
+			- Ramne is surprised and turns his attention away for a second.
+			- Fanla forces hae weight to knock him down and Kip disarms him and unties hae ropes and uses them on him.
 
-		- They leave to take the recon back to the group.
-			- Kip helps hae while Setre leads the charge with Linyu's help and the armory's weapons.
-			- Setre says "The wind speaks", many guardians say "Ulu listens" and rise against the other guardians.
+		- They secure the weapons and move on to the great tent
+			- The fire guardians find Ramne, they leave it.
+			- Kip says "The wind speaks", many guardians say "Ulu listens" and rise against the other guardians.
 			- Most Shadesteaders flee for safety as the few that aren't allied with Casra try to fight back and fail.
 			- Most try to escape and are captured by Kip's group, and surrender.
 			- One of them escapes, and carries a hot burning twig from the great fire to burn the tent down, and everyone flees.
 
-		- Lissa comes back amidst the sound of chaos, and finds the great tent burning
+		- Lissa and Casra come back amidst the sound of chaos, and finds the great tent burning
 			- (Has been torturing Casra, tying hae up and marking hae whole body with luminescent tattoos in the cold, doping hae with kanosin)
-			- Lissa goes to the armory and finds Ramne tied up, and unties him
+
+STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh before killing them both. This is Setre's story.
+
 			- Linyu notifies Set and Kip of Ram and Lissa trying to ambush them
 				- Ramne distracts them while Lissa swiftly injures them both.
 				- Ramne goes straight to the tent to save several boxes of Kanosin.
@@ -189,4 +190,6 @@
 
 	"Maybe this is where Penyi went," she said.
 
-	""
+	"Maybe," he said, taking up two daggers and handing one to Penyi. "I'll go down there. Stay here at the door."
+
+	Her apprehensive hands took the dagger and she looked up with resolve and concern for Kipnu, but he couldn't quell them - he had to find Fanla. With a creak, the door swung out and Kip pinned his arms and legs against the walls of a long narrow hole in the ground, descending into the darkness with only the blue light on his chest to guide him.

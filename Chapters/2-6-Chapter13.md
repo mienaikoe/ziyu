@@ -200,7 +200,7 @@ Setting:
 
 	"I'm just a doctor who got here yesterday, Setre. I will do the best I can, but I really don't know what I'm doing."
 
-	"You're wrong, Kipnu. Every person out there followed you here."
+	"No, Kipnu. Every person out there followed you here."
 
 	"They didn't have a better choice."
 
@@ -238,15 +238,15 @@ Setting:
 
 	"But that means you'll look just like the others."
 
-	"I'll have a listener on my ear. By the time you start, my job of restarting Casra's old tribe will be done."
+	"I'll be out looking for Casra."
 
-	"What about Casra, where will thi be?"
+	"Looking for hae?"
 
-	"It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa and Ramne hid hae and they haven't been seen since then."
+	"It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa took hae to the East and they haven't been seen since then."
 
 	"Where do you suppose they hid?"
 
-	"I don't know. I saw them go East, but there's not much over there besides trees and snow."
+	"I don't know, but there's not much over there besides trees and snow."
 
 	"Snow?"
 
@@ -256,11 +256,11 @@ Setting:
 
 	"You have radio. If they come back at a bad time, change your strategy."
 
-	"You make this sound easy. Maybe you should be there."
+	He sighed, overwhelmed with responsibility, "You make this sound easy. Maybe you should be there with us. We can find Casra together afterward."
 
-	"It's easier than you think, Kipnu. If your team is in danger, call a retreat. If they've already taken the guardians down, then just tell them to hide and wait for one of us. As for me, I can't be with you. I need to stay at the Shadestead to make sure everything stays smooth until your ambush."
+	"It's easier than you think. If your team is in danger, call a retreat. If they've already taken the guardians down, then just tell them to hide and wait for one of us. I really need to find Casra - she could be in great danger. I'll have a listener in my ear in case things go very wrong."
 
-	Kip let out a sigh but Setre didn't give him the time to doubt himself again, "Kipnu, you need to commit this map to memory. When you look down at us from the trees, and see nothing but fire and blue lines, you'll need to imagine this map imprinted in the ground so you can tell your team where to go."
+	Kip let out a sigh but Setre didn't give him the time to doubt himself again, "Kipnu, you need to commit this map to memory. When you look down at us from the trees, and see nothing but fire and blue lights, you'll need to imagine this map imprinted in the ground so you can tell your team where to go."
 
 	He took the lantern from Setre and studied the ground while she moved to the hay bed where Linyu was fidgeting with a box that Kip assumed was a transmitter. For a moment, Setre began to show a softer side, a natherly side, while Kip snuck glances at the two, but Linyu didn't share the same warmth that Setre had. He wondered if Setre chose to silently face her regrets or just ignore them altogether. Whichever it was, it got her this far without turning into the disgusting person Ramne had turned into.
 
@@ -278,7 +278,7 @@ Setting:
 
 	"Where are the entrances to the Great Tent?"
 
-	"I knew you put those stakes in the drawing for a reason. The whole perimeter is an entrance."
+	He smirked and said, "I knew you put those stakes in the drawing for a reason. The whole perimeter is an entrance."
 
 	"You are ready," Setre said with a smile. "Now let's go prepare the rest of them. Linyu, go have some dinner with the group. We'll be right behind you."
 
@@ -292,7 +292,7 @@ Setting:
 
 	Kip was listening, but felt a slight panic ensuing.
 
-	"Kip, I might be pregnant, and... I know you're bound..."
+	"Kip, I've been thinking... what if I get pregnant from last night?"
 
 	Setre struggled to finish the sentence, her sighs unwavering in their interruptions. His arm went to her shoulder and she lifted her own to catch it and hold it. They shared a moment that was not romantic, but placid.
 
@@ -314,4 +314,6 @@ Setting:
 
 	Ginnu paced quickly toward him without a trace of the doubt she had before. She asked, "How is this possible?"
 
-	Kip responded, "It's an invisible wall. And Casra taught us all how to knock on it."
+	Kip said, "The wind speaks."
+
+  Setre said, "And Ulu listens."
