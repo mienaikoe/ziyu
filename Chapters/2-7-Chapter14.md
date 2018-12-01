@@ -186,10 +186,74 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Hey, look at this," Fanla beckoned from another side of the tent.
 
-	Kip shot a glance toward her feet where a small wooden door lay among the thin damp leaves. Its greased steel hinges and handle were made to be precise and quiet as it closed and opened.
+	Kip shot a glance toward her feet where a small wooden door lay among the thin damp leaves. Its polished hardware was too precise to be made in Ulukoma, but its messy grease and handle reminded them of where they were.
 
 	"Maybe this is where Penyi went," she said.
 
-	"Maybe," he said, taking up two daggers and handing one to Penyi. "I'll go down there. Stay here at the door."
+	"Maybe," he said, taking up two daggers and handing one to Penyi. Her hands took the dagger as she looked up with concern for Kipnu, but he could do nothing to quell it - he had to find Fanla. Kip kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for two leading into the darkness.
 
-	Her apprehensive hands took the dagger and she looked up with resolve and concern for Kipnu, but he couldn't quell them - he had to find Fanla. With a creak, the door swung out and Kip pinned his arms and legs against the walls of a long narrow hole in the ground, descending into the darkness with only the blue light on his chest to guide him.
+	"I'll go down," he said. "Start bringing people in one-by-one. If you hear any trouble, bring some people and come get me."
+
+	"Got it," she said.
+
+	With his hands against the wall, Kip made his way into the tunnel with only the blue light on his chest to light his way. After only a few steps, he came upon a sharp descent in the ground and he could no longer see a reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. He covered his marking with his right arm and readied his dagger in the other while watching as the mysterious person came closer. They stopped immediately below him, several strides down and removed their shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, looking at a body lying on the floor in front of him.
+
+	He murmured to himself, "Now who might you be?"
+
+	He reached for an arm and picked the body up. It was a maman. *Penyi. You must have fallen.*. Once Ramne was far enough away, Kip put the dagger in his pouch and started his search for the ground again, slowly swinging his leg off the ledge. On the third swing, he broadened his swing, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm and proceeded to move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found the ground - a desert of grit and dust. In the distance, he could still see the remnants of Ramne's blue light and the shadow of Penyi on his shoulder. *I can catch up*. He rubbed his toe to ease the pain and redistribute the water in his skin, and then took off after Ramne. With every silent step, the gap between them was closing, and the light of Ramne's chest grew brighter. The anticipation of a fight grew in him. *A man like that deserves what's coming to him*. When Kip had come within ten paces, Ramne stopped and turned in suspicion, but he was too late to fend off any sort of attack. Instead he threw Penyi at him and ran a few paces forward to keep the distance between him and his would-be assailant.
+
+	"Who're you? How'd you get down here?"
+
+	Kip dropped the dagger briefly to catch Penyi and lay hae down gently. As soon as thi was down, he reached for the dagger, but couldn't find it anywhere. Out of options, he turned to Ramne and took a defensive stance.
+
+	"Kip? What are you doing here? You here for this milta?" he said, holding a hand to Penyi.
+
+	Kip didn't respond, but held his stance and his look of disdain.
+
+	"Oh I get it. You're the hero come to rescue the weak. When you gonna wake up, Kip? There are no heroes here. Just addicts. Selfish, miserable, fucked-up addicts. You can't save us."
+
+	"No one can save you."
+
+	He shouted, "Hah! Hahahaha. You think I'm any different than any of those shits in the tent? You think we're somehow wholesome people on the inside? You weren't here when Casra failed. When so many people took advantage of hae that thi was forced to move into the woods where no one could find hae. Ulukoma is a shit place. And us? We're all shit people. You get used to it or you die."
+
+	"You'll regret this life someday. When the world revolves and purges your kind of evil. You'll be the one left in the dark."
+
+	He laughed, "Oh I'm countin' on it."
+
+	There was a tense pause which Kip broke, "So you gonna fight me or what?"
+
+	"A colossal waste of time. You're not going anywhere with Penyi injured here."
+
+	"Says who?"
+
+	"Ask hae yourself."
+
+	Penyi began to stir and moan, and Kip turned and ran to help hae.
+
+	Ramne turned around and said, "time to play doctor, big hero. That's all your dreams good for."
+
+	"Stay still, don't move anything," Kipnu told a barely-conscious Penyi. He could see bad scrapes and bruises on hae shoulder and a stream of blood coming from hae head. Kip glanced back at Ramne, but he had already faded into the infinite darkness of this underground cavity.
+
+	"Ahhhh." Thi groaned in still-constant pain.
+
+	"I know, Penyi. Where does it hurt?"
+
+	"H-Headaahhh."
+
+	"Head. Ok. I can work with that."
+
+	He took off his pouch and gently raised hae head and shoulders much to Penyi's protest, and slipping the pouch underneath.
+
+	"I'll be right back with something for the pain."
+
+	"Unnhhhh!!" Thi exclaimed.
+
+	He left hae there and ran back toward the pegs and the hole he came from.
+
+	"Fanla, I need kanosin and something I can use as a stretcher."
+
+	She was in the middle of passing out bows, but she came back to the hole and said, "What?!"
+
+	"It's Penyi. Thi's in a lot of pain. Let's hurry."
+
+	Without a beat, they both located some used Kanosin leaves and a sword rack that they wrapped with Kip's sturdy reed clothing. Kip showed her how to climb down the pegs and they both entered into the giant room of darkness with their makeshift stretcher 
