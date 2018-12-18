@@ -5,9 +5,14 @@
 
 		- It takes a long time for a recon to come back
 			- Kip goes out to check what's going on
+
 			- Finds Fanla tied by Ramne, who is interrogating hae.
 			- Ramne is surprised and turns his attention away for a second.
 			- Fanla forces hae weight to knock him down and Kip disarms him and unties hae ropes and uses them on him.
+
+			- Finds a giant room
+			- Penyi has fallen
+
 
 		- They secure the weapons and move on to the great tent
 			- The fire guardians find Ramne, they leave it.
@@ -204,56 +209,71 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Who're you? How'd you get down here?"
 
-	Kip dropped the dagger briefly to catch Penyi and lay hae down gently. As soon as thi was down, he reached for the dagger, but couldn't find it anywhere. Out of options, he turned to Ramne and took a defensive stance.
+	Kip dropped the dagger briefly to catch Penyi and lay hae down gently. As soon as thi was down, he reached for the dagger, but couldn't find it anywhere. Out of options, he turned toward Ramne and took a defensive stance.
 
-	"Kip? What are you doing here? You here for this milta?" he said, holding a hand to Penyi.
+	"Kip?! Well dammit, I thought you'd never come," he said.
 
 	Kip didn't respond, but held his stance and his look of disdain.
 
-	"Oh I get it. You're the hero come to rescue the weak. When you gonna wake up, Kip? There are no heroes here. Just addicts. Selfish, miserable, fucked-up addicts. You can't save us."
+	"Oh I get it. You're the hero come to rescue the weak. Bout time you woke up, kid. No heroes here; just addicts. Selfish, miserable, fucked-up addicts."
 
-	"No one can save you."
+	"It was *you* who made them that way."
 
-	He shouted, "Hah! Hahahaha. You think I'm any different than any of those shits in the tent? You think we're somehow wholesome people on the inside? You weren't here when Casra failed. When so many people took advantage of hae that thi was forced to move into the woods where no one could find hae. Ulukoma is a shit place. And us? We're all shit people. You get used to it or you die."
+	He snickered under his gritty breath and took a few steps closer, letting his hard reed boot shove into Penyi's lifeless shoulder. Kip didn't budge.
 
-	"You'll regret this life someday. When the world revolves and purges your kind of evil. You'll be the one left in the dark."
+	Ramne said, "You think I'm any different than any of those shits in the tent? You think we're still wholesome people on the inside? You weren't here when Casra failed. Everybody took advantage of hae decency and then stabbed her in the back. And instead of fighting back, thi flees into the woods where no one could find hae. You might think yourself a noble man, but it's all meaningless here. Ulukoma is shit. You get used to it or you die."
 
-	He laughed, "Oh I'm countin' on it."
+	"You'll come to regret this life someday, Ramne. When Ara fades from the sky and you're stuck out here freezing to death. You'll be the only one left in the dark."
 
-	There was a tense pause which Kip broke, "So you gonna fight me or what?"
+	He laughed, "Oh I'm countin' on it. This'll be the only place left when you Arans kill each other in the chaos."
 
-	"A colossal waste of time. You're not going anywhere with Penyi injured here."
+	Kip pushed him back, saying "My people are not the selfish monsters you became."
 
-	"Says who?"
+	Ramne smirked and backed away out of Kip's eyeshot.
 
-	"Ask hae yourself."
+	"Not yet," he said, and disappeared into the infinite abyss.
 
-	Penyi began to stir and moan, and Kip turned and ran to help hae.
+	Penyi began to stir and moan, and Kip immediately turned his focus to hae.
 
-	Ramne turned around and said, "time to play doctor, big hero. That's all your dreams good for."
+	"Stay still, don't move anything," Kipnu told a barely-conscious Penyi. He could see bad scrapes and bruises on hae shoulder and a bloodied wound on the side of hae head.
 
-	"Stay still, don't move anything," Kipnu told a barely-conscious Penyi. He could see bad scrapes and bruises on hae shoulder and a stream of blood coming from hae head. Kip glanced back at Ramne, but he had already faded into the infinite darkness of this underground cavity.
+	"How is your head? Does it hurt?"
 
-	"Ahhhh." Thi groaned in still-constant pain.
+	"Ahhhh." Thi groaned.
 
-	"I know, Penyi. Where does it hurt?"
+	"Ok. I can work with that."
 
-	"H-Headaahhh."
+	He took off his pouch and gently raised Penyi's head and shoulders much to hae protest. With graceful and deliberate touches, he checked for any foreign objects in the wound and found that a piece of hae skull was broken and protruding slightly through the wound. His heart sank and his belly wrapped into knots.
 
-	"Head. Ok. I can work with that."
+	*Shit*
 
-	He took off his pouch and gently raised hae head and shoulders much to Penyi's protest, and slipping the pouch underneath.
-
-	"I'll be right back with something for the pain."
+	"I'll be right back with something for the pain," he said.
 
 	"Unnhhhh!!" Thi exclaimed.
 
-	He left hae there and ran back toward the pegs and the hole he came from.
+	He slid his bag under hae head and ran back toward the pegs and the hole he entered from.
 
-	"Fanla, I need kanosin and something I can use as a stretcher."
+	"Fanla, we need to find some kanosin quickly."
 
-	She was in the middle of passing out bows, but she came back to the hole and said, "What?!"
+	She was in the middle of passing swords under the tent, but she came back to the hole and reached her arm out to him, whispering, "Where have you been? Linyu spotted Lissa and Casra. He's begging us to go after them."
 
-	"It's Penyi. Thi's in a lot of pain. Let's hurry."
+	Kip held fast to her and jumped out.
 
-	Without a beat, they both located some used Kanosin leaves and a sword rack that they wrapped with Kip's sturdy reed clothing. Kip showed her how to climb down the pegs and they both entered into the giant room of darkness with their makeshift stretcher 
+	"This is more important. It's Penyi. Thi's fallen pretty badly."
+
+	She took a moment and nodded, and led him to a corner of the tent where she had seen personal belongings. After several frantic moments of searching, Fanla found a pouch with a wooden pipe, a phosphor rod, and a few dried Kanosin flowers tucked away in a pouch between two boxes. She immediately handed it to Kipnu who darted back to the hole. Before he set his feet on the ground, she asked him, "What are we to do?"
+
+	"Find Setre," he said abruptly, and he cleared his mind as he retraced his steps back to Penyi.
+
+	From afar, he could hear hae shifting the dust on the ground in a peculiar way. As he grew nearer, his fears compounded as he realized she had begun convulsions. *No no no this wasn't supposed - hae brain is swelling clear the - fucking syringe need a syringe.* But there was no syringe. Just a pipe and some Kanosin. *Maybe a pipe for hae spine* He removed the pipe from the pouch with shakey hands and tried to break off a piece to make it sharp, but the pipe was hard wood and wouldn't shatter. *This fucking pipe!* He pounded the ground beneath him and the sound fell dead in the vast emptiness of this strange room. As hae convlusions slowed down and hae heartbeat slowed, Kip sat with his fingers on hae wrist and resigned his role of hero, of doctor - just for now - and recalled the steps that had gotten him this far. How little he really knew about the maman he sent to hae death, or about the place they were currently in. He reached into the pouch again and produced a Kanosin flower that he held out in front of him. In the blue light of his tattoo he could see its tender white petals and fuzzy central dome of pollen.
+
+	<!-- Either Penyi dies only, or Penyi and Linyu die -->
+	<!-- Maybe just Penyi. Linyu might be an interesting Protag next round -->
+
+	"What terrible things blossom from such an innocent thing. A life is lost because of you today, flower of the night. But oh the more tempting do you become to those who know loss. And thus is your survival ensured."
+
+	He muddled the flower in the pipe, lit it with the phosphor, and took a moment to contemplate smoking it. In his grieving stupor, he took the pipe to his mouth, but the taste of the sweet smoke reminded him of Lissa and the Shadestead and of all the messed up things he had promised to stop. Instead, he put the pipe on Penyi's chest, in hopes that it would lift hae spirit away from this dark and lonely place. If such thing existed, it would be worth it, he thought.
+
+	<!-- So maybe this calms hae swelling and then thi wakes up after he leaves. -->
+
+	"Kip!" <!-- First Wake Up alarm -->
