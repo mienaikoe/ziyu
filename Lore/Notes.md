@@ -32,6 +32,7 @@
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
+- "We know truth not only by reason but also by heart"
 
 Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
   - Most realistic
