@@ -287,15 +287,21 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	She immediately handed them to Kipnu and said, "There's Kanosin in there. For the pain."
 
-	Before he could turn back around, she asked him, "What are we to do?"
+	Before he could turn back around, she asked him, "What should I tell the others?"
 
-	"Stay hidden and find Setre," he said. He cleared his mind as he retraced his steps back to Penyi.
+	"Tell them to stay hidden and find Setre. If things start to go south with Casra, Setre will likely risk her life to save hae and it would be really great of us to help her out."
 
-	From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Penyi was having a seizure.
+	"Got it," she said and darted off.
 
-	"No, No. That's too soon."
+	From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Penyi was beginning convulsions.
 
-	He sprinted in the dark toward the sounds and straddled hae and braced hae head with his right arm. With focused precision he held the knife in his left hand and with quick flick, he cut open a small hole under the scrap on hae temple. A mix of blood, hydroderm, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
+	"No no that's too soon!"
+
+	He sprinted in the dark toward the sounds and straddled hae braced hae head with his right arm.
+
+	"Fanla!" He yelled for her, but she couldn't hear.
+
+	He held the knife in his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, hydroderm, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
 
 	"Nystagmus; pulse fast; pressure high; temperature high; breathing irregular," he said aloud as he had been trained to do.
 
@@ -313,7 +319,7 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Here goes," he said out loud, and proceeded to inhale the Kanosin. He took a moderately sized inhale and quickly stopped closer to Penyi to breathe it into hae mouth during inhale. Thi didn't respond. Kip took another drag from the pipe and breathed it into hae mouth, and this time thi shriveled hae face and started to cough lightly.
 
-	"Penyi!" He laughed, but then remembered that he wasn't done.
+	"Penyi!" He laughed, but then remembered that he couldn't stop yet.
 
 	He warmed up the hotrod again and moved it toward the incision he had made to relieve the pressure on hae brain. With three gentle presses he cauterized the wound while Penyi made wincing faces but took the pain.
 
@@ -323,21 +329,31 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Hey Penyi, can you hear me?"
 
-	Penyi tried to nod, but winced in pain and moved hae arm to hae head. Kip gently pressed hae shoulder, glad that Penyi could still move.
+	Penyi tried to nod, but winced in pain and moved hae arm toward the wound on hae head. Kip gently pressed hae shoulder, glad that thi could still move.
 
-	"You've suffered some memory loss, so you might not be able to remember certain things. It's important for you to know that you're safe and that you should rest for now."
+	He asked hae some questions to get hae reoriented, "Do you know who I am?"
 
-	Thi blinked in understanding.
+	Thi looked at him with determined eyes, but did not say a word.
+
+	"Can you speak?"
+
+	Hae let out a breathing whimper, and his heart sank for hae.
+
+	"Penyi, you've suffered some memory loss, so you might not be able to remember certain things. You will eventually re-learn them. For now you are safe and you should do what you can to rest."
+
+	Thi took his hand into hae own and managed to make what Kip interpretted to be smile.
+
+	"A smile already? You're a fighter," he said.
 
 	*Need to get moving*
 
-	"I have to go, ok?" Thi made a concerned look and breathed heavy as if to whimper, but only a punctuated breath took the air.
+	"I have to go, ok?" Thi made a concerned look and breathed heavily as if to speak, but only a punctuated breath took the air.
 
 	"It's ok. I'll send a couple others down here to look after you and bring you some water. Just rest for now."
 
-	Thi blinked again, and he stood up slowly with hae hands in his own, feeling a strange connection with this maman that he didn't have before.
+	Thi brought haeself to trust his plan and then loosend hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman that he struggled to explain.
 
-	"I'll come back for you after. I promise," he said longingly, and then turned back to face the surface. He noticed some mild hallucinations, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
+	"I'll come back for you after. I promise," he said longingly, and then turned back to face the surface. He spotted some mild hallucinations in the dark, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
 
 	Back in the armory, there was no sign of Fanla and all of the weapons had been ferried through the back side of the tent.
 
