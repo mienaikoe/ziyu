@@ -45,6 +45,8 @@ Option3: Lissa has a covert army of moles and manipulators in every tribe, in Sh
     - Kip hears Lif on the radio after their network succeeds to thwart Lissa.
     - Casra builds a new society in Ulu and prepares for the ice age.
 
+- Robots are actually a diffuse neural cloud of microscopic phototransistors
+
 End
   - Casra and Linyu leave with Kip.
   - Mel uses Kip's technology when she visits the obstruction to control the robots to block the bombs otherwise they would hit Heiko.
