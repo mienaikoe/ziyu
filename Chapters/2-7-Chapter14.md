@@ -6,53 +6,28 @@
 		- It takes a long time for a recon to come back
 			- Kip goes out to check what's going on
 
-			- Finds Fanla tied by Ramne, who is interrogating hae.
-			- Ramne is surprised and turns his attention away for a second.
-			- Fanla forces hae weight to knock him down and Kip disarms him and unties hae ropes and uses them on him.
+			- Finds a dark giant room
+			- Ramne is carrying an unconscious Penyi with a fall injury
+			- Ramne is alarmed by Kip's presence
+			- He also has a listener, but a bit smaller
+			- They talk and Ramne suspiciously hears something in his listener and leaves the two in a hurry.
 
-			- Finds a giant room
-			- Penyi has fallen
+			- Kip asks Fanla for some tools to save Penyi
+			- Penyi goes into convlusions, but is saved by Kip's medical skill
+			- Kip uses kanosin to reduce swelling and pain
+			- He goes back to Fanla to ask her to take care of Penyi
 
+			- When Kip rises back into the armory, he smells smoke and hears a bunch of yells and can't find Fanla
+			- He peaks under the tent cover and sees unwounded bodies on the ground around the tent, and Setre + team with a cloth around their mouths pulling them out.
+			- He gets a cloth around his mouth and goes to help them
+			- "WHERE HAVE YOU BEEN?!"
+			- Setre tells him that Casra and Lissa fled to the northern shore and that the battle was
+			- Lin interrupts them asking for help getting down
+			- Setre goes for Linyu, Kip goes for Cas and Lis
 
-		- They secure the weapons and move on to the great tent
-			- The fire guardians find Ramne, they leave it.
-			- Kip says "The wind speaks", many guardians say "Ulu listens" and rise against the other guardians.
-			- Most Shadesteaders flee for safety as the few that aren't allied with Casra try to fight back and fail.
-			- Most try to escape and are captured by Kip's group, and surrender.
-			- One of them escapes, and carries a hot burning twig from the great fire to burn the tent down, and everyone flees.
-
-		- Lissa and Casra come back amidst the sound of chaos, and finds the great tent burning
-			- (Has been torturing Casra, tying hae up and marking hae whole body with luminescent tattoos in the cold, doping hae with kanosin)
-
-STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh before killing them both. This is Setre's story.
-
-			- Linyu notifies Set and Kip of Ram and Lissa trying to ambush them
-				- Ramne distracts them while Lissa swiftly injures them both.
-				- Ramne goes straight to the tent to save several boxes of Kanosin.
-			- Casra returns, naked and bloody and drugged, but fighting through it.
-				- Thi stops Lissa from killing Setre, pushing hae off of Setre and killing hae in a vengeful rage.
-			- The heat and smoke start to make Linyu woozy. Thi falls off the branch and holds on by the radio wires, barely conscious.
-				- Casra climbs after hae, but is too late.
-				- Ramne is busy saving Kanosin from the fire at the great tent, and sees Linyu.
-				- Ramne leaves hae dangling, and thi falls into the fire.
-
-
-
-	= I can kill Setre and Casra, leaving no one to lead, while totally enraged at Kip for leaving hae.
-		- Mel will need hae help to feed and hold people in the dark, away from robot sight.
-			- Robots would be smarter than this, wouldn't they?
-		- Ramne and Ginnu would likely take over and repeat the same problem.
-			- What's the point?
-				- Linyu will become a villain, conquering Ulukoma and then the rest of the world.
-				- Kip wakes up from the dream of a happy ending.
-	= If I kill Linyu instead, Kip wakes up from the dream of a happy ending still
-		- Ulukoma goes on in better hands, but is eternally bitter at Kip for his negligence.
-			- Reluctant to help Heiko store people.
-				- Question of whether robots would be smarter than this.
-				- Heiko doesn't do this to hide people, but to buy time.
-
+			- Kelp forest
+			- End with Kip hearing hearing "3...2...1" and watching Liffe's craft blast off from beneath surface and drowning
 -->
-
 
 ## Chapter 14
 
@@ -227,21 +202,31 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Why the hell would I–"
 
-	His tone turned from uncaring to defensive.
+	His tone turned remained uncaring.
 
-	"You don't know anything about me, about what happened here. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi flees into the dark forest with Lin. They chose to abandon everyone while Set and I watched it all burn to the ground."
+	"You don't know what happened here, Kip. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. They chose to abandon everyone while Set and I tried to save it from burning to the ground."
 
-	Ramne leaned over Penyi and propped himself with his arms on his legs, taking a closer look at Kip in the light of his chest.
+	Ramne leaned over Penyi and Kip, holding his chest above them with his palms on his knees. He took a closer look at Kip in the light of his decorated chest.
 
-	He said, "You might think yourself a noble man, but all of that means nothing here. Ulukoma is shit. You take whatever you can, then you die."
+	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can, and then you die."
 
-	"When Ara fades from the sky and Lissa has killed off everyone you called family. I hope you find the decency to regret it all as you die alone in the dark."
+	Kip met his gaze with conviction in his eyes. "When Ara fades from the sky and Lissa has killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
-	He laughed, "So dramatic. You know what, Kip, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal narrator."
+	He laughed, "Hah. Lissa? All hae power is a show to keep the harvesters obedient. Thi wouldn't hurt a thing without hae master saying so."
 
-	"Fuck you."
+	"And who is that?"
 
-	"Hey it's a great deal. This'll be the only place left when you mainlanders kill each other in the dark."
+	He raised up and turned toward the darkness as if speaking to an invisible friend.
+
+	"Tell me, Doctor Kipnu um Heiko: Why would a magistrate send a doctor to Ulukoma in the midst of a global crisis? Do you really think he values justice over sensibility?"
+
+	"How do you know about that?"
+
+	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power." He smiled and paused to change the subject. "You know what, Kip, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
+
+	"Go to hell."
+
+	"Just think about it. This'll be the only place left when the darkness falls and you mainlanders kill each other in the chaos."
 
 	Kip stood up to challenge him and said, "We aren't like you!"
 
@@ -249,7 +234,7 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"Not yet," he said.
 
-	Ramne backed away from Kip with his eyes fixed on him, and then turned to disappear into the infinite abyss with the faint sound of dust under his feet.
+	Ramne backed away slowly from Kip, their eyes fixated on each other, and then he turned to fade into the infinite abyss.
 
 	Once he was sure that Ramne was gone, Kip looked back down Penyi and felt for hae pulse. *Still ticking*. Thi began to stir and moan, and Kip immediately turned his focus to hae.
 
@@ -277,7 +262,7 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	He whispered loudly from the opening, "Fanla, hand me a knife."
 
-	She was in the middle of passing daggers under the tent, but she came back to the hole and whispered, "Where have you been? Linyu spotted Lissa and Casra entering the tent. He's begging us to go after them."
+	She was in the middle of passing daggers under the tent, but she came back to the hole and whispered, "Where have you been? Linyu spotted Lissa and Casra fleeing the tent. He's begging us to go after them."
 
 	*Why didn't I hear that?*
 
@@ -303,25 +288,25 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	He held the knife in his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, hydroderm, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
 
-	"Nystagmus; pulse fast; pressure high; temperature high; breathing irregular," he said aloud as he had been trained to do.
+	"Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
 
 	"Come On!" He yelled.
 
 	He glanced at the wound and saw that the swelling had come down but blood was still coming out of the wound.
 
-	*Thi will lose too much blood if I don't bring hae pressure down... Kanosin?*
+	*Thi will lose too much blood if I don't bring hae pulse down... Kanosin?*
 
-	He opened the pouch that Fanla had given him and used his fingers to examined its contents. *Pipe...Kanosin Flowers...A hotrod* He pulled the hotrod out and examined the charred hot tip and plunger. *Looks like it's still got some life*.
+	He opened the pouch that Fanla had given him and used his fingers to examined its contents. *Pipe...Kanosin Flowers...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
 
-	He took one more observation of hae vitals while warming it up, "convulsions stopped; unconscious; pulse fast; pressure high; temperature normalized; breathing normalized," and then removed the pipe and a kanosin flower for preparation.
+	He took one more observation of hae vitals while repeatedly pressing the plunger to warm it up, "convulsions stopped; unconscious; pulse fast; pressure high; temperature normalized; breathing normalized," and then removed the pipe and a kanosin flower for preparation.
 
-	*I can't believe I'm doing this.* He finished the pipe and then topped off the hotrod again and placed it firmly against the dried pistils of the flower. They danced and shriveled away from the heat source and then he started to see embers.
+	*I can't believe I'm doing this.* He finished the pipe and then topped off the hot tip again and placed it firmly against the dried pistils of the flower. They danced and shriveled away from the heat and then started to form embers.
 
 	"Here goes," he said out loud, and proceeded to inhale the Kanosin. He took a moderately sized inhale and quickly stopped closer to Penyi to breathe it into hae mouth during inhale. Thi didn't respond. Kip took another drag from the pipe and breathed it into hae mouth, and this time thi shriveled hae face and started to cough lightly.
 
 	"Penyi!" He laughed, but then remembered that he couldn't stop yet.
 
-	He warmed up the hotrod again and moved it toward the incision he had made to relieve the pressure on hae brain. With three gentle presses he cauterized the wound while Penyi made wincing faces but took the pain.
+	He warmed up the hot tip again and moved it toward the incision he had made to relieve the pressure on hae brain. With three gentle presses he cauterized the wound while Penyi made wincing faces but took the pain.
 
 	Kip once again took an observation, "Conscious; pulse normalizing; pressure normalizing; temperature normal; breathing... coughing. Welcome back, Penyi."
 
@@ -351,15 +336,33 @@ STRIKE BELOW - Casra needs to see Linyu die, and Lissa needs that last laugh bef
 
 	"It's ok. I'll send a couple others down here to look after you and bring you some water. Just rest for now."
 
-	Thi brought haeself to trust his plan and then loosend hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman that he struggled to explain.
+	Thi brought haeself to trust his plan and then loosend hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman.
 
-	"I'll come back for you after. I promise," he said longingly, and then turned back to face the surface. He spotted some mild hallucinations in the dark, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
+	"I'll come back for you after. I promise," he said longingly, and then turned back to face the direction of Fanla and the others. He spotted some mild hallucinations in the dark, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
 
-	Back in the armory, there was no sign of Fanla and all of the weapons had been ferried through the back side of the tent.
+	On the way up the strange pegs, he caught the faint odor of smoke hanging in the air, and could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
 
-	*They work fast*
+	"Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the tent carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance from the tent staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
 
+	"Kip! You're back," Lin shouted through the listener. "Everything's gone so wrong. Just find Setre!"
 
+	Kip ignored Lin's worries for a moment, focusing his attention on those who needed help.
+
+	"Fanla!" He shouted when he approached them, and they quickly glanced in his direction.
+
+	Fanla franticly waved to him and called out, "Kip, these people aren't breathing. What do we do?"
+
+	He rushed toward her and knealt over the body of the maman she was attending to. He checked hae hearts for a pulse, finding one of two and pushed on hae lungs from above.
+
+	He announced to them, "If they have a pulse, do this until they cough. If they don't, move on to the next person."
+
+	They all quickly moved to someone, doing as he told them and repeating his motions. He turned to the woman and asked, "Where is Setre?"
+
+	"She's been moving people in and out of the fire."
+
+	Without a pause, he shot up and sprinted toward the fire.
+
+	The heat grew in intensity as he approached, but he couldn't think about the pain. He had to find Setre.
 
 
 

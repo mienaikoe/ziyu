@@ -232,25 +232,21 @@ Setting:
 
 	"They all have markings like mine. Impossible to miss in the dark."
 
-	"Seems like an oversight. That's unlike hae."
+	"Seems like a major oversight. That's unlike hae."
 
-	"The Guardians rely on fear and intimidation. The blue light is so we can see our enemies clearly while they see nothing but a flash of light."
+	"The Guardians rely on fear and intimidation. The blue light is so we can see our enemies clearly while they are disoriented by flashes of light."
 
 	"But that means you'll look just like the others."
 
-	"I'll be out looking for Casra."
+	"I'll be elsewhere, looking for Casra."
 
 	"Looking for hae?"
 
-	"It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa took hae to the East and they haven't been seen since then."
+	"It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa hid hae somewhere I don't know about."
 
 	"Where do you suppose they hid?"
 
-	"I don't know, but there's not much over there besides trees and snow."
-
-	"Snow?"
-
-	"Ah yea there's no snow on the mainland is there? Snow is fun."
+	"I don't know, but there's not much around besides trees."
 
 	"So what should we do? They could come back at any time."
 
