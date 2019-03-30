@@ -360,9 +360,15 @@
 
 	"She's been moving people in and out of the fire."
 
-	Without a pause, he shot up and sprinted toward the fire.
+	Without a pause, he rose and ran off. The heat grew in intensity as he approached, but he pushed the pain down. He had to find Setre and Casra.
 
-	The heat grew in intensity as he approached, but he couldn't think about the pain. He had to find Setre.
+	A silhouette appeared in the doorway of the tent. It was thin and short, almost resembling "Linyu! Linyu is that you? What are you doing down here?" But amidst the lapping of flames and fabric, the silhouette stood up and transformed into Casra, stumbling out of the tent in a daze. He dashed to her to pull her out of the flames.
+
+	"Lin.. thi fell," she said. 
+
+
+
+
 
 
 
