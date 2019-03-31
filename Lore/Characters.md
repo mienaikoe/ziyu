@@ -14,8 +14,18 @@ Kip studied medicine, and is working as a doctor. In Palinan, doctors don't have
 
 
 ## Supporting Roles
-### Cas(sa)[Female]
-Cas is a doctor working alongside Kip in the war.
+### Cas(ra)[Mamale]
+Cas is a doctor from Shaki Harbor, who moved to Ulukoma to help the people there get sober, and subsequently built society there.
 
+### Lin(po)[Mamale]
+Casra's kaln.
 
-### Lin(po)[Male]
+### Set(re)
+Lin's birther. Set grew up as an orphan in Holragi, and was forced to be strong, and sometimes to bully in order to survive. She moved to Ulukoma
+to gain power among the downtrodden and troublemakers. She found Casra and decided to follow her instead. After Ulukoma fell to Lissa, Setre was forced to become Lissa's guardian and abort any kids she had with her.
+
+### Ram(ne)
+Lin's father and drug dealer
+
+### Gin(nu)
+Ramne's Girlfriend who is caught up in a web of chaos and kanosin. She's on a sobriety arc.

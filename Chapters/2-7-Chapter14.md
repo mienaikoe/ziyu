@@ -262,11 +262,19 @@
 
 	He whispered loudly from the opening, "Fanla, hand me a knife."
 
-	She was in the middle of passing daggers under the tent, but she came back to the hole and whispered, "Where have you been? Linyu spotted Lissa and Casra fleeing the tent. He's begging us to go after them."
+	She was in the middle of passing daggers under the tent, but she came back to the hole and whispered, "What have you been doing down there? Linyu has been going crazy on the listener."
 
-	*Why didn't I hear that?*
+	*Why didn't I hear hae?*
 
-	"It's Penyi. Thi's fallen pretty badly. I need to make an incision."
+	"What do you mean?"
+
+	"Thi saw some figures running from the tent and is certain one of them was Casra."
+
+	"Dammit."
+
+	"Well shouldn't you go after them?"
+
+	"It's Penyi... Thi's fallen pretty badly. I need to make an incision."
 
 	She gasped and then darted to a corner of the tent where she picked up a dagger and a pouch.
 
@@ -274,7 +282,7 @@
 
 	Before he could turn back around, she asked him, "What should I tell the others?"
 
-	"Tell them to stay hidden and find Setre. If things start to go south with Casra, Setre will likely risk her life to save hae and it would be really great of us to help her out."
+	"Tell them to stay hidden and Find Setre. Tell her what you told me. She'll know what to do."
 
 	"Got it," she said and darted off.
 
@@ -286,7 +294,7 @@
 
 	"Fanla!" He yelled for her, but she couldn't hear.
 
-	He held the knife in his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, hydroderm, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
+	He held the knife in his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, dermal fluid, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
 
 	"Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
 
@@ -326,7 +334,7 @@
 
 	"Penyi, you've suffered some memory loss, so you might not be able to remember certain things. You will eventually re-learn them. For now you are safe and you should do what you can to rest."
 
-	Thi took his hand into hae own and managed to make what Kip interpretted to be smile.
+	Thi took his hand into hae own and managed to make what Kip interpreted to be smile.
 
 	"A smile already? You're a fighter," he said.
 
@@ -336,17 +344,13 @@
 
 	"It's ok. I'll send a couple others down here to look after you and bring you some water. Just rest for now."
 
-	Thi brought haeself to trust his plan and then loosend hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman.
+	Thi brought haeself to trust his plan and then loosened hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman.
 
 	"I'll come back for you after. I promise," he said longingly, and then turned back to face the direction of Fanla and the others. He spotted some mild hallucinations in the dark, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
 
-	On the way up the strange pegs, he caught the faint odor of smoke hanging in the air, and could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
+	On the way up the strange pegs, he caught the faint odors of wood and kanosin smoke hanging in the air. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
 
 	"Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the tent carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance from the tent staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
-
-	"Kip! You're back," Lin shouted through the listener. "Everything's gone so wrong. Just find Setre!"
-
-	Kip ignored Lin's worries for a moment, focusing his attention on those who needed help.
 
 	"Fanla!" He shouted when he approached them, and they quickly glanced in his direction.
 
@@ -364,8 +368,31 @@
 
 	A silhouette appeared in the doorway of the tent. It was thin and short, almost resembling "Linyu! Linyu is that you? What are you doing down here?" But amidst the lapping of flames and fabric, the silhouette stood up and transformed into Casra, stumbling out of the tent in a daze. He dashed to her to pull her out of the flames.
 
-	"Lin.. thi fell," she said. 
+	"Lin...Lin...", she mumbled through labored breaths as she collapsed onto the ground.
 
+	He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames. Setre reached to Kip's arm and he turned back toward her. Her eyes were glazed and vacant as if she were experiencing some other world between her eyes and his. She called out again in a voice frailer than before, "Kip... Lin..."
+
+	"Thi is safe in the treetops. No need to worry," he comforted her. But her mind was still locked away.
+
+	*I need to find Casra.*
+
+	"Fanla, which direction did Linyu see the figures run?"
+
+	"Figures?" she asked franticly. Her hands were firmly against the chest of a fallen guardian, searching for a pulse.
+
+	"You told me that Linyu was going mad about some figures."
+
+	"Ulu. They ran toward Ulu," she said in a hurried tone.
+
+	"I'm going after them. Take care of Setre and Penyi."
+
+	Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
+
+	"You'll be fine!"
+
+	Kip ran into the darkness, exhausted but resolute in his duty to save Casra.
+
+	The trees were transforming from giant pillars of reflected fire to silent phantoms looming in the dark, discovered only by the sudden absence of echoes. He searched for any faint sign of a horizon through the darkness, but none was visible.
 
 
 
