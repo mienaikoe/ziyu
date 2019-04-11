@@ -6,6 +6,7 @@
   - Lif's struggle is self-confidence, doubt, fear
   - Mel's struggle is anxiety, paranoia, trust
 
+- Make the city come alive in ch 3 instead of just rando getting a roll
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
 
@@ -27,6 +28,8 @@
 - Make note of how firewood works in the Shadestead
 
 - Depict Lissa as a dream-goddess to Kipnu on the come-down from Kanosin
+
+- Does Lissa have very ornate light flow-tattoo patterns? If so, you should really accentuate this.
 
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
 
