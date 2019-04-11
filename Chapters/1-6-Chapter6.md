@@ -68,11 +68,11 @@ She took my hand and expressed a gentleness I hadn't expected, "Shh... Liffa... 
 
 The watchman left us to return to his post. I stared at her, confused, but then I saw relief in her eyes; the kind you get when a secret, having no business being so, has been lifted.
 
-She said, "When I saw you up there walking through the Yansha stairway, I was furious with you. But when you mentioned the observers, I realized that you must have come for a good reason, and that everything else we were talking about was not as important. I read the message to the senate and I told them I had been talking with the observers. Some of them don't believe me, some of them do."
+She said, "When I saw you here, I was furious. But when you mentioned the observeratory, I realized that you must have come for a good reason, and that everything else we were talking about was not as important. I read the message to the senate and I told them I had been talking with the observers. Some of them believe me, some of them don't."
 
 "Mel, you aren't..."
 
-"Mad? No. I'm just frustrated that your presence has swayed the senate. It's become difficult to negotiate for Heiko. Pinta, a senator from Tintinal argued that I must have been keeping it a secret so we could stockpile food and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
+"Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A senator from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
 
 "But we only stockpile enough for 30 tova."
 
@@ -80,6 +80,7 @@ She said, "When I saw you up there walking through the Yansha stairway, I was fu
 
 "What do we do then?"
 
+<!-- THIS IS AWKWARD, CUT IT -->
 "Well, I was hoping you would help me figure that out."
 
 "Me?" I asked, confused. My mind jumped to solutions. I had never been asked to think about my job on such a large scale before.
