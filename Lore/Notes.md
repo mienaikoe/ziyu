@@ -36,6 +36,10 @@
 
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
 
+- Linyu died or not? If thi does, you should make it as ornate as Casra's death.
+  - Maybe Linyu is unconscious.
+  - Setre saying "Lin...Lin" is unnecessarily ominous.
+
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
 - "We know truth not only by reason but also by heart"
