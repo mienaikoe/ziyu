@@ -6,6 +6,8 @@
   - Lif's struggle is self-confidence, doubt, fear
   - Mel's struggle is anxiety, paranoia, trust
 
+- Add a pet for Lif to talk to. It also shows primitive technology for society.
+
 - Make the city come alive in ch 3 instead of just rando getting a roll
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
