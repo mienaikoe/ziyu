@@ -6,6 +6,9 @@
   - Lif's struggle is self-confidence, doubt, fear
   - Mel's struggle is anxiety, paranoia, trust
 
+- Add a pet for Lif to talk to. It also shows primitive technology for society.
+  - Maybe the pet can be horse-like to replace bikes
+
 - Make the city come alive in ch 3 instead of just rando getting a roll
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
@@ -32,6 +35,10 @@
 - Does Lissa have very ornate light flow-tattoo patterns? If so, you should really accentuate this.
 
 - Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
+
+- Linyu died or not? If thi does, you should make it as ornate as Casra's death.
+  - Maybe Linyu is unconscious.
+  - Setre saying "Lin...Lin" is unnecessarily ominous.
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
