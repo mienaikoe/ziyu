@@ -7,6 +7,7 @@
   - Mel's struggle is anxiety, paranoia, trust
 
 - Add a pet for Lif to talk to. It also shows primitive technology for society.
+  - Maybe the pet can be horse-like to replace bikes
 
 - Make the city come alive in ch 3 instead of just rando getting a roll
 
