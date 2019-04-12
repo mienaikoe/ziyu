@@ -127,11 +127,11 @@
 
   "You pinned a man against a wall."
 
-  "The man was an ex-senator from Holragi. And he pressured my maman, Liffa, into going on some experimental flight to space."
+  "The man was an ex-senator from Holragi. And he pressured my partner, Liffa, into going on some experimental flight to space."
 
   "Why would he do that?"
 
-  "He says it's because thi's a perfect fit for the program, but I think it's really because my woman is a senator for Heiko, and he wants a playing card."
+  "He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a senator for Heiko."
 
   "What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
 
@@ -149,9 +149,9 @@
 
   "Ara. It's being blocked by... something."
 
-  "And you know this... how?"
+  "And they know this... how?"
 
-  "The observers found some anomalous objects in space that have been blocking Ara. They're growing in number and will soon block out all of Ara. An ice age is predicted in... 58 days."
+  "The observers found something up there in space. It keeps growing and will soon block out all of Ara. In less than 60 days... an ice age will begin."
 
   "Days?!"
 
@@ -159,19 +159,19 @@
 
   Casra started talking to her self, "All our work... Everyone I've ever known..."
 
-  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to know what to do.
+  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to understand hae own mortality.
 
-  "I'm sorry... I may have said too much."
+  "I'm sorry... I've said too much."
 
   Casra leaned in to hug Linyu, while keeping her eyes up.
 
   "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Shadestead."
 
-  Kip, kneeled down to set with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
+  Kip, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
   "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let it fall into anarchy once before and I must not let it happen again."
 
-  "Please... when the time comes...reconsider. Radio could be the answer we're looking for."
+  "Please... when the time comes...reconsider. Your devices could be the answer we're looking for."
 
   "Then it's good of you to learn it."
 

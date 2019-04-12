@@ -9,7 +9,7 @@
 - Add a pet for Lif to talk to. It also shows primitive technology for society.
   - Maybe the pet can be horse-like to replace bikes
 
-- Make the city come alive in ch 3 instead of just rando getting a roll
+- Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
 
