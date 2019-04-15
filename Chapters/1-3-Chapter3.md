@@ -48,7 +48,7 @@
 -------
 
 
-  The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its orange splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wonder if the stars could die like we did.
+  The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wonder if the stars could die like we did.
 
   At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. He quickly parked his bike against a wall beside the door and I followed suit, parking mine against his.
 
@@ -82,9 +82,9 @@
 
   I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but it was unclear what they were.
 
-  "Heiko Conduit, this is Heiko Senator Assistant Pom speaking."
+  "Heiko Senator's conduit, Clerk Pom speaking."
 
-  "Assistant Pom, I have an urgent message for Melna"
+  "Clerk Pom, I have an urgent message for Melna"
 
   "Senator Melna is currently in assembly."
 

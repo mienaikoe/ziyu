@@ -15,6 +15,8 @@
 
 - Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.
 
+- It never rains.
+
 - Show the fervor of industrial revolution in depictions of Shaki or trains.
 
 - Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
