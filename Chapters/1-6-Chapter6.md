@@ -78,34 +78,23 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 "I know. Heikoans would be the first to die if we did that."
 
-"What do we do then?"
+"You can't let them push us around like that!"
 
-<!-- THIS IS AWKWARD, CUT IT -->
-"Well, I was hoping you would help me figure that out."
+"Lif... It's not that easy."
 
-"Me?" I asked, confused. My mind jumped to solutions. I had never been asked to think about my job on such a large scale before.
+"Just tell them no!"
 
-"Maybe pohua," I interjected.
+"It would risk a war at a time when none of us can afford that."
 
-"...What?"
+I pounded on the bars and paced back into my cell. Frustrated would be an understatement.
 
-"Pohua. I grow it at home. It can grow under some very harsh conditions. We could surrender all the food that we have stockpiled, and then quickly grow Pohua to stock up."
+"These are the people who protect our civilization from destroying each other? A bunch of people playing games with every Throngian to see what they can get?"
 
-She lowered the lantern to the floor and pulled out a charcoal and paper from her bag.
+"Lif... It's complicated."
 
-"How long does it take to grow?"
+I paced again, my cell feeling smaller than it had before. I didn't let her see that I was fighting countless compulsions to rattle the bars and scream at the top of my lungs. But my mind gave up and pushed me deeper into a depressive mess.
 
-"It grows to maturity around 40 Tova after planting."
-
-"That's too long. What will they eat in the meantime?"
-
-"They can do an early harvest on the crops they're currently growing. The other crops will likely die from inadequate light before 40 Tova anyway."
-
-She noted down my plans and put the paper and charcoal back in her bag.
-
-"Practical and smart. Thank you."
-
-"What happens now?" I asked.
+"So... what happens to me now?" I asked in a cracked voice.
 
 "Well, they are unlikely to forego sentencing. A magistrate will visit you tomorrow with whoever wants to plea your case. Then he'll sentence you and take you to wherever that sentence sends you."
 
