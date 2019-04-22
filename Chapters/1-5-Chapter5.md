@@ -43,7 +43,7 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "Do you ever miss it?"
 
-"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holragi Space Rail."
+"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holragi Sky Rail."
 
 "You were a part of that?"
 

@@ -95,33 +95,37 @@ Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and t
 
 
 ### Part 2 - "The Dreamer" (Kip)
-_Ch_
-Kip is in Ulu. He finds Cas and Wan. They survive the cold. Kip ventures into the forest, gets trapped.  Kip tries to share about the obstruction, but the champion laughs and enslaves him along with the rest of the group.
 
-_Ch_
-Kip is taken to the grand yurt by Setre, is drugged and has sex with the leader and Setre. He is then branded and sold to Cas.
+Kip is in Ulukoma. He finds Casra and Linyu. They survive the cold. Kip ventures into the forest, gets trapped by Setre who takes him to Lissa.  Kip tries to share about the obstruction, but Lissa laughs and enslaves him along with the rest of the group. Kip is taken to the grand yurt by Setre, is drugged and has sex with Lissa and Setre. He escapes with Casra. Casra is benevolent. Has trust issues, but Kip has shown that he is a good man in a bad place by saving Lin. He shares that Ara is dying, and thi shares about the history of Ulukoma and about radio technology. They try to rally the newcomers at the beach, and find hundreds. Casra is captured by Ramne, who is loyal to Lissa. Kip and Linyu lead the rest to Casra's hideaway where they prepare to rescue hae. It goes terribly wrong, and has ambiguous endings for all characters. At the end, Kip is trying to save Casra, and hears Lif's voice on the listener.
 
-_Ch_
-Cas is benevolent. Has trust issues, but Kip has shown that he is a good man in a bad place by saving Lin. He shares that Ara is dying, and thi shares about the Shayadj that come from the heavens.
 
-_Ch_
-Kip and Lin meet the Shayadj (Forest is one big tree that never dies, becomes their religion). The Shayadj live in the canopy above the forest. Lots of fog, lots of wildlife. They installed the coils on the trees and show that it's a way to pickup invisible waves (blows their minds).
+### Interlogue - Mel
 
-### Interlogue - Lif
-Lif reaches L1 and begins seeing details in the obstruction in the shadows. Hae realizes it's not one diffuse cloud, but several large machine-rock hybrids that seem to be dotting the sky and being modified by small robots. Thi reports on it but realizes thi's been spotted. Thi panics when a robot latches on to hae craft and moves it toward one of the machine-rock hybrids. The part ends with Lif being taken aboard one and not knowing what will happen. *SUPER SUSPENSE*
+Mel is at the observatory and discovers evidence of a craft being launched toward the obstruction. She is distraught and is pretty certain it's Lif. She vows to take vengeance and bring hae back, but doesn't know how. She goes home to sleep on it and go to the senate in the morning. Before heading to sleep, she gets a knock on the door, and it's Setre (& Linyu?).
 
-### Part 3 - "The Wager" (Mel)
-Mel stays in Shaki to argue for Heiko. She finds difficulty with the Arkeza, and braves the hardship of having no one to go home to. She finally gives up with debate in Shaki and goes home to Heiko to support them in their preparations. She finds a great deal of people who are angry at her for giving away their food stores. They throw pohua at her as a mocking gesture of her recommendation. She gives a moving speech to rally Heiko for the path forward.
+= Linyu would likely be helped (in Heiko. Shaki is too busy for moneyless nobodies).
+= Ginnu and Penyi just arrived. They wouldn't be likely to leave the island.
+= Fanla just arrived, but played an important role in Kip's stay at Ulukoma.
+= Setre has known Ulukoma as home for a long time, but might leave for something this important.
+= Setre wouldn't leave Linyu alone with Ramne on the loose.
+= Did Linyu die?
 
-Mel and Kip meet up in Yansha. Kip tells her about radio, and she commissions a team to build a transmitter/receiver in Heiko. Once built, Lif is shown to be alive and well, talking to the robots.
 
-Lif tells them the robots' intentions are to cull their population so that overcrowding doesn't dwindle their food supply. Thi still doesn't know who made them. The only way to stop them is to reduce their numbers. Mel has a bright idea of sending a lot of people to live in the Shadestead to "hide" their numbers.
+### Part 3 - "The " (Mel)
 
-Mel decides on a dime to go to Holragi to sneak a ride to L1. Kip follows along to help. She finds that Holragi has built a series of destruction vessels for the space rail. Holragi knows this, and is building huge bombs to destroy destroy Heiko in an elliptical trajectory.
+- Setre tells her about radio, and they make listeners. Once built, Lif is shown to be alive and well, reporting back to Holragi. They learn that the obstruction is a giant swarm of small semiconductor/aluminum machines that form a hivemind.
 
-They remove the destruction payload on the first vessel, steal a pressure suit, and Mel takes first vessel and rides out to L1.
+- Mel stays in Shaki to argue for Heiko. She finds difficulty with the Arkeza, who want to go to war to gain their food back. She finally gives up with debate in Shaki and goes home to Heiko to support them in their preparations. She finds a great deal of people who are angry at her for giving away their food stores. They throw pohua mash at her as a mocking gesture of her recommendation. She gives a moving speech to rally Heiko for the path forward.
 
-Mel is taken aboard to where Lif is. Lif is perfectly healthy and expecting Mel. Mel is suspicious of Lif because thi's acting strangely, but decides to take hae home on hae converted destruction vessel. Mel must bargain with the robots for Lif's life(?)
+- They travel to Shaki to talk to the senate. Mel intends to convince the senate to
+
+- Mel + Setre + Linyu travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover.
+
+- They learn about Holragi from ______ . The tribe is next to travel to the Sky Rail. They believe in the Shayadj: gods who take and give technology to suit their own ends. The Holragians have an oral tradition of the last time the Shayadj came and stole many technologies (coal and oil) beyond the imagination that they've been trying to replace ever since. The tribe people are convinced that the obstruction is the Shayadj returning to steal Ara, the ultimate technology. Lif sort of confirms this cryptically through the listener. Lif reveals that the machines are beginning to densify and respond to her craft, the chapter ends with the reader not knowing if Lif has been captured or not (radio silence).
+
+-
+
+
 
 ### Epilogue
 The epilogue ends with the two having landed safely near a ziyu tree in Heiko and Lif losing it - either from not being able to hear the tree activate since Ara's light is bringing in more wind, or the robots being destroyed. The reader and the author don't know.
