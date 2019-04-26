@@ -1,5 +1,7 @@
 ## Notes for Edit Mode:
 
+
+### Part 1
 - Show some internal marriage struggles in Chapter 1, 2 beyond just Mel keeping secrets.
   - Kipnu's struggle is caring about his family, but chasing his fantasies, wanting to cheat.
     - He gives in, and looks to redeem himself
@@ -19,12 +21,15 @@
 
 - Show the fervor of industrial revolution in depictions of Shaki or trains.
 
+### Part 2
 - Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
 
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
   - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?
 
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
+
+- Introduce a species of bird to Ulukoma, and then when Lin + Kip climb the tree, have some foreshadowing where Kip knocks a nest down accidentally, and Lin saves the eggs. (Perhaps future books can have Lin be some hero?)
 
 - More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
 
