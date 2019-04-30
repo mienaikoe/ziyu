@@ -27,6 +27,7 @@
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
 
 - More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
+  - Give Ramne a lot of concealment. Make it almost impossible to spot him.
 
 - Make some triple non-hetero
 
