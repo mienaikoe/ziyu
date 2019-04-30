@@ -80,11 +80,11 @@
 
   "Transferring you to Heiko Senator. Please wait a moment."
 
-  I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but it was unclear what they were.
+  I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-  "Heiko Senator's conduit, Clerk Pom speaking."
+  "Heiko Senator's conduit, Clerk Pomri speaking."
 
-  "Clerk Pom, I have an urgent message for Melna"
+  "Clerk Pomri, I have an urgent message for Melna"
 
   "Senator Melna is currently in assembly."
 
