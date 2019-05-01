@@ -22,7 +22,7 @@ Interlogue
   "Look for a small dot rising up from the horizon."
 
   Melna stared into the image plate, searching for any sign of a light in the darkness.
-  
+
   "It's just the sky," she said.
 
   "Close your eyes for a moment, and then open them again."
@@ -69,7 +69,7 @@ Interlogue
 
   "Ask me tomorrow. I have to go home."
 
-  Pomri threw hae hands up in disappointment as Melna reached for a thick felted black  cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms. 
+  Pomri threw hae hands up in disappointment as Melna reached for a thick felted black  cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
 
   Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer shimla's calculations."
 
@@ -81,14 +81,34 @@ Interlogue
 
   "Be there!" She snapped, and closed the door.
 
-  Her walk down the hill was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind picked up, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warm too. *I will find you, Lif. You are not forgotten.*
+  She produced a small oil lantern and lit it with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind picked up, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warm too.
 
-  At the base of the hill, she produced a small oil lantern and lit it with a hot tip. The ground had become wet with the night's dew, and she tried her best to avoid the miniature puddles that were forming. She remembered the day she left Kip and Lif and longed to relive that day.
+  At the foot of the hill stood Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
-  With a gentle creak, the latch of her house gate opened under her hand and she resumed her uncareful gait.
+  "Come on Laen-Laen, let's go home."
+
+  He whimpered a little, a suspicious complaint for a freezing saffa.
+
+  "Laen-Laen, what's wrong?"
+
+  He shifted his legs a little to reveal a little kaln curled at his belly.
+
+  "Oh my goodness, are you ok?" She asked, reaching for hae.
+
+  Thi looked up, bewildered, but didn't respond. Mel's hands wrapped safely under hae arms, to prop hae upright.
+
+  "I am Melna. What is your name?"
+
+  The kaln tried to respond, but could only whisper, so she bent down closer to hear hae.
+
+  "Lin. Yu."
+
+
+
+
 
   <!--
-  
+
 
 "Maybe pohua," I interjected.
 
@@ -111,4 +131,3 @@ She noted down my plans and put the paper and charcoal back in her bag.
 "Practical and smart. Thank you."
 
   -->
-

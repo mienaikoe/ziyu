@@ -8,7 +8,7 @@
 
   "How long have you been here?" I asked.
 
-  "Just a click. I figured you would be here today."
+  "Just a moment. I figured you would be here today."
 
   I stayed silent, still listening for the leaves and my mother's voice.
 
@@ -22,7 +22,7 @@
 *************
 
 
-  Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his goofiest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
+  Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
 
   "Who's the letter from?", I asked Kip casually.
 

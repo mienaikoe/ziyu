@@ -4,7 +4,9 @@
 
 
 
-  The station was just filling up for the next train after the day's first nap. I was feeling sluggish from biking around and skipping lunch and sleep, so I settled for a savory kadja roll from the bakery my parents used to take me to. I ate it squatting and leaning against a tree near the tracks, hiding from the wind and from Kip if he had decided to follow me. *This is the right thing*, I affirmed to myself. *No externalities. No liabilities*. I thought about the crops I had just planted. Whether Mel would ask Tig to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jes says, then those crops don't matter in the scheme of things. Heiko would understand.
+  The station was just filling up for the next train after the day's first nap. I was feeling sluggish from running around and skipping lunch and sleep, so I settled for two savory rolls from Gilli's; one for Laen-Laen and one for me. I left him in at the corner with the roll and a handful of water, and made my way to the platform.
+
+  My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kip if he had decided to follow me. *This is the right thing*, I affirmed to myself. *No externalities. No liabilities*. I thought about the crops I had just planted. Whether Mel would ask Tig to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jes says, then those crops don't matter in the scheme of things. Heiko would understand.
 
   The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare for marshalling."
 

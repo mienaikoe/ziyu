@@ -34,25 +34,45 @@
 -------
 
 
-  The late morning starlight was just enough for me to see while I dashed to the bike under the veranda on the side of the house. The seat was freezing from being in the shade all night and all morning, but I hopped on anyway and endured the bitter cold on my back. I had a sliver of a moment to remember when Jes and I used to ride along the foggy coastline in the mornings. We would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+  The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jes and me.
 
-  *Not the time for memories*. I snapped out and rushed to the front gate where Jes was waiting for me.
+  "Laen-Laen, good morning!"
+
+  He gave out a whoop as he woke up from his half-nap.
+
+  "Laen-Laen, you're still asleep?"
+
+  A loud "Ooo" sound filled the room as he stood up and yawned in my face.
+
+  "Hey grass-breath, can you take me to Heiko central?"
+
+  He snorted his disapproval with his fuzzy ears turned backward.
+
+  "We can stop by Gilli's and get a cake."
+
+  "Whoop whoop whoop!" He said as he perked up and twisted his head left and right.
+
+  "There we go. Now lets get you ready."
+
+  I took a soft linen blanket from the wall and I paused a moment to remember when Jes and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+
+  *Not the time for memories*. I snapped out and hopped on while rushing to the front gate where Jes was waiting for me.
 
   "Didn't think we would be doing this again, " he said.
 
-  "Well, I never thought I would make a family with a member of the court."
+  "Well, I never thought we would be delivering a message to the senate."
 
-  "Yea. You surprised us all."
+  "Sometimes you're just a barrel of surprises, Lif."
 
 
 -------
 
 
-  The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wonder if the stars could die like we did.
+  The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wondered if the stars could die like we did.
 
-  At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. He quickly parked his bike against a wall beside the door and I followed suit, parking mine against his.
+  At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen-Laen. I gave him a thankful pat on the neck and he gave me back a small whoop of acknowledgement.
 
-  When I entered, he was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+  When I entered, Jes was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
   "Shaki Conduit, This is Heiko Conduit."
 
@@ -98,7 +118,7 @@
 
   "Surely you can make an exception"
 
-  "And I would surely be sent to Ulukoma for it."
+  "And I would surely be imprisoned for it."
 
   He sighed in frustration burying his eyes in his hand.
 
@@ -116,9 +136,9 @@
 
   "I'll interrupt the Senate"
 
-  "That's crazy, you'll be sent away."
+  "That's crazy, you'll be sent to Ulukoma."
 
-  "If this is as important as you say, then it would be worth a few tova in the dark."
+  "If this is as important as you say, then it would be worth a few days in the cold."
 
   He shouted, "More than just a few!"
 
@@ -126,13 +146,13 @@
 
   I tried to convince him again, "I can't think of any better way to do it"
 
-  "You are sacrificing too much. The bureaucracy behind the court is maddening."
+  "You are sacrificing too much. The bureaucracy behind the court is impossible."
 
   "If this is as important as you say, then there will be a lot of chatter for the next few days. Someone has to keep the communication lines open amidst all that chaos."
 
   He seemed defeated but looked up into my eyes and we locked gazes for a while.
 
-  "If you pull this off, we will all petition for your freedom."
+  "If you pull this off, we will all petition for your return."
 
   "Don't worry. I've got a coat."
 
@@ -164,7 +184,7 @@
 
   "You're keeping a secret. Tell me what's going on-"
 
-  I backed away and stammered, "I'll tell you later."
+  I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be at the station."
 
   I turned to walk out the door, and he grabbed my wrist. I winced and looked back at his eyes. They were pleading, worried.
   "We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
@@ -173,7 +193,7 @@
 
   "I already am."
 
-  He released his grip, and I stood in the doorway, still vying with my own thoughts.
+  He released his grip, and I stood just outside the door, still vying with my own thoughts.
 
   *I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land*
 
@@ -189,7 +209,7 @@
 
   "Kip...if you go with me, it will be a long time before you come back."
 
-  "What are you talking about? The trains run every va'ama"
+  "What are you talking about? The trains run four times a day."
 
   "This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
 
@@ -201,4 +221,4 @@
 
   "Goodbye," I said.
 
-  I walked out and didn't look back.
+  I hopped onto Laen-Laen and didn't look back.
