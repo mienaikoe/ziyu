@@ -95,13 +95,13 @@ Interlogue
 
   "Oh my goodness, are you ok?" She asked, reaching for hae.
 
-  Thi looked up, bewildered, but didn't respond. Mel's hands wrapped safely under hae arms, to prop hae upright.
+  Thi looked back at Mel with eyes transfixed, wanting to run but too exhausted to do so. With a hook and wrapping motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. The curious saffa sniffed and licked the kaln's head, but thi stayed unmoving,
 
-  "I am Melna. What is your name?"
+  "I am Melna," she said deliberately. Her hand turned to clasp haes.
 
-  The kaln tried to respond, but could only whisper, so she bent down closer to hear hae.
+  Trying to respond, the kaln could only muster a whisper, so she bent down closer to hear hae.
 
-  "Lin. Yu."
+  "Lin... Yu."
 
 
 

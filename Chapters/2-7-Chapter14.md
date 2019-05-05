@@ -366,17 +366,17 @@
 
 	Without a pause, he rose and ran off. The heat grew in intensity as he approached, but he pushed the pain down. He had to find Setre and Casra.
 
-	A silhouette appeared in the doorway of the tent. It was thin and short, almost resembling "Linyu! Linyu is that you? What are you doing down here?" But amidst the lapping of flames and fabric, the silhouette stood up and transformed into Casra, stumbling out of the tent in a daze. He dashed to her to pull her out of the flames.
+	A silhouette appeared in the doorway of the tent. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Casra, stumbling out of the tent in a daze. He dashed to her to pull her out of the flames.
 
-	"Lin...Lin...", she mumbled through labored breaths as she collapsed onto the ground.
+	"Cas...Cas...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
 
-	He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames. Setre reached to Kip's arm and he turned back toward her. Her eyes were glazed and vacant as if she were experiencing some other world between her eyes and his. She called out again in a voice frailer than before, "Kip... Lin..."
+	He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kip's arm and he turned back toward her. Her gaze was vacant as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
 
 	"Thi is safe in the treetops. No need to worry," he comforted her. But her mind was still locked away.
 
 	*I need to find Casra.*
 
-	"Fanla, which direction did Linyu see the figures run?"
+	He turned to Fanla and asked, "Fanla, which direction did Linyu see the figures run?"
 
 	"Figures?" she asked franticly. Her hands were firmly against the chest of a fallen guardian, searching for a pulse.
 
@@ -394,7 +394,7 @@
 
 	The trees were transforming as he ventured into the dark. From giant pillars of reflected fire to silent phantoms looming in the dark. The darkness often led him into trees, discovered only by the sudden absence of echoes. He searched for any faint sign of a horizon through the darkness, but none was visible. His feet began to belabor him, and his mind raced with imaginings of being found and killed by lurkers in the dark, or just getting lost and dying in that impenetrable black. Slowing to avoid hitting anything, he looked upward toward the sky to search for the red dots that he had seen up in the treetops with Linyu, but the sky was obscured by the treetops.
 
-	*"Lin...Lin..."* Setre's murmurs passed through the ears of his mind, and confused him even more. *Was Setre hallucinating something about Linyu? I haven't heard from hae. I am pretty far from them now, though.* 
+	*"Lin...Lin..."* Setre's murmurs passed through the ears of his mind, and confused him even more. *Was Setre hallucinating? I haven't heard anything on the listener. But I am pretty far from them now.*
 
 	He whispered to the darkness in broken phrases, "Casra... Linyu needs you... This place needs you..." but his words were swallowed with the sound of leaves rustling far above. A chilly humidity had taken over the air, mingling with the smell of dead pine needles and ice hanging on his breath, and. Salt. *I must be near the shore.* Drawing a few deep breaths, he recommitted his mind and started running again.
 
@@ -403,21 +403,21 @@
 	"Casra!" He called toward the sound. There was no answer.
 
 	Finally, he came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was dumbfounded at what he saw. A streak of blue light hanging upon every wave, and reaching down to the ocean floor. Above, there were far more dots marring Ulu than he had seen before. Some were white, some yellow, and others red.
-	
+
 	Kip refocused on his mission. He called out again, "Casraaa!!"
 
 	"She's dead," a mamal voice came from behind him. Kip jumped out of surprise and looked around for the source.
 
 	"Have you come to kill me, Kipnu?" Lissa said, "I already have an appointment with death."
 
-	Kip lunged at hae, but Lissa was faster. Thi dodged, and Kip fell onto the icy ground. Before he could get up, thi drew a short sword. 
-	
+	Kip lunged at hae, but Lissa was faster. Thi dodged, and Kip fell onto the icy ground. Before he could get up, thi drew a short sword.
+
 	"You burned our home to the ground. Hundreds of people, dead in a moment–"
 
 	"The fire? I didn't start that–"
 
 	"Had I known you were a fucking psychopath, I would have drugged you for the rest of your life. But instead, I let my guard down, and then you ruined everything."
-	
+
 	"I swear it wasn't me," he pleaded. Thi turned him around and stabbed his left hand. While he was writhing in agony, thi raised her voice to overcome his.
 
 	"I loved my people. We loved our way of life. An Ara-worshipper like you would never understand."
@@ -427,7 +427,7 @@
 	Thi twisted the blade and he screamed even more.
 
 	"And who are you to say that you aren't? You think you've got it made in Heiko? How do you handle those who don't fit into your mold of the perfect person, huh? You imprison them? Send them to Ulukoma where they won't be a nuisance? Burn us all in a fire and make it look like an accident? Is that what you do?"
-	
+
 	Thi leaned in close to him and wrapped hae hand around his throat.
 
 	"You think we're broken. Off the *fucking* rails. Well, not everyone can handle being sober. We decided to forge our own paths; away from all the shit you call society; in a place we could do whatever we wanted. But you just couldn't stand it, could you? You had to come here and burn it all down. *Nobody* can have a shred of fucking happiness."
@@ -438,7 +438,7 @@
 
 	He mustered up what little strength he had to answer, "Didn't... start... fire."
 
-	Thi hesitated a bit. 
+	Thi hesitated a bit.
 
 	"Come on, Kip. We're both going to die out here."
 
@@ -452,14 +452,14 @@
 
 	"Ramne," he said.
 
-	Lissa paused for a moment to think it over. 
-	
+	Lissa paused for a moment to think it over.
+
 	"Fuck," thi said. "That fucker played us all."
 
 	They spent a moment in the cold, saying nothing, letting the realization wash over them. The blue waves projected countless patterns across hae pale-cold face. Thi reached for the kanosin pipe from Kip and took two more very deep hits before bringing it back to him and removing hae sword from his hand and the ground. He cried out in pain again, but the kanosin had sunk in, so the pain settled soon after.
 
-	Thi took a look at the blood on the blade and set it back down. 
-	
+	Thi took a look at the blood on the blade and set it back down.
+
 	"I took pride in what I built. In outsmarting everyone who stood in my way. I want you to remember that, Kipnu. I want you to remember who we were and what we did here."
 
 	Thi turned back to Kip and helped him sit up. He could see tears welling up in hae eyes in between the refraction of his own.
@@ -480,12 +480,12 @@
 
 	The water wasted no time numbing his whole body. First with his hydroderm, and then slowly creeping inward to more sensitive areas. Perhaps it was the Kanosin, but the cold was not painful. Instead, he could felt faint tickles as he swam past the bluekelp, activating its light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear the voice of a maman in his listener, but he ignored it and kept searching.
 
-	Once he got out about as far as 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body. 
-	
-	Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer in the cold before drowning. Kip started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced. 
-	
+	Once he got out about as far as 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
+
+	Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer in the cold before drowning. Kip started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
+
 	He heard a sound in his listener again, but it was much more audible, "3, 2, 1." Putting it out of his mind, he went for a third dive, where he pulled more kelp. *Three, Two more to go.* Above him, he glanced at Casra being lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, but he rushed himself into taking two breaths and plunged back into the deep. He started to see hallucinations of flashing lights in his eyesight as he reached the bottom again. The last kelp seemed the most stubborn. Its roots had been buried deep and it was securely fastened to Casra's left arm. Once again ignored the danger, he kept pulling on the root, feeling his muscles giving away their last bits of strength and his lungs failing to keep a hold on the air. He accidentally took a breath, and tasted the salt as it entered his lungs. He choked in reflex and looked up to try to surface, but his consciousness was already fading, and he was no longer buoyant enough.
-	
-	As reality closed in on him, he gazed at the stars and at Casra, wrapped in blue light. 
-	
-	The listener spoke again, "Kip, Mel. I love you."
+
+	As reality closed in on him, he gazed at the stars and at Casra, wrapped in blue light.
+
+	The listener spoke again, "Kip... Mel... I love you."
