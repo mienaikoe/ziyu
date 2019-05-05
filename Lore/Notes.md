@@ -48,11 +48,17 @@
 
 - Linyu died or not? If thi does, you should make it as ornate as Casra's death.
   - Maybe Linyu is unconscious.
-  - Setre saying "Lin...Lin" is unnecessarily ominous.
+
+- Be a bit more clear on Lissa's destiny.
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
-- "We know truth not only by reason but also by heart"
+- "We know truth not only by reason but also by heart" <- what?
+
+
+
+
+
 
 Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
   - Most realistic
@@ -67,7 +73,7 @@ Option3: Lissa has a covert army of moles and manipulators in every tribe, in Sh
 
 - Robots are actually a diffuse neural cloud of microscopic phototransistors
 
-End
+### Part 3
   - Casra and Linyu leave with Kip.
   - Mel uses Kip's technology when she visits the obstruction to control the robots to block the bombs otherwise they would hit Heiko.
     - Robots build would cause a dichotomy: (radio societies could control the robots, non-radio societies would die off. The great filter. Why? Proof of advancement. Proof of work. Proof of research. Only societies that can cooperate and contribute to the last question are permitted to survive. Otherwise, their planet's resources are stripped and their star is harvested.)

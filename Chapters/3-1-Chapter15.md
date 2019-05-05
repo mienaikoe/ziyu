@@ -40,3 +40,5 @@ There were a million questions hiding in her throat, but her lips were blocking 
 "Was it in the city? I didn't hear of any fire."
 
 Linyu stared into the distance, hae eyes unmoving, untelling. She had to build more trust.
+
+<!-- CREATE SOME TOTEM FOR LINYU TO RECOGNIZE KIP FROM -->
