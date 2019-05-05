@@ -31,6 +31,8 @@
 
 - Introduce a species of bird to Ulukoma, and then when Lin + Kip climb the tree, have some foreshadowing where Kip knocks a nest down accidentally, and Lin saves the eggs. (Perhaps future books can have Lin be some hero?)
 
+- DO NOT VILLIFY Ulukoma's sexual society. Only villify its drug problem under Lissa. Hint about Casra's approval and partaking in the sexual society as well.
+
 - More description of Ramne, Linyu, Lissa, Setre, and Ginnu.
   - Give Ramne a lot of concealment. Make it almost impossible to spot him.
 
