@@ -156,7 +156,7 @@
 
   "Thank you. Lif."
 
-  Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. Kip and I watched as she entered the daylight and headed toward the rail station without looking back.
+  Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. He and I watched as she entered the daylight and headed toward the rail station without looking back. I held my marriage pendant tightly.
 
   "What's eating her?" Kip asked again.
 

@@ -47,7 +47,7 @@ Casra took a satchel from Linyu and dipped hae finger in it. "Here, rub some of 
 
 He did as she told and immediately winced. "Tha a ot o siging," he tried to say.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see the kaln eying the ring around his ankle. After a minute, the stinging went away along with his headache and his mental haze.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see the kaln eying the silver pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
 
 "It's... gone. What is that stuff?" he asked.
 

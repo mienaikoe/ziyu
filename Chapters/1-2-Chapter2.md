@@ -2,7 +2,10 @@
 ## Chapter 2
 
 
-  After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me. I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. As I changed out of my morning clothes, I remembered mornings with my mother, changing into our work clothes.
+  After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me. 
+  
+  I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. Every day was a repeat of the same movements I had ingrained in myself from countless mornings of dressing with my mother, but they had grown from a boring repetitive task, to a calming daily ritual.
+ 
   We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. She would carry me in a big thatch bag on her back while she tilled, planted, harvested. I watched her hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much she could plant and harvest and aspire to do the same. It's been 6 seasons since she passed, but she lives as vividly in my memories as she did in life.
 
   "I bet you'll plant 1000 today, Liffa"
@@ -45,7 +48,7 @@
 
   "That's none of your business"
 
-  "I'm just looking out for you. When you can't dig anymore, you'll wish you had a replacement."
+  "I'm just looking out for you. When you can't dig anymore, you'll wish you had someone to take your place."
 
   "I'll be just fine"
 
@@ -65,9 +68,9 @@
 
   "They're doing just fine, okay? Kip is having a great start at the clinic, and Mel is representing this village to the council. Is that what you're looking for?"
 
-  She went quiet and resumed her work while I stared at her, livid.  
+  She sughed, went quiet, and resumed her work while I stared at her indignantly.  
 
-  "A jealous Maman never rests."
+  "A jealous Maman never rests," she said out of nowhere.
 
   I jabbed my shovel into the clay and stopped myself from yelling something I would regret later. *That's enough for now*.
 

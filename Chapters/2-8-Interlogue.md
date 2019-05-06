@@ -15,7 +15,7 @@ Interlogue
 
   "Senator Melna, I think you should see something."
 
-  Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a maman sitting in the dark at a telescope plate pointed toward the horizon. Thi was carefully adjusting a dial on the lens output as thi made room for Melna.
+  Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark at a telescope plate pointed toward the horizon. He was carefully adjusting a dial on the lens output as he made room for Melna.
 
   "What should I be looking for?" Melna asked.
 
@@ -59,7 +59,7 @@ Interlogue
 
   "Pomri, I taught you better than this. Everyone in the senate is simply trying to prolong the inevitable while Holragi is hiding the only lead we have to our survival. We are in a game of their design and we are playing it whether we want to or not."
 
-  "So what? We tell the creator their game sucks, and hope they listen to us?"
+  "So what? We tell the game masters we aren't playing, and hope they listen to us?"
 
   "No. We have to make them change the rules."
 
@@ -81,7 +81,7 @@ Interlogue
 
   "Be there!" She snapped, and closed the door.
 
-  She produced a small oil lantern and lit it with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind picked up, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warm too.
+  She produced a small oil lantern and lit it with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
   At the foot of the hill stood Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
@@ -91,7 +91,7 @@ Interlogue
 
   "Laen-Laen, what's wrong?"
 
-  He shifted his legs a little to reveal a little kaln curled at his belly.
+  He shifted his legs a little to reveal a little kaln dressed in strange reed clothing curled at his belly.
 
   "Oh my goodness, are you ok?" She asked, reaching for hae.
 

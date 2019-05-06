@@ -68,7 +68,7 @@ He inhaled a small bit and the smoke triggered his cough reflex almost immediate
 
 He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable. His head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment.
 
-"There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. There was an internal tension brewing inside between his self-identity and his suppressed hedonistic desires. He glanced at the silver ring around his ankle, a symbol of his oath to his family.
+"There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. There was an internal tension brewing inside between his self-identity and his suppressed hedonistic desires. He put his hand around the pendant on his neck.
 
 "Lif...Mel," he called out.
 
