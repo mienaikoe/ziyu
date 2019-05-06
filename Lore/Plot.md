@@ -113,13 +113,24 @@ Mel is at the observatory and discovers evidence of a craft being launched towar
 
 ### Part 3 - "The " (Mel)
 
-- Setre tells her about radio, and they make listeners. Once built, Lif is shown to be alive and well, reporting back to Holragi. They learn that the obstruction is a giant swarm of small semiconductor/aluminum machines that form a hivemind.
+- Linyu and Melna introduction. Linyu discovers Pohua in the garden, growing perfectly while lots of other crops have failed. Melna takes pohua with her. The Heikoans generally despise Melna for losing their food stores and say so in the city center. She's met with an Arkeza protestor who tries to stop her from boarding the train without hearing his pleas. Melna gives him a tuber of pohua, and he tosses it aside.
 
-- Mel stays in Shaki to argue for Heiko. She finds difficulty with the Arkeza, who want to go to war to gain their food back. She finally gives up with debate in Shaki and goes home to Heiko to support them in their preparations. She finds a great deal of people who are angry at her for giving away their food stores. They throw pohua mash at her as a mocking gesture of her recommendation. She gives a moving speech to rally Heiko for the path forward.
+- On the train, Linyu tells her about radio, and they make listeners. Once built, Lif is shown to be alive and well, reporting back to Holragi. The observer says Liffa is on a 3-day mission to L1 and is in a craft large enough to move around in and have food stores. She will re-enter the atmosphere somewhere in the middle of the dark of the ocean between Heiko and Ulukoma. Linyu thinks thi might be able to contact Liffa as hae gets closer.
 
-- They travel to Shaki to talk to the senate. Mel intends to convince the senate to
+- Mel stays in Shaki to debate food. She cannot let on that she knows about Liffa but she is highly tempted. Linyu gathers parts for a transmitter. They meet Setre outside of the senate. She tells them that Kip is missing along with Casra. Lissa was found dead with apparently no signs of foul play. Penyi has gone mad with PTSD and paranoid schizophrenia, constantly feeling terrified of the armory and what thi thinks is down there. Fanla is running the show with Setre. Setre is on a mission to Holragi to snoop on their radio and find out what they acually know. Melna wants to go, but has to stay behind to help Liffa off the craft.
 
-- Mel + Setre + Linyu travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover.
+- Melna re-visits Heiko to give a speech. Most of the populace hates her and gives up faith, following the Arkeza leader. Some of them hear her out and agree to try. Linyu builds a transmitter. The next day, they go to the observatory and see snow. They use the transmitter to contact Liffa and ask the observers to give closer coordinates. They discover that Liffa will need to escape from the craft with a parachute and a life vest. Apparently Fajro wasn't too concerned about hae safety on arrival for some reason. They pick up Liffa who is shaking from shock and muscle weakness. But she has a lot to talk about. Fajro comes on the listener and says "I see you found your morning bird. But turning a Holragian against her own home province. Now that sounds like a declaration of war." Setre is captured.
+
+- At the senate, Fajro says that Holragi has sent a series of projectiles to L1, aimed at creating a chain reaction to wipe out the bots. Melna knows he's actually planning to bomb Heiko and invade Shaki from Ulukoma. She devises a plan to move Heikoans all to Ulukoma with the Pohua they grew and thwart his invasion there. But she no longer has a voice in Heiko. Liffa, as a global hero, backs her up and they all plan to go. The Arkeza secretly plan to murder all Holragians in Ulukoma as part of a right-wing extremist plot.
+
+- Penyi and Liffa are in intense pain whenever they're near each other. the first bombs go off at L1 and Liffa screams in agony. 
+
+
+
+### Part 4 I guess? "The 
+
+
+- Setre travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover.
 
 - They learn about Holragi from ______ . The tribe is next to travel to the Sky Rail. They believe in the Shayadj: gods who take and give technology to suit their own ends. The Holragians have an oral tradition of the last time the Shayadj came and stole many technologies (coal and oil) beyond the imagination that they've been trying to replace ever since. The tribe people are convinced that the obstruction is the Shayadj returning to steal Ara, the ultimate technology. Lif sort of confirms this cryptically through the listener. Lif reveals that the machines are beginning to densify and respond to her craft, the chapter ends with the reader not knowing if Lif has been captured or not (radio silence).
 
