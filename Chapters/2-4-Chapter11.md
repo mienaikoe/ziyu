@@ -86,6 +86,8 @@
 
   He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard a maman clearing hae throat. *Is that...Casra? But thi is so far away.* Thi began singing and Kip heard it as if were coming from inside his own head.
 
+
+<!-- This song is pretty cringey -->
   ***
     A little fish, swimming down below,
     A little bird, floating up above,
@@ -113,23 +115,23 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi had malicious plans and wanted to use radio to uncover them."
+  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi was hiding something and she wanted to use radio to uncover it."
 
-  "What sorts of plans?"
+  "Did she ever find out if they were?"
 
-  "We never found out. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holragi and help us find out. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
+  "We were too focused on other things to really dedicate any time to it. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holragi and help us. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
 
   "Well, I'm glad we met then. I have every intention of going back and figuring out what Holragi is up to."
 
   "I've never met someone so interested in what we're doing, so pardon if I ask: what's in this for you?"
 
-  "You remember the reason I gave you for why I was here?"
+  "You remember the reason I told you for why I was here?"
 
   "You pinned a man against a wall."
 
   "The man was an ex-senator from Holragi. And he pressured my partner, Liffa, into going on some experimental flight to space."
 
-  "Why would he do that?"
+  "What? Why would he do that?"
 
   "He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a senator for Heiko."
 

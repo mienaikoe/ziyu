@@ -14,13 +14,13 @@ Setre led Kip from behind, with the darkness playing the role of both binding an
 
 "Who are these people?" He asked.
 
-"Kano-heads. They're lowlifes who come for their sentence, work until they've recovered, and then leave."
+"Kano-heads. They're lowlifes who come for their sentence, work for a while, then leave."
 
 "What about the others?"
 
 "You'll see."
 
-The fire was a behemoth of heat eating through 10 logs at once. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and machinist were cleverly situated mere steps away, with its own fire stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kip lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
+The fire was a behemoth of heat eating through 10 logs at once. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and oven were cleverly situated mere steps away, with their own fires stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kip lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
 
 At the far side of the fire a tent stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kip could hear the noises of a nearly a thousand people inside of it.
 
@@ -36,15 +36,9 @@ She looked him up and down again, surprised.
 
 "I need to call you something when I introduce you."
 
-She flipped the tent cover and they entered a new world of blue light. Everyone had luminescence covering their bodies and wore nothing but this luminescence. Some were smoking some drug he hadn't encountered before, some were singing and dancing songs from the mainland, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
+She flipped the tent cover and they entered a new world of blue light. Everyone was nude and had ornately-patterned luminescent markings on their bodies. Some were smoking something sweet he had never encountered before, others were singing and dancing songs from the mainland, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
 
-She led him through the narrow spaces between people. Some made room and others did not even notice them. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat.
-
-He asked Setre, yelling through the noise, "How can you stand this stench?"
-
-"You get used to it," She replied.
-
-They came to the back of the tent, where a maman no more than Kip's age sat on a rug in front of a tent post, smoking something sweet through a long pipe and laughing with others around hae.
+She led him through the narrow spaces between people. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat. They came to the back of the tent, where a maman no more than Kip's age sat reclined in front of a tent post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing.
 
 Setre whispered something in hae ear, and the maman looked Kip up and down with a mischievous smile. Thi motioned to him to join them on the other side of the tent wall. Setre pushed him to go, and he hesitantly went. To his surprise, the other side wasn't the outside, but another smaller tent with soft linens across the floor. He knew where this was going.
 
@@ -54,15 +48,15 @@ The maman spoke to him with a charming face.
 
 "If you choose not to... we have a way to steal all of your fun."
 
-Kip stared at hae with cold eyes, nothing he wanted to say would be helpful.
+Kip stared at hae with cautious eyes, wanting nothing more than to leave this place.
 
-Setre chimed in with glee, "We hunt you down and kill you."
+Setre chimed in, "We hunt you down and kill you."
 
 And Lissa continued, "Anyway, just cooperate and we'll all have a great time."
 
 Thi observed him with a feigned frown.
 
-"You seem a bit on-edge. Have a bit of the spirit."
+"You seem a bit on-edge. Have a bit of the ghost."
 
 Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took the pipe, but immediately tried to give it back.
 
@@ -72,17 +66,17 @@ Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took th
 
 He inhaled a small bit and the smoke triggered his cough reflex almost immediately. He tried to cough without moving his neck into the dagger, and Lissa lowered it and put it away, saying "There you go. You'll get the hang of it. One more."
 
-He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable. His head was rushing with thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment.
+He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable. His head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment.
 
-"There you go," Lissa said while thi and Setre laid him down on the floor. He could feel their hands traveling across his skin and multiplying to eight, twelve hands. He was feeling an internal tension, like a tangled string being pulled too hard.
+"There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. There was an internal tension brewing inside between his self-identity and his suppressed hedonistic desires. He glanced at the silver ring around his ankle, a symbol of his oath to his family.
 
 "Lif...Mel," he called out.
 
-"Shh," Lissa said, "We are all a family in the darkness."
+"Shh," Lissa said as thi moved on top of him, "We are all a family in the darkness."
 
-The floor became an ocean of linens and he was sinking into them. *All of your fantasies.* This was something he had imagined ma'to ago, to trim away all his inhibitions and bathe in carnal desires with strangers. Such things were taboo in Heiko as a corruption of consciousness, especially to those who were bound. But then, everything had come to feel like a corruption of consciousness. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
+The floor became an ocean of silk and he was sinking deeper into it with every movement. *"All of your fantasies."* He sometimes imagined this. Trimming away all his inhibitions and bathing in a sea of strangers. There was no honor here in this ocean of release. No future and no past. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
 
-She said, "Never forget... I own you."
+Thi said, "Never forget... I own you."
 
 The rest faded into the night, hidden forever from the mind where the luckiest of regretful memories live.
 
@@ -98,25 +92,25 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
 
-"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's and Setre's hands. The hands of warmth he had such desire for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its ocean.
+"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's hands. The hands of warmth he had such desire for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its depths.
 
-"Kip! Get up!" A voice called to him from the other room. It was Setre.
+"Kipnu! Get up!" A voice called to him from the other room. It was Setre.
 
 She burst into the room, in full armor and spear, and didn't hesitate to pull Kip up to his feet. He pushed her away with what little strength he had and shouted at her, "Get away from me."
 
 She pulled her spear on him, and he swatted it away saying, "I've lost... all meaning in my life. How do you threaten that, huh?"
 
-With a flick of the wrist, she sliced through a fatty part of his side, making Kip shout out in pain.
+With a flick of the wrist, she made a shallow slice through a fatty part of his hip, making Kip shout out in pain.
 
 "With a spear," she said.
 
 She pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the Great Tent. Lissa will speak with you."
+"Bandage yourself up and come back into the Great Tent. Lissa will speak to you."
 
 "I have nothing to talk with hae about."
 
-"You will do as commanded."
+"You won't be talking."
 
 She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming his own existence before he went into the next room.
 
@@ -136,22 +130,22 @@ Lissa began the ceremony, "Tribes of Ulu. Yesterday, my ever-faithful knight, Se
 
 Kip stood shivering and just wanting to get the ceremony overwith.
 
-"Kipnu. Please tell us who you are."
+"Setre, please tell us what makes your find so special."
 
-He stammered out his introduction through bouts of shivering, "I-I am K-Kipnu um Heiko. I am a doctor."
+"This is Kipnu um Heiko. You can see his strength, but his real value lies in his above. He is a doctor."
 
 The crowd filled with murmurs before he was done talking.
 
-"I am bound to Liffa and Melna," he shouted over the crowd, but no one heard him.
+"I am bound to Liffa and Melna," he tried to shout over the crowd, but no one heard him.
 
-Lissa gestured to them to quiet down and addressed Kip directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kip as their guardian must trade something of their own."
+Lissa gestured to them to quiet down and addressed Kip directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new owner stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kip as their guardian must trade something of their own."
 
 Thi paused and looked out at the crowd in anticipation. *Is this an auction?*
 
 "Let the bidding begin!"
 
-"400 doses!"
+"400 kano!"
 
-"5 slaves!"
+"3 servants!"
 
-The crowd bunched in and crowded Lissa and hae scribe who was taking the bids faster than he could write them. Setre had moved away from Kip and was now forming a perimeter around Lissa. The noise was aggravating Kip's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to. There was no solace to take in his conscience, no friend he could turn to. So like a switch, all judgments turned off, all sense of right and wrong had left, his fortress of good will abandoned. He had been broken.
+The crowd bunched in and crowded Lissa and hae scribe who was taking the bids faster than he could write them. Setre had moved away from Kip and was now clearing some space in the crowd for Lissa. The noise was aggravating Kip's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to. There was no solace to take in his conscience, no friend he could turn to. So like a switch, all judgments turned off, all his senses numbed, his fortress of good will abandoned. He had been broken.

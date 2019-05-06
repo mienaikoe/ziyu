@@ -90,37 +90,35 @@ Setting:
 
   The firewood had been gathered, and a flame started. Ginnu was itching to build friendships, so she asked them, "Hey you two, did Casra ever keep any spices here?"
 
-  Linyu said, "Yea, plenty."
+  Linyu said, "A few."
 
   "Would you mind showing me?"
 
   Kip retained some suspicion and said, "Yea, let's go," to make sure she wasn't alone with Linyu.
 
-  He followed behind them and waited until they entered, but before he entered he heard footsteps, hard and fast in the distance.
+  He followed behind them and waited until they entered, but before he could climb in he heard footsteps, light and swift in the distance.
 
   "You two go down. I'll handle this," he told them.
 
-	"Kipnu, we need to talk!," Setre yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to tell them it was ok.
+	"Kipnu, we need to talk!," Setre yelled. Most of the group members ran and hid in fear, but Kip stood his ground, and held his hand out to to calm them.
 
-	"Setre, what are you doing here?"
+	"Setre, what are you doing here?" he asked.
 
-  "No time, let's talk in the house"
+  "No time, let's talk in the house."
 
   "Oh.. uh ok," he said.
 
-  Setre barely jumped off the ladder into the safehouse when she started talking again.
+  Setre barely jumped off the ladder when she started talking again.
 
-  "Cas' plan is working, but I need you to–... Oh hey Linyu," she said, surprised at seeing hae face in the lantern light.
+  "Cas' plan is working, but I need you to–... Oh hey Lin," she said, surprised at seeing hae face in the lantern light.
 
   Next to Linyu was Ginnu who was rummaging through the herb box with her own lantern, and she asked in a suspicious tone, "How did you get here?"
 
   Startled, Ginnu shot her head toward Setre and abruptly closed the herb box. Kipnu got off the ladder and set his arm on Setre's shoulder.
 
-  "It's alright," he said, oblivious to the tension in the room. "This is Ginnu. She's with us."
+  "It's alright," he said, oblivious to the tension in the room. "She's with us."
 
-  A long pause punctuated the air, and Setre pierced through it.
-
-	"Get the fuck away from my kaln," she said.
+  She shrugged him off and snapped at Ginnu, "Get the fuck away from my kaln."
 
 	Ginnu's face was unchanged as she walked closer to them and the ladder. When she got close enough, Setre swiftly grabbed her wrists and held them behind her back.
 
@@ -130,37 +128,37 @@ Setting:
 
 	Kip was perplexed, "What's this all about?"
 
-	"Ginnu is one of the spies I was telling you about," she responded, struggling to keep Ginnu still.
+	"Ginnu is a spy," she responded, struggling to keep Ginnu still.
 
 	Kip was growing tired of secrets. *How many hidden identities are people keeping on this island?*
 
 	"Everyone has at least one," Setre said, and he suddenly realized that his question hadn't stayed fully in his head.
 
-	Linyu scurried up the ladder and quickly came back with a handfull of strong rope - a thicker variant of the material used for their clothing. Setre first bound Ginnu's wrists, and then hae feet, and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
+	Linyu scurried up the ladder and quickly came back with a handful of strong rope - a thicker variant of the material used for their clothing. Setre first bound Ginnu's wrists, and then hae feet, and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
 
-	"Save your tears for Lissa."
+	"Save your tears."
 
-	Kip pleaded to her, "You've gone too far, Setre. Ginnu's been nothing but helpful ever since she arrived on this island."
+	Kip pleaded to her, "This is too much, Setre. Ginnu's been nothing but helpful ever since she arrived on this island."
 
 	"This is exactly how Lissa's spies work. She makes you think she's on your side until she steals all your advantages and gives them to Lissa. She already knows that I'm working with you. What have you told her about?"
 
 	"A little about radio. She thought I was crazy."
 
-	"By Ara, are you thick?"
+	Setre was incredulous. "By Ara, are you thick?"
 
-	Kip was getting frustrated with Setre's sensationalism. "Look, we'll just leave her here and come back for her when we've taken the Shadestead."
+	Kip was getting frustrated. "Look, we'll just leave her here and come back for her when we've taken the Shadestead."
 
 	"And then what? She's lives the rest of her life as a prisoner? As long as Kanosin exists in this world, she will do whatever it takes to get it."
 
-	Ginnu interrupted her, "You aren't such an angel yourself, Guardian of Ulu. Unlike you I'm trying to be free of the madness that goes on here."
+	Ginnu interrupted her, "You aren't such an angel yourself, Guardian. Unlike you my hands are clean of all this madness. I'm just trying to escape it."
 
 	Setre lifted her by her shirt and she shouted in pain, but Setre maintained her hold and said, "And unlike you, I'm trying to stop it."
 
 	Kip put himself in between them and shouted, "Setre, what's gotten into you? Let's figure this out later. For now, Ginnu, we'll have to keep you tied up. I'm sorry it had to be this way, but Setre is right about the danger you pose."
 
-	Ginnu nodded her head and sank back into herself. Kip felt pity for her, but Setre was not amused.
+	Ginnu pouted and sank into the floor. Kip felt pity for her, but Setre was not persuaded.
 
-	He told Setre, "I'll take her to the fire. When I come back, we'll talk."
+	Kipnu suggested to the group, "I'll take her to the fire. When I come back, we'll talk."
 
 	"You'd be better off throwing her into it."
 
@@ -182,7 +180,7 @@ Setting:
 
 	"Thank you," she whispered to him through tearful eyes. If this was all an act, she was quite convincing.
 
-	Setre was drawing of a map on the rocky ground of the safehouse with some charcoal and a lantern, too engrossed to greet Kip as he came back in.
+	Setre was drawing a map on the ground with some charcoal and a lantern, too engrossed to greet Kip as he came back in.
 
 	He squatted down to her level and said the first word, "Setre. When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
 
