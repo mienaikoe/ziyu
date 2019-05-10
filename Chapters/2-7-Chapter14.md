@@ -388,7 +388,7 @@
 
 	Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
 
-	"You'll be fine!"
+	"I trust you!"
 
 	Kip ran into the darkness, exhausted but determined to save Casra.
 

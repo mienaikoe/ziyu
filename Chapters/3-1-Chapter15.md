@@ -76,8 +76,8 @@ Thi nodded, not wanting to make any more decisions.
 
 She drew a bucket of water from the dew column and fetched a towel for hae to wash with. There weren't any robes small enough, but Liffa's robes came close, so she pulled them from the cellar and gave them to Linyu.
 
-"You can rinse yourself with the towel. You'll probably be swimming in these robes, but just put them on and I can tie them to fit."
+"You can rinse yourself with the towel. These robes will be awful big on you, but just put them on and I can tie them to fit."
 
 Thi whispered, "Thank you" and proceeded into the washroom with the bucket and towel, leaving the robes just outside the door.
 
-Melna moved back to the pendants and quickly put hers back before searching Kip's for clues. It smelled faintly of ocean, but nothing else stood out to her. *What happened to you, Kip? How did this kid bring your pendant all the way from Ulukoma? And why?*
+Melna moved back to the pendants on the cushion and quickly returned hers back to her neck before searching Kip's for clues. It smelled faintly of ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln acquire your pendant and then bring it back here? And why?*

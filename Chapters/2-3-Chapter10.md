@@ -25,63 +25,57 @@ Behind him, Kip heard quiet and quick footsteps approaching. He quickly got up t
 
 "Kipnu," the maman called, quietly. He could faintly see the silhouette of the one who approached him. It was that same familiar voice of the veiled figure, but the veil had been removed. He looked closer at hae and finally recognized who it was.
 
-"Casra? Casra! Is that you?"
+"Casra?"
 
 Kip was immeasurably relieved to see a familiar face, even if only an acquaintance.
 
 Thi said, "Kipnu, you've made it! Come now, under the fallen tree."
 
-They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He squatted down, both to cover himself and to gain some warmth. Casra had already prepared him a set of reed cloths and thi helped him into them.
+They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He squatted down, both to cover himself and to gain some warmth. Casra had already prepared him a set of reed cloths and helped him into them.
 
-"Linyu, grab some ankan from the cupboard."
+"Lin, grab some ankan from the cupboard."
 
-"Hi Kipnu. Thank you for saving me," the kaln said to him.
+The kaln rose to fulfill hae mother's request and chimed, "Hi Kipnu. Thank you for saving me."
 
-"Hey there... So this is... your mother?"
+"Hey there..." he said as nicely as he could in the circumstances. A wave of pain from the night before began to swell and he clutched his forehead and closed his eyes.
 
-Thi nodded.
+Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
 
-Kip was apprehensive but glad he finally understood what was going on.
+He did as she told and immediately winced.
 
-Casra took a satchel from Linyu and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
-
-He did as she told and immediately winced. "Tha a ot o siging," he tried to say.
-
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see the kaln eying the silver pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see Lin eying the silver pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
 
 "It's... gone. What is that stuff?" he asked.
 
-"Kipnu, I have a great deal to explain. This is my kaln, Linyu. We arrived here together yesterday, on your boat, but we used to live here for many ma'to before."
+"Ankan. It stops the pain of kanosin withdraw," Casra responded.
 
-Linyu handed Kip a square reed bowl of some sort of fish stew, and he eagerly took it and started eating without pause. Linyu was surprised and awkwardly took a seat next to his mother.
+"I see. Is that what they were smoking in the tent last night?"
+
+"Yes... unfortunately. I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here together yesterday, on your boat, but we used to live here for many ma'to before."
+
+Linyu handed Kip a square wooden bowl of some sort of fish stew, and he eagerly took it and started eating without pause. Linyu was surprised and awkwardly took a seat next to hae mother.
 
 In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
-"I spent three ma'to here. I started like most people here - a slave and a kanosin addict. The stuff is made here so it's very easy to get. I worked in the darkness and resigned myself to the addiction. When my kaln arrived on the island, I was changed. There was only one choice for me: sober up and be the mother I couldn't be before. I wish I could say that I never had second thoughts, but addiction has a way of demonizing parts of your mind."
-
-"Many mothers choose the pipe. You did the right thing."
-
-"Thank you for thinking so, but..."
-
-"What is it?"
-
-"Before I was a Kanosin addict, I was a doctor - one of the best in Shaki harbor. I would often see addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I underestimated the importance of an external motivator and I was unable to pull out of it."
+"I spent three ma'to here. My journey here began like most people here - a slave and a kanosin addict. The stuff is produced here by slave labor and then smugglers bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was a Kanosin addict, I was a doctor - one of the best in Shaki harbor. I would often see addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I underestimated the importance of an external motivator and I was unable to pull out of it."
 
 "You were the cause of your own suffering."
 
-"Yes. I lost my spouses and my kaln, and I was sent here as punishment. When I found out that Lin had been sent to me as neither of my other spouses wanted hae, I decided to sober up. There were many days when I felt the fervid hand of death upon me, but Lin watched over me, kept me hydrated and comforted. I owe my life to hae."
+"Yes. I lost my spouses and my kaln, and I was sent here as punishment. About a ma'to after, my ex-spouses decided that they didn't want any reminders of the bond we shared, so they sent Lin to live with me. I... had just a glimpse of consciousness when I saw Lin for the first time in so long. I felt immense shame for who I had become. There was only one choice for me: sober up and be the mother I couldn't be before. There were many days when I felt the feverish hand of death upon me, but Lin watched over me, kept me hydrated, kept me accountable."
 
 Thi gently leaned into Linyu who reciprocated the gesture.
 
-"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Lissa arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used sex and money to lure my people and turn them against me. My closest friend, Set, fought on my behalf but once Lissa started forming a band of thugs, I knew that I could never win."
+"I owe my life to hae," thi said.
+
+"Many mothers choose the pipe. You did the right thing."
+
+"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Lissa arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Lissa started forming a band of thugs, I knew that I could never win."
 
 "Set as in Setre? Thi was with you?"
 
 "Oh yes. 
 
-was an orphan in Holragi, moving with her clan from settlement to settlement, toiling for hours at the iron furnaces to build the infrastructure they have today.
-
-"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
+"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
 
 "So everything you came back for is gone."
 
@@ -89,11 +83,53 @@ was an orphan in Holragi, moving with her clan from settlement to settlement, to
 
 "That's quite noble of you," Kip said.
 
-<!-- There's a fair bit of friction here -->
+"I came back because this is my home. Every member of my tribe had a bond to the entire tribe. Raising children, falling in love, building the village – everything was done with tremendous trust in the entire tribe. We accepted our divisions and our arguments and despite them, we accomplished so many things."
 
-"And there's something else. I'm sure you saw the big coil around the tree you were hiding behind."
+"I don't think I could ever trust that many people."
 
-"It's hard to miss."
+"Do you trust your family?"
+
+He hesitated. "Yea...mostly."
+
+Thi became curious. "Tell me about them," thi said.
+
+"Liffa was... is... everything good in my life. To the rest of Heiko thi is a farmer, but they don't see hae like we do. Liffa holds us together, but there's this cloud of self-doubt that hangs above hae always. I want to tell hae thi is enough, that anyone as patient and willful as thi is deserves the whole world. But as we both know, anxiety doesn't pick up on affirmations."
+
+"And your woman?"
+
+"Melna is... a senator."
+
+"That's the first word you choose to describe her?"
+
+"Well, it's kind of all she does lately. She's in Shaki most of the day, so I don't see her as often."
+
+"Do you trust her?"
+
+"Of course! We're bonded."
+
+"A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. A bond is not trust, it's a gamble. Trust is thinking, feeling, deciding to love someone every day and meaning it."
+
+"What are you getting at?"
+
+"I want you to learn this trust, Kipnu. You are a good man. You've shown us that you have the courage to do the right thing, but the problems on Ulukoma take a village, not a hero."
+
+Kip shook his head, "I didn't ask for this. These are not my problems."
+
+"Lissa is searching for you. Thi will find you and enslave you if you wait long enough."
+
+Kip kept shaking his head."
+
+Casra paused, thinking, and then stood up to say, "Come outside, I have something to show you."
+
+"I don't want to go outside. I just want to sit and think for a while."
+
+"I'll be outside near the big tree when you're done thinking."
+
+Thi paused to look at Kipnu before lifting Linyu up the ladder and then climbing it haeself.
+
+Kip stubbornly sat in silence for a while, thinking about nothing. With a sigh, he stood up and climbed up to the surface.
+
+Casra was sitting by the coil on the large tree, and began talking once Kip was close enough.
 
 "Set is from Holragi. She told me once that they have these coils on some of the trees there. She wanted me to figure out what they're for."
 
