@@ -87,9 +87,13 @@ Thi gently leaned into Linyu who reciprocated the gesture.
 
 "I don't think I could ever trust that many people."
 
-"Do you trust your family?"
+"It comes with time."
 
-He hesitated. "Yea...mostly."
+He nodded in understanding, and then thi turned the conversation to him.
+
+"Do you trust your family, Kipnu?"
+
+He hesitated. "Yea, of course."
 
 Thi became curious. "Tell me about them," thi said.
 
@@ -99,25 +103,37 @@ Thi became curious. "Tell me about them," thi said.
 
 "Melna is... a senator."
 
-"That's the first word you choose to describe her?"
+"Why is that the first word you choose to describe her?"
 
-"Well, it's kind of all she does lately. She's in Shaki most of the day, so I don't see her as often."
+"Well, it's all she does lately. Half of her day is spent in Shaki, so I don't see her as often."
 
 "Do you trust her?"
 
 "Of course! We're bonded."
 
-"A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. A bond is not trust, it's a gamble. Trust is thinking, feeling, deciding to love someone every day and meaning it."
+"Tell me something, Kipnu. Where are they right now?"
+
+He paused to acknowledge a sudden rush of concern for them.
+
+Thi observed and surmised. "They are far," thi said.
+
+"Very."
+
+"Do you trust them to go on without you?"
+
+"What?"
+
+"The people who come here leave behind lives full of relationships. They invent worries to keep themselves company with the ones they left behind, thinking themselves irreplaceable. But then they return to find that the hole they left had been filled; the personas they were building had vanished, and some of them can't handle it. All of them placed their faith in the lives they built, rather than the people who filled them. So... do you trust them to do what's best for themselves, and not necessarily what's best for you?"
+
+He was aghast at imagining what he was saying. He stammered, "We're bonded, we do what's best for each other."
+
+"A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. Its meaning is just inscriptions on pendants. It's a gamble that you'll always be content stuck to each other."
 
 "What are you getting at?"
 
-"I want you to learn this trust, Kipnu. You are a good man. You've shown us that you have the courage to do the right thing, but the problems on Ulukoma take a village, not a hero."
+"I want you to learn the trust that I know, Kipnu. It's a trust that plunges you into the depths of who you are with only the people you love by your side. And everyday, you decide to go a little deeper with them into the darkness instead of heading back. You are a good man, Kipnu. You've shown us that you have the courage to do the right thing, but your family needs all of you to survive. Ulukoma needs you to survive. We don't need a hero."
 
-Kip shook his head, "I didn't ask for this. These are not my problems."
-
-"Lissa is searching for you. Thi will find you and enslave you if you wait long enough."
-
-Kip kept shaking his head."
+Kip kept shaking his head, unwilling to open up to understanding.
 
 Casra paused, thinking, and then stood up to say, "Come outside, I have something to show you."
 

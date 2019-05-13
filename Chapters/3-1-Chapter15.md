@@ -44,7 +44,7 @@ Linyu was hesitant but took a look anyway. She watched as Linyu looked intently 
 
 "Where did you get that?!" She asked.
 
-Linyu quickly finished checking the two and hae eyes started to water. Without a moment's pause, thi flung haeself at Melna and weeped into her shoulder.
+Linyu quickly finished checking the two and hae eyes started to water. Without a moment's pause, thi flung haeself at Melna and made whimpering breaths into her shoulder.
 
 "Kip," thi whispered through tears. She let hae cry a bit more but her mind kept racing back and forth to all of the possibilities that could have led to this moment.
 
@@ -80,4 +80,4 @@ She drew a bucket of water from the dew column and fetched a towel for hae to wa
 
 Thi whispered, "Thank you" and proceeded into the washroom with the bucket and towel, leaving the robes just outside the door.
 
-Melna moved back to the pendants on the cushion and quickly returned hers back to her neck before searching Kip's for clues. It smelled faintly of ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln acquire your pendant and then bring it back here? And why?*
+Melna moved back to the pendants on the cushion and quickly returned her own back to her neck before searching Kip's for clues. It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it back here? And why?*
