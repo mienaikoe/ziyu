@@ -1,6 +1,4 @@
 
-# Part 1 - Lif
-
 ## Prologue
 
   You cannot hear the first note of a ziyu's song. There is no grand entrance or catchy hook. No meandering conversation between a point and its counter. Each leaf is but the gentlest voice in a choir of wind. In the calm, or when it's too chilly the song is inaudible. But as the wind slowly picks up and the light of Ara peeks above the horizon, you start to recognize the sound, only it's been there for a while and you can't place exactly when it began. At full breeze you are deafened by the sound of every leaf and the complexity of the resounding chords and flourishes.

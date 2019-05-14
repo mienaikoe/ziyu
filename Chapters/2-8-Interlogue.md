@@ -95,7 +95,7 @@ Interlogue
 
   "Oh my goodness, are you ok?" She asked, reaching for hae.
 
-  Thi looked back at Mel with eyes transfixed, wanting to run but too exhausted to do so. With a hook and wrapping motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. The curious saffa sniffed and licked the kaln's head, but thi stayed unmoving,
+  Thi looked back at Mel with eyes transfixed, wanting to run but too exhausted to do so. With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she made out a strange device around hae left ear, and a small bag around hae shoulder. The curious saffa sniffed and licked the kaln's head, but thi stayed unmoving,
 
   "I am Melna," she said deliberately. Her hand turned to clasp haes.
 

@@ -2,6 +2,9 @@
 ## Chapter 15
 
 <!--
+
+
+
 - Radio, Voices
   - Melna confused
   - Passes listener to Mel
@@ -76,8 +79,18 @@ Thi nodded, not wanting to make any more decisions.
 
 She drew a bucket of water from the dew column and fetched a towel for hae to wash with. There weren't any robes small enough, but Liffa's robes came close, so she pulled them from the cellar and gave them to Linyu.
 
-"You can rinse yourself with the towel. These robes will be awful big on you, but just put them on and I can tie them to fit."
+"You can rinse yourself with the towel. These robes will be big on you, but just put them on for now and I can tie them to fit."
 
-Thi whispered, "Thank you" and proceeded into the washroom with the bucket and towel, leaving the robes just outside the door.
+Thi looked up to her with grateful eyes and mouthed, "Thank you", and then walked into the washroom with the bucket and towel, leaving the robes just outside the entryway.
 
-Melna moved back to the pendants on the cushion and quickly returned her own back to her neck before searching Kip's for clues. It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it back here? And why?*
+Melna moved back to the pendants on the cushion and quickly returned her own back to her neck before searching Kip's for clues. It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
+
+The kaln's footsteps emerged again from the washroom, and showed Linyu, unabashedly bare and fumbling with the trinket on hae ear. 
+
+Melna averted her eyes and said, "You shouldn't show strangers your body, Linyu."
+
+Linyu paused for a moment to process the strangeness of what Melna had just said, and then continued setting down the trinket and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden and well-made despite its quite worn appearance. She turned it over to find three holes in a concavity carved into the backside.
+
+<!-- are listeners small or big? Are their ears small or big? -->
+
+<!-- potential child nudity. uh... what do i do? -->
