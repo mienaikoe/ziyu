@@ -13,6 +13,8 @@
 
 - Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
+- City smells, tastes, sounds, dialog with strangers
+
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
 
 - Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.
@@ -54,6 +56,13 @@
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
 - "We know truth not only by reason but also by heart" <- what?
+
+- Embalming in salt - salt graves
+
+
+### Part 3
+
+- War as a catalyst for social reform
 
 
 
