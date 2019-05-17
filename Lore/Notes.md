@@ -7,23 +7,22 @@
     - He gives in, and looks to redeem himself
   - Lif's struggle is self-confidence, doubt, fear
   - Mel's struggle is anxiety, paranoia, trust
-
-- Add a pet for Lif to talk to. It also shows primitive technology for society.
-  - Maybe the pet can be horse-like to replace bikes
+  - Lif asks Mel if she is pregnant (show they've been trying but Mel is keeping a secret from them that she's preventing it somehow)
 
 - Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
 - City smells, tastes, sounds, dialog with strangers
 
-- Consider making the interlogue into a separate chapter where Mel is informed of what happened.
+- Fajro should be depicted as almost reptilian though human-like
 
-- Chapter 9 should be lengthened with details about how the bidding ends with a dramatic bid by Casra.
+- Consider making the interlogue into a separate chapter where Mel is informed of what happened.
 
 - It never rains.
 
 - Show the fervor of industrial revolution in depictions of Shaki or trains.
 
 ### Part 2
+
 - Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
 
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
@@ -44,14 +43,15 @@
 
 - Depict Lissa as a dream-goddess to Kipnu on the come-down from Kanosin
 
-- Does Lissa have very ornate light flow-tattoo patterns? If so, you should really accentuate this.
-
-- Depict Shadesteaders as believing that the polyamorous raised-by-a-village way of life is utopian. Both Lissa and Casra believe this despite their ideological differences on slavery and addiction.
-
-- Linyu died or not? If thi does, you should make it as ornate as Casra's death.
-  - Maybe Linyu is unconscious.
+- Talk about Linyu a bit more - make it clear there's a problem even though Linyu doesn't die.
 
 - Be a bit more clear on Lissa's destiny.
+  - Lissa might hint to Kip that he can't die in the darkness.
+    - "Nobody dies in the darkness, Kip. The light brings all the bad news that it can."
+    - Hints at ties to strange dark cavern and machine things.
+    - Some strange miracle with Penyi to further suggest some sort of eternal life.
+  - Lissa says that Casra wanted to die along - terminal illness.
+    - This was her last stand against me.
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
