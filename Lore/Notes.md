@@ -87,6 +87,10 @@ Option3: Lissa has a covert army of moles and manipulators in every tribe, in Sh
   - Mel uses Kip's technology when she visits the obstruction to control the robots to block the bombs otherwise they would hit Heiko.
     - Robots build would cause a dichotomy: (radio societies could control the robots, non-radio societies would die off. The great filter. Why? Proof of advancement. Proof of work. Proof of research. Only societies that can cooperate and contribute to the last question are permitted to survive. Otherwise, their planet's resources are stripped and their star is harvested.)
 
+  - Black Hole Planet
+    - The metal gods below are preserving life
+    - the metal gods above want to destroy it
+
     the population is growing too rapidly for a planet to survive war and pollution. They either:
       - kill off their population
         - Holragi's approach
