@@ -208,15 +208,13 @@
 
 	Ramne leaned over Penyi and Kip, holding his chest above them with his palms on his knees. He took a closer look at Kip in the light of his decorated chest.
 
-	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can, and then you die."
+	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can."
 
 	Kip met his gaze with conviction in his eyes. "When Ara fades from the sky and Lissa has killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
-	He laughed, "Hah. Lissa? All hae power is a show to keep the harvesters obedient. Thi wouldn't hurt a thing without hae master saying so."
+	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the darkness. They simply... disappear."
 
-	"And who is that?"
-
-	He raised up and turned toward the darkness as if speaking to an invisible friend.
+	Rising to his right, he turned and stared comfortably into the void as if speaking to an invisible friend.
 
 	"Tell me, Kipnu um Heiko: Why would a magistrate send a doctor to Ulukoma in the midst of a global crisis? Do you really think he values justice over sensibility?"
 
@@ -458,7 +456,7 @@
 
 	Kip started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
 
-	Thi stood up and looked out to the ocean, "It's a beautiful place to die. Amongst the only light in the darkness. Casra and I buried a friend here once. Back when I still believed. But this isn't the death I imagined for any of us."
+	Thi stood up and looked out to the ocean, "This is how thi wanted to die. Dancing in the light that darkness rules. Casra and I buried a friend here once. Back when I still believed. But this isn't the way it was supposed to happen."
 
 	Thi pointed straight out toward the water. "Thirty paces. Don't let hae die."
 

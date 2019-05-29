@@ -46,12 +46,20 @@
 - Talk about Linyu a bit more - make it clear there's a problem even though Linyu doesn't die.
 
 - Be a bit more clear on Lissa's destiny.
-  - Lissa might hint to Kip that he can't die in the darkness.
+  - Ramne might hint to Kip that he can't die in the darkness.
     - "Nobody dies in the darkness, Kip. The light brings all the bad news that it can."
     - Hints at ties to strange dark cavern and machine things.
     - Some strange miracle with Penyi to further suggest some sort of eternal life.
   - Lissa says that Casra wanted to die along - terminal illness.
     - This was her last stand against me.
+  -PROBLEM:
+    - people have to die at Ulukoma for Ramne to gain power by his secret 
+    - and for Lissa to show humanity, and then remorse.
+    - ***Ramne controls who dies and who lives.***
+      - Penyi lives because she makes a good slave?
+      - Lissa kills haeself and Ramne resurrects hae out of spite (Lissa redemption arc)
+      - Casra is not resurrected because Ramne let that ship sail long ago
+      - Setre escapes
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
