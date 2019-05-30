@@ -96,7 +96,11 @@ He shifted his legs a little to reveal a little kaln dressed in strange reed clo
 
 "Oh my goodness, are you ok?" She asked, reaching for hae.
 
-Thi looked back at Mel with eyes transfixed, wanting to run but too exhausted to do so. With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she made out a strange device around hae left ear, and a small bag around hae shoulder. The curious saffa sniffed and licked the kaln's head, but thi stayed unmoving,
+Thi looked back at Mel and shifted away with eyes transfixed, wanting to run but too exhausted to do so.
+
+"It's ok. I'm not here to hurt you," she comforted her.
+
+With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see severe bruises around hae neck. Her eyes lingered and then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
 
 "I am Melna," she said deliberately. Her hand turned to clasp haes.
 
@@ -118,7 +122,7 @@ At first Linyu hesitated, staring at the cup an obvious anxiety. But with some c
 
 "Oh no! That's terrible!"
 
-There were a million questions hiding in her throat, but her lips were blocking them for fear of overwhelming the child.
+There were a million questions hiding in her mind, but her lips were blocking them for fear of overwhelming the child.
 
 "Was it in the city? I didn't hear of any fire."
 
@@ -128,7 +132,7 @@ She reached under her shirt to reveal her pendant. Silver, and slightly worn fro
 
 "Have you seen one of these before? It's a pendant that my nather made for me. We keep track of our family trees with tiny engravings of crests on the inside."
 
-Slowly, she removed it from her neck and held it out to Linyu, who was still staring into the distance. 
+Slowly, she removed it from her neck and held it out to Linyu, who was still staring into the distance.
 
 "Want to see it?"
 
@@ -174,7 +178,7 @@ Thi looked up to her with grateful eyes and mouthed, "Thank you", and then walke
 
 Melna moved back to the pendants on the cushion and quickly returned her own back to her neck before searching Kip's for clues. It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
 
-The kaln's footsteps emerged again from the washroom, and showed Linyu, unabashedly bare and fumbling with the trinket on hae ear. 
+The kaln's footsteps emerged again from the washroom, and showed Linyu, unabashedly bare and fumbling with the trinket on hae ear.
 
 Melna averted her eyes and said, "You shouldn't show strangers your body, Linyu."
 
