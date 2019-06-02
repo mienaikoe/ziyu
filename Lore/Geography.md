@@ -24,14 +24,14 @@ Since Palinan is a tidal-locked planet, there is no passage of day or night. Pal
 There are names for the various time divisions, which are tabulated here:
 
 Sa'To(va)   12 Ka'to      ~170.4 Earth years
-Ka'To(va)   12 Ma'to      ~14.2 Earth years
-Ma'To(va)   12 La'to      ~1.18 Earth years
+Ka'To(va)   12 Na'to      ~14.2 Earth years
+Na'To(va)   12 La'to      ~1.18 Earth years
 La'To(va)   12 Tova       ~36 Earth days
 Tova/Day    1 orbit       ~3 earth days
 (To)Va'la   1/12 Tova     ~6 earth hours
-(To)Va'ma   1/12 Va'la    ~30 minutes
+(To)Va'na   1/12 Va'la    ~30 minutes
 (To)Va'ka   1/12 Va'na    ~2.5 minutes
-(To)Va'sa   1/12 Va'ra    ~12.5 seconds
+(To)Va'sa   1/12 Va'ka    ~12.5 seconds
 
 This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
 X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
