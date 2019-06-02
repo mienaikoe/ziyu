@@ -20,21 +20,25 @@ Melna stopped her work abruptly and left the incandescent light of her desklamp 
 
 "What should I be looking for?" Melna asked.
 
-"Look for a small dot rising up from the horizon."
+"Look for a line of small dots rising up from the horizon."
 
 Melna stared into the image plate, searching for any sign of a light in the darkness.
 
 "It's just the sky," she said.
 
-"Close your eyes for a moment, and then open them again."
+"Close your eyes for a moment, and then open them."
 
-She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny dot of light, easily mistaken for dust but as bright as Ara, hung upon the thin yellow-orange of the horizon sky.
+She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny string of five dots, easily mistaken for dust but as bright as Ara, hung upon the thin yellow-orange of the horizon sky.
 
-"Lif," she said aloud without hesitation. Flushed with anger, she rose from the plate and closed her eyes, facing into the darkest corner of the room.
+"What are they?" she asked with new urgency.
 
-"How long has thi been up there?" She asked the darkness.
+"Spacecraft. It looks like Holragi has their rail working."
 
-The observer answered her, "I would have to do the math to know for sure, but I would estimate about... a day."
+Flushed with anger, she rose from the plate and closed her eyes, facing into the darkest corner of the room.
+
+"How large are they? Can they fit a person?" She asked the darkness.
+
+The observer answered her, "I can't tell at this distance, but judging by the frequency of these five launches, I think they're testing the rail in anticipation of something."
 
 Melna remained silent.
 
@@ -42,47 +46,47 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record the path and figure out where they're sending hae. Wire your findings to me at the senate before lunch. I'm calling for a debate at midday."
+"Record everything. Every dot, every time. And find a way to determine the shape and size of these dots. Wire your findings to me at the senate before lunch. I'm calling for a debate at midday."
 
 "Yes, žah."
 
 The observer scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
 
-"If I could interject. The senate will never listen to an appeal for one person. They have millions of others to worry about."
+"If I could interject. The senate still believes that Liffa's mission is the only path to salvation. They would never listen to an appeal."
 
-"This goes beyond my relationship with Liffe. This is about our contact with whatever is up there. We all have the right to know what they discover."
+"This goes beyond my relationship with Liffa. This is about our first contact with whatever is up there, and Holragi being secretive about it. Their technology is rapidly outpacing ours, but they never stopped to consider the ethics of their tests."
 
-"Holragi will use your marriage against us."
+"This is not the time for an ethics debate. There are millions of people starving in the dark!"
 
-"Let them build their walls. Shaki will side with us."
+"And what good are we doing them by sending giant hunks of metal hurtling toward our agressors? And what if all that metal comes back and lands here?"
 
-"They're more likely to create a secret channel with Holragi. Melna, you have to drop this. We've already lost half of our food reserves. We can't afford to lose more over some rogue senator's political game."
+"We have no other options."
 
-"Pomri, I taught you better than this. Everyone in the senate is simply trying to prolong the inevitable while Holragi is hiding the only lead we have to our survival. We are in a game of their design and we are playing it whether we want to or not."
+"We need to force Holragi to speak. They need to tell us what they know."
 
-"So what? We tell the game masters we aren't playing, and hope they listen to us?"
+"Shaki will always side with them. The whole world is desparate for a solution, Melna. You have to drop this. We've already lost half of our food reserves. We can't afford to lose more."
 
-"No. We have to make them change the rules."
+"Pomri, I taught you better than this. Everyone in the senate is simply trying to delay the inevitable while Holragi is hiding the only lead we have to our survival. All of Shaki is being held hostage by Holragi. We can't just relinquish all our power to them."
 
-"And how do we do that?"
+"So what do we do then? Beg them to play nice?"
 
 She sighed, letting her internal frustration simmer down and settle.
 
 "Ask me tomorrow. I have to go home."
 
-Pomri threw hae hands up in disappointment as Melna reached for a thick felted black  cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
+Pomri threw her hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
 
-Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer shimla's calculations."
+Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
 
 "But the trains aren't running."
 
-"We'll go by saffa."
+"Bring your saffa."
 
 "That's ridiculous!"
 
-"Be there!" She snapped, and closed the door.
+"Do it!" She snapped, and closed the door.
 
-She produced a small oil lantern and lit it with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
+A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
 At the foot of the hill stood Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
@@ -180,9 +184,40 @@ Melna moved back to the pendants on the cushion and quickly returned her own bac
 
 The kaln's footsteps emerged again from the washroom, and showed Linyu, unabashedly bare and fumbling with the trinket on hae ear.
 
-Melna averted her eyes and said, "You shouldn't show strangers your body, Linyu."
+Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
-Linyu paused for a moment to process the strangeness of what Melna had just said, and then continued setting down the trinket and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden and well-made despite its quite worn appearance. She turned it over to find three holes in a concavity carved into the backside.
+Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
+
+*What is this thing?*
+
+She faintly heard some noise coming from it, and put it up to her ear. It was just static at first, but she listened closer and could faintly hear a voice saying "Altitu- **** -bing. Speed 27- ****.  -tation stable". She was confused at what she was hearing but listened to it more.
+
+"**** -entation now."
+
+Linyu startled her from her trance-like fixation, standing in front of her with Liffa's robes and staring at the listener with a disappointed face. To her surprise, thi took the listener from her hands and put it back on hae ear.
+
+She responded, "I'm sorry, I should have asked first."
+
+Linyu whispered to her, "Mom."
+
+"Your mom gave you this?" she asked.
+
+Thi nodded hesistantly and moved to pick the pendant up again.
+
+"Linyu, please. Let me have this. I am bound to Kipnu."
+
+Thi stared back at her and re-adorned haeself with the pendant, still with an untrusting look on hae face. She walked angrily back toward hae old clothes next to the washroom door, and changed into them.
+
+"Linyu, I'm sorry. I- I just... miss him."
+
+Linyu ignored her as thi tightened the waist of hae reed trousers and walked to the door they came in from. Melna went after hae, so she wouldn't lose hae if thi left. Linyu paused at the door, turned to Mel and whispered, "Liffa".
+
+Melna immediately forgot about chasing Linyu, "Liffa?! What do you know about her?"
+
+"Liffa. Love. You," thi said with hae hand on hers.
+
+Thi opened the door and slipped outside while Melna, shocked by what this strange kaln had just told her, stood still in confusion. Before she could recover her thoughts and run outside, Linyu had once again faded into the darkness, as mysterious as thi had appeared.
+
 
 <!-- are listeners small or big? Are their ears small or big? -->
 

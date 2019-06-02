@@ -9,6 +9,8 @@
   - Mel's struggle is anxiety, paranoia, trust
   - Lif asks Mel if she is pregnant (show they've been trying but Mel is keeping a secret from them that she's preventing it somehow)
 
+- Somehow explain how the time system works, 
+
 - Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
 - City smells, tastes, sounds, dialog with strangers
@@ -89,6 +91,10 @@ Option3: Lissa has a covert army of moles and manipulators in every tribe, in Sh
     - Casra builds a new society in Ulu and prepares for the ice age.
 
 - Robots are actually a diffuse neural cloud of microscopic phototransistors
+
+### Interlogue
+- Make it clearer when the transition between the tunnel and leaving the tunnel happens.
+- Reword, don't add.
 
 ### Part 3
   - Casra and Linyu leave with Kip.

@@ -92,7 +92,7 @@ Interlogue
 
   "Power."
 
-  The acceleration instantly pinned me against the chair and I felt all of my hydroderm flatten backward, squeezing the liquid out. The rails that powered the craft came in waves, announcing themselves through powerful pushes and sparks that became progressively quicker. I had no space for thoughts, only the suffering of pain and shock. Suddenly, the overbearing noise and darkness of the rail tunnel gave way and the light of Ara filled the cavernous compartment, echoed by the fluttering shake of the wind around me. Weightless, I watched as the water from my sweat and tears drifted into bulbous spheres around me, scattering the bright light of Ara.
+  The acceleration instantly pinned me against the chair and I felt my binding pendant press tightly against my chest. All of my hydroderm was flattening backward, squeezing the liquid out onto the seat. The rails that powered the craft came in waves, announcing themselves through powerful pushes and sparks that became progressively quicker. I had no space for thoughts, only the suffering of pain and shock. Suddenly, the overbearing noise and darkness of the rail tunnel gave way and the light of Ara filled the cavernous compartment, echoed by the fluttering shake of the wind around me. Weightless, I watched as the water from my sweat and tears drifted into bulbous spheres around me, scattering the bright light of Ara.
 
   The countdown voice came on the line, "Altitude 12,600 and climbing. Speed 27,000. Rotation stable."
 
@@ -106,11 +106,11 @@ Interlogue
 
   My eyes were trained intently on the orientation ball, waiting for the reticle to match up with the line for 20. *After this point, I will be alone for days on a path to L1.* My eyes teared up again, imagining how alone I would feel as I died alone in the great void.
 
-  The lines finally met. I inhaled the most painful breath and said "20 down"
+  The lines finally met. I inhaled the most painful breath and in the most broken voice said "Attitude 20 down"
 
   "Prepare for ignition"
 
-  The rockets kicked on and threw me back against the seat along with the water droplets. My bindig pendant pressed again against my chest and reminded me of my family, of my mother.
+  The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that I was leaving behind.
 
   I breathed heavily into my mask and said, "Kip... Mel... I love you."
 
