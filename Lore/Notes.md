@@ -19,7 +19,9 @@
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.
 
-- It never rains.
+- It never rains. Is this accurate?
+
+- Portray Kipnu as a bombastic anti hero. Went into the medical profession to save lives (and for the glory)
 
 - Show the fervor of industrial revolution in depictions of Shaki or trains.
 
