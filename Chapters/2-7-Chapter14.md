@@ -460,7 +460,7 @@
 
 	Thi pointed straight out toward the water. "Thirty paces. Don't let hae die."
 
-	He immediately looked out toward the water, and glanced back to find Lissa walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back. 
+	He immediately looked out toward the water, and glanced back to find Lissa walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
 
 	The water wasted no time numbing his whole body. First with his hydroderm, and then slowly creeping inward to more sensitive areas. Perhaps it was the Kanosin, but the cold was not painful. Instead, he could felt faint tickles as he swam past the bluekelp, activating its light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear the voice of a maman in his listener, but he ignored it and kept searching.
 
@@ -468,8 +468,10 @@
 
 	Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer in the cold before drowning. Kip started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
 
-	He heard a sound in his listener again, but it was much more audible, "3, 2, 1." Putting it out of his mind, he went for a third dive to pull more kelp. *Three, Two more to go.* Above him, he glanced at Casra being lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, but he rushed himself into taking two breaths and plunged back into the deep. He started to see hallucinations of flashing lights in his eyesight as he reached the bottom again. The last kelp seemed the most stubborn. Its roots had been buried deep and it was securely fastened to Casra's left arm. Once again ignored the danger, he kept pulling on the root, feeling his muscles giving away their last bits of strength and his lungs failing to keep a hold on the air. He accidentally took a breath, and tasted the salt as it entered his lungs. He choked in reflex and looked up to try to surface, but his consciousness was already fading, and he was no longer buoyant enough.
+	He heard a sound in his listener again, but it was much more audible, "Prepare for ignition".
 
-	As reality closed in on him, he gazed at the stars and at Casra, wrapped in blue light.
+	Putting it out of his mind, he went for a third dive to pull more kelp. *Three, Two more to go.* Above him, Casra was lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, only taking two breaths before plunging back into the deep. Hallucinations of stars and flashing lights clouded his sight as he reached the bottom again. The last kelp seemed the most stubborn – its roots buried deep into the sand and its vines securely fastened to Casra's left arm. He tied the base of the stem around his arm and kept pulling, feeling his muscles giving away their last bits of strength and his lungs failing to keep their hold on the air. They let a sip of salt slip in, then two, and then the taste of salt permeated his cognition and filled him with panic. He choked in reflex and pushed off from the ground to try to surface, but his arm was held back. The omnipresent blue light amongst the trickles of sand against his skin disoriented him as he fought to unravel himself. Up had become down, and down had become up, and he was lost in between.
+
+	As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
 
 	The listener spoke again, "Kip... Mel... I love you."

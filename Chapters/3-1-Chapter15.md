@@ -212,9 +212,9 @@ Thi stared back at her and re-adorned haeself with the pendant, still with an un
 
 Linyu ignored her as thi tightened the waist of hae reed trousers and walked to the door they came in from. Melna went after hae, so she wouldn't lose hae if thi left. Linyu paused at the door, turned to Mel and whispered, "Liffa".
 
-Melna immediately forgot about chasing Linyu, "Liffa?! What do you know about her?"
+Melna immediately forgot about chasing Linyu and got down on her knees, "Liffa?! What do you know about her?"
 
-"Liffa. Love. You," thi said with hae hand on hers.
+"Love. You," thi said with hae hand on hers.
 
 Thi opened the door and slipped outside while Melna, shocked by what this strange kaln had just told her, stood still in confusion. Before she could recover her thoughts and run outside, Linyu had once again faded into the darkness, as mysterious as thi had appeared.
 
