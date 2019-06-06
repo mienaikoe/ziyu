@@ -1,11 +1,10 @@
 <!-- 
 
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
-- Linyu is selling a stolen tool at the station
-- Melna chases after hae with Laen-Laen and catches hae
+- Melna goes to see Jes, and Linyu is there
+- Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
 - The two travel to Yansha and talk on the way.
-
-- At Yansha, they meet Setre(?)
+- At Yansha, they meet Setre
 
  -->
 
@@ -40,9 +39,9 @@
 
   He started walking, still licking his teeth and clearly not focused on the path, while Melna took a few moments to look for Linyu somewhere in the grass. Finding nothing, she turned her mind to the day ahead, and how she would put pressure on Holragi while they held all of the senate's power.
 
-  The station was the emptiest she had ever seen. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused and obstruction-dimmed light of Ara painted soft shapes on top. The cold loitered in the unmoving air, the beginning of the end of morning winds in Heiko.
+  The station was the emptiest she had ever seen. The only sign of life was two people talking in a corner near the entrance. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused and obstruction-dimmed light of Ara painted soft shapes on top. The cold loitered in the unmoving air, the beginning of the end of morning winds in Heiko.
 
-  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw nobody. *Well I guess I'm early.*
+  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Well I guess I'm early.* She hopped off of Laen-Laen and decided to walk around the town a bit. 
 
 
 
