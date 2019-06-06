@@ -76,6 +76,8 @@
 
 - War as a catalyst for social reform
 
+- Lin should notice Mel's pendant without Mel bringing it up as a change of subject
+
 
 
 

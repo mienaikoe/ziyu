@@ -46,31 +46,39 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine the shape and size of these dots. Wire your findings to me at the senate before lunch. I'm calling for a debate at midday."
+"Record everything. Every dot, every time. And find a way to determine their shape and size. Wire your findings to me at the senate before lunch. I'm calling for a debate at midday."
 
 "Yes, žah."
 
 The observer scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
 
-"If I could interject. The senate still believes that Liffa's mission is the only path to salvation. They would never listen to an appeal."
+"If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
-"This goes beyond my relationship with Liffa. This is about our first contact with whatever is up there, and Holragi being secretive about it. Their technology is rapidly outpacing ours, but they never stopped to consider the ethics of their tests."
+"This goes beyond my relationship with Liffa. This is about Holragi's secrets. All of Palinan is relying on then to lead the way, and still they refuse to share anything."
 
-"This is not the time for an ethics debate. There are millions of people starving in the dark!"
+"This is their plan. We must play by their rules."
 
-"And what good are we doing them by sending giant hunks of metal hurtling toward our agressors? And what if all that metal comes back and lands here?"
+"That is far too much power for one province to hold."
 
-"We have no other options."
+"Perhaps you are right. But we have no other option."
 
-"We need to force Holragi to speak. They need to tell us what they know."
+Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. There is much that they are hiding."
 
-"Shaki will always side with them. The whole world is desparate for a solution, Melna. You have to drop this. We've already lost half of our food reserves. We can't afford to lose more."
+"Your pleading will be met on deaf ears, Melna."
 
-"Pomri, I taught you better than this. Everyone in the senate is simply trying to delay the inevitable while Holragi is hiding the only lead we have to our survival. All of Shaki is being held hostage by Holragi. We can't just relinquish all our power to them."
+"Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
 
-"So what do we do then? Beg them to play nice?"
+"There is much to lose and very little to gain by bothering them," she said. "Look. Why don't we focus on rebuilding our grain reserves. We've lost half to politics. We could afford to build more."
 
-She sighed, letting her internal frustration simmer down and settle.
+"We can't grow in this darkness. And besides, it would only delay the inevitable."
+
+"There is the desert."
+
+"And what if the obstruction decides to disperse one day? We'll all be roasted alive."
+
+"We would be dead long before if we don't try to grow something. We need to do something within our power, Melna."
+
+Melna sighed, letting her internal frustration simmer down and settle.
 
 "Ask me tomorrow. I have to go home."
 
@@ -78,13 +86,13 @@ Pomri threw her hands up in disappointment as Melna reached for a thick felted b
 
 Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
 
-"But the trains aren't running."
+"But the trains aren't running to Heiko."
 
-"Bring your saffa."
+"Bring your saffa. We'll ride to Yansha and catch the second train there."
 
 "That's ridiculous!"
 
-"Do it!" She snapped, and closed the door.
+She closed the door behinid her, ignoring Pomri's complaints.
 
 A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
@@ -114,15 +122,15 @@ Trying to respond, the kaln could only muster a whisper, so she bent down closer
 
 ********
 
-Mel filled the kitchen mantle with kindling from the garden and began to attack it with her hot tip to get it to light. Linyu sat on a large cushion in the middle of the dimly lit great room watching on. Thi likely knew that the kindling had become too wet to light, but remained quiet in gratitude. Sensing her own frustration building, Melna stopped trying to start a fire and drew two cups of water from the spigot just below the dew column at the center of the house.
+Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it. Linyu walked around the dimly lit great room, filled with awe at  the immensity of her house. Thi paused to watch Melna at the wood, remembering the smell of smoke and the screams of panic, but quickly snapped out of it and continued hae tour. Sensing her own frustration building, Melna stopped trying to start a fire and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
 "You must be thirsty, Linyu. Have some water."
 
-At first Linyu hesitated, staring at the cup an obvious anxiety. But with some chiding, thi took a small sip and winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine hae neck closer.
+At first Linyu hesitated, staring at the cup in her hand with obvious anxiety. Thi took the cup after the dryness of hae mouth spoke loudest and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine hae neck closer.
 
 "You have a lot of swelling in here. What happened?"
 
-"Fffire," said Linyu.
+"F-Fire," Linyu whispered.
 
 "Oh no! That's terrible!"
 
@@ -130,39 +138,7 @@ There were a million questions hiding in her mind, but her lips were blocking th
 
 "Was it in the city? I didn't hear of any fire."
 
-Linyu stared into the distance, hae eyes unmoving, untelling. She had to build more trust.
-
-She reached under her shirt to reveal her pendant. Silver, and slightly worn from use.
-
-"Have you seen one of these before? It's a pendant that my nather made for me. We keep track of our family trees with tiny engravings of crests on the inside."
-
-Slowly, she removed it from her neck and held it out to Linyu, who was still staring into the distance.
-
-"Want to see it?"
-
-Linyu was hesitant but took a look anyway. She watched as Linyu looked intently at the engravings, almost as if thi had a purpose. Suddenly, thi reached into hae shirt and pulled out a pendant of hae own and began to compare the two. Melna was shocked to see Kipnu's pendant in the hands of this strange kaln.
-
-"Where did you get that?!" She asked.
-
-Linyu quickly finished checking the two and hae eyes started to water. Without a moment's pause, thi flung haeself at Melna and made whimpering breaths into her shoulder.
-
-"Kip," thi whispered through tears. She let hae cry a bit more but her mind kept racing back and forth to all of the possibilities that could have led to this moment.
-
-"Is he ok?" She asked.
-
-Thi shook hae head.
-
-"Was it the fire?"
-
-Thi shook hae head again.
-
-"Do you know where he is?"
-
-"Mom," thi whispered with a tremble.
-
-"Your mother – he's with your mother?"
-
-Thi began to cry more and Mel held her shoulder out to cry on. For the moment, she believed Kip to be safe.
+Linyu stared into the distance, hae eyes unmoving, untelling.
 
 "Why don't you get a little rest, little one. We'll talk more in the morning."
 
@@ -178,15 +154,13 @@ She drew a bucket of water from the dew column and fetched a towel for hae to wa
 
 "You can rinse yourself with the towel. These robes will be big on you, but just put them on for now and I can tie them to fit."
 
-Thi looked up to her with grateful eyes and mouthed, "Thank you", and then walked into the washroom with the bucket and towel, leaving the robes just outside the entryway.
+Linyu looked up to her with grateful eyes and mouthed, "Thank you", and then walked into the washroom with the bucket and towel, leaving the clean robes and the device on hae ear just outside the entryway.
 
-Melna moved back to the pendants on the cushion and quickly returned her own back to her neck before searching Kip's for clues. It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
-
-The kaln's footsteps emerged again from the washroom, and showed Linyu, unabashedly bare and fumbling with the trinket on hae ear.
+Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged again from the washroom, showing Linyu, unabashedly bare save for a pendant and fumbling with the trinket on hae ear.
 
 Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
-Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
+Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on a table near her and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
 
 *What is this thing?*
 
@@ -216,16 +190,11 @@ Melna immediately forgot about chasing Linyu and got down on her knees, "Liffa?!
 
 "Love. You," thi said with hae hand on hers.
 
-Thi opened the door and slipped outside while Melna, shocked by what this strange kaln had just told her, stood still in confusion. Before she could recover her thoughts and run outside, Linyu had once again faded into the darkness, as mysterious as thi had appeared.
+Linyu opened the door and slipped outside while Melna, shocked by what this strange kaln had just told her, stood still in confusion. Before she could recover her thoughts and run outside, Linyu had once again faded into the darkness, as mysterious as thi had appeared.
 
 
 <!-- are listeners small or big? Are their ears small or big? -->
-
 <!-- potential child nudity. uh... what do i do? -->
-
-
-
-
 
   <!--
 

@@ -54,7 +54,7 @@
 
   "There we go. Now lets get you ready."
 
-  I took a soft linen blanket from the wall and I paused a moment to remember when Jes and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+  I took a soft linen blanket from the wall and paused a moment to remember when Jes and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
 
   *Not the time for memories*. I snapped out and hopped on while rushing to the front gate where Jes was waiting for me.
 
