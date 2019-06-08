@@ -1,4 +1,4 @@
-<!-- 
+<!--
 
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
 - Melna goes to see Jes, and Linyu is there
@@ -32,26 +32,50 @@
   He chomped down on them, taking enough time to chew, and the sweet aroma of fresh Pohua and not-so-fresh saffa breath filled her nose. She took his eating time to fetch the thick linen riding cloth from the stable and ensure it was wrapped securely around his back and chest. Once he finished, he sniffed around for scraps that fell between his teeth and then hummed in satisfaction.
 
   "Glad you liked it," she said, rubbing his ears.
-  
+
   With a firm grab of his neck hair, she hopped onto his back and settled herself in.
 
   "Alright, Laen-Laen. Let's take a steady trip to the station."
 
   He started walking, still licking his teeth and clearly not focused on the path, while Melna took a few moments to look for Linyu somewhere in the grass. Finding nothing, she turned her mind to the day ahead, and how she would put pressure on Holragi while they held all of the senate's power.
 
-  The station was the emptiest she had ever seen. The only sign of life was two people talking in a corner near the entrance. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused and obstruction-dimmed light of Ara painted soft shapes on top. The cold loitered in the unmoving air, the beginning of the end of morning winds in Heiko.
+  The station was the nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused and obstruction-dimmed light of Ara painted soft shapes on top. The cold loitered in the unmoving air, the beginning of the end of morning winds in Heiko.
 
-  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Well I guess I'm early.* She hopped off of Laen-Laen and decided to walk around the town a bit. 
+  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Well I guess I'm early.* She hopped off of Laen-Laen and pat his cheek before approaching the pair in the corner. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a woman about his height and build, twiddling with a small steel bar.
+
+  She greeted them, "Hi there. Do you happen to know the time?"
+
+  They gave her a once-over and the man asked, "No trains now. Go home."
+
+  "I'm just looking for the time," she persisted, now suspicious.
+
+  The two glanced at each other and the maman approached her with a swagger meant to intimidate.
+
+  Thi said, "You look familiar," and glanced at her bag from which hastily-packed robes were peaking out.
+
+  "You're that senator who gave away all our food."
+
+  Melna suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention.
+
+  "Wonder if you hoarded any," she said, as she grasped for the bag. Melna pulled it away from hae fingers, but the cold, long finger of the steel bar across her neck stopped her from fleeing.
+
+  "I have no food. Only my robes," she pleaded to them.
+
+  "Your saffa will do", the man said, looking at Laen-Laen. "Call it over."
+
+  "You would kill a saffa to eat?"
+
+  "You didn't exactly give us a choice. Did you, senator," he said with a grin of satisfaction on his face.
+
+
+
+  <!-- Pomri foreshadows her loyalty? -->
 
 
 
 
 
-
-
-
-
-<!-- 
+<!--
 She changed the subject in attempt to build trust, "Here. Let me show you something."
 
 She reached under her shirt to reveal her family pendant. Silver, and slightly worn from use.
@@ -84,7 +108,7 @@ Thi shook hae head again.
 
 "Your mother – he's with your mother?"
 
-Thi began to cry more and Mel held her shoulder out to cry on. For the moment, she believed Kip to be safe. 
+Thi began to cry more and Mel held her shoulder out to cry on. For the moment, she believed Kip to be safe.
 
 
 It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*

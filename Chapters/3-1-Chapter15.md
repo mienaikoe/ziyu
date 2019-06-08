@@ -46,7 +46,7 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine their shape and size. Wire your findings to me at the senate before lunch. I'm calling for a debate at midday."
+"Record everything. Every dot, every time. And find a way to determine their shape and size. Wire your findings to me at the senate before dinner. I'm calling for a debate in the evening."
 
 "Yes, žah."
 
