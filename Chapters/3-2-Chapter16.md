@@ -55,20 +55,31 @@
 
   "You're that senator who gave away all our food."
 
-  Melna suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention.
+  Mel suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention.
 
   "Wonder if you hoarded any," she said, as she grasped for the bag. Melna pulled it away from hae fingers, but the cold, long finger of the steel bar across her neck stopped her from fleeing.
 
-  "I have no food. Only my robes," she pleaded to them.
+  "I have no food. Only my robes," she tried to reason with them.
 
   "Your saffa will do", the man said, looking at Laen-Laen. "Call it over."
 
   "You would kill a saffa to eat?"
 
-  "You didn't exactly give us a choice. Did you, senator," he said with a grin of satisfaction on his face.
+  "You didn't exactly give us a choice. Did you, senator," he said as if he had been waiting for a moment to take his revenge.
 
+  Mel hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
 
+  "Hurry it up!" The woman demanded with the bar still at Melna's neck.
 
+  Suddenly, a voice called from behind them, "Melna, glad I found you."
+
+  The pair turned around to find Pomri, on her own saffa and armed with a spear. In a split-second, they dashed away from the station, leaving the two alone with their saffas.
+
+  "You're woefully unprepared," said Pomri.
+
+  "And you're woefully late," Mel responded.
+
+  
   <!-- Pomri foreshadows her loyalty? -->
 
 
