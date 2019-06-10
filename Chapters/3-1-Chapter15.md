@@ -168,29 +168,55 @@ She faintly heard some noise coming from it, and put it up to her ear. It was ju
 
 "**** -entation now."
 
-Linyu startled her from her trance-like fixation, standing in front of her with Liffa's robes and staring at the listener with a disappointed face. To her surprise, thi took the listener from her hands and put it back on hae ear.
+Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and staring at the listener with disappointment. Thi took it from her hands without hesitation and hid it in hae robes.
 
 She responded, "I'm sorry, I should have asked first."
 
-Linyu whispered to her, "Mom."
+Linyu whispered to haeself, "Mom."
 
-"Your mom gave you this?" she asked.
+"Your mother gave it to you?"
 
-Thi nodded hesistantly and moved to pick the pendant up again.
+Thi nodded hesistantly, and clutched to it tighter.
 
-"Linyu, please. Let me have this. I am bound to Kipnu."
+"Where is thi now?"
 
-Thi stared back at her and re-adorned haeself with the pendant, still with an untrusting look on hae face. She walked angrily back toward hae old clothes next to the washroom door, and changed into them.
+Linyu stared back at her with eyes like dams built with doubt. Thi walked angrily back toward hae old clothes next to the washroom door.
 
-"Linyu, I'm sorry. I- I just... miss him."
+"I'm sorry, we don't have to talk about that right now."
 
-Linyu ignored her as thi tightened the waist of hae reed trousers and walked to the door they came in from. Melna went after hae, so she wouldn't lose hae if thi left. Linyu paused at the door, turned to Mel and whispered, "Liffa".
+A thump rang across the room as Linyu slammed the door behind hae. From where she sat, Mel could hear the painful breaths and sniffles of a child trying to find the balance between the pain of speaking with the pain of losing hae mother. She felt powerless, unfamiliar to her but to a past she had long forgotten. It brought a pair of tears to her own eyes as she empathized with Linyu. Mel instinctively walked toward the cries in the washroom, bringing the half-empty glass of water as a sign of peace.
 
-Melna immediately forgot about chasing Linyu and got down on her knees, "Liffa?! What do you know about her?"
+"Linyu, may I come in?"
 
-"Love. You," thi said with hae hand on hers.
+There was no response.
 
-Linyu opened the door and slipped outside while Melna, shocked by what this strange kaln had just told her, stood still in confusion. Before she could recover her thoughts and run outside, Linyu had once again faded into the darkness, as mysterious as thi had appeared.
+"Knock once if you want me to leave. Twice if you'd rather I stay here."
+
+After a long stillness there came a shuffling and then a knocking against the door. *Tap...Tap.*
+
+Slightly relieved, she responded, "Okay. I'll stay then."
+
+She decided to be deliberate. Another prying question might push the kaln to leave, and it had become far too cold for anyone to be outside for the night.
+
+"I promise that I won't ask any more questions. And I won't steal your ear device. I just have some water for you here by the door."
+
+Thi slowly creaked the door open just enough to look outside at Mel's distance, and reach for the glass. Thi kept the door cracked like this, sipping on water and glancing at Mel with exhausted but vigilant eyes. In the crack of light, she could see that the reed trousers and top thi had worn before had returned to hae body.
+
+"You know, my spouse, Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. That was more of the other one's job."
+
+Linyu whispered, "Liffa".
+
+"Yes. That's hae name."
+
+Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear.
+
+She listened intently as Liffa's haunting voice bid her goodbye from the great void of space, not knowing who was listening. The words echoed through her mind and sent her into fit of panicked anguish. Spasms overtook her breathing in between curses of anger and cries of guilt.
+
+"Mel-na," Linyu whispered under hae breath, as thi clutched Kip's pendant under hae top. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
+
+Mel fell asleep still crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. But Linyu lay awake, unsure of how to tell her about Kip, but certain that anyone he trusted with his life could be trusted with hae own.
+
+
 
 
 <!-- are listeners small or big? Are their ears small or big? -->

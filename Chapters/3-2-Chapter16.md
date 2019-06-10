@@ -11,6 +11,8 @@
 ## Chapter 16
 
 
+<!-- TODO: ADd Linyu to this chapter -->
+
   Melna awoke in a dark corner of the great room with a dimmed Ara looming through the windows. She remembered Linyu and popped up quickly to see if thi had returned, but saw no sign of hae. Only a headache remained as proof of the late night she had spent with such a mysterious child.
 
   "Linyu..." She called to the stagnant air.
@@ -79,7 +81,7 @@
 
   "And you're woefully late," Mel responded.
 
-  
+
   <!-- Pomri foreshadows her loyalty? -->
 
 
@@ -121,6 +123,11 @@ Thi shook hae head again.
 
 Thi began to cry more and Mel held her shoulder out to cry on. For the moment, she believed Kip to be safe.
 
+"Linyu, please. Let me have this. I am bound to Kipnu."
+
+
+
+"Linyu, I'm sorry. I- I just... miss him."
 
 It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
 -->

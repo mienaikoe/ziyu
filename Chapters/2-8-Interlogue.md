@@ -57,13 +57,13 @@ Interlogue
   "Five"
 
   The panic had turned into sobbing.
-  
+
   *Am I dying? It feels like I'm dying Do I want to die? I wouldn't have to feel this. I want to die.*
 
   "Four"
 
   Through my tears and screams, the amber light of the radio toggle beckoned to me, and my finger shot across the compartment to flip it.
-  
+
   I said "I can't do this. I can't do this. Get me out of here."
 
   The deadpan voice of the mission director responded to me, "Silence on the line."
@@ -104,13 +104,12 @@ Interlogue
 
   I toggled the radio on, and confirmed, "Okay"
 
-  My eyes were trained intently on the orientation ball, waiting for the reticle to match up with the line for 20. *After this point, I will be alone for days on a path to L1.* My eyes teared up again, imagining how alone I would feel as I died alone in the great void.
+  My eyes were trained intently on the orientation ball, waiting for the reticle to match up with the line for 20. *After this point, I will be alone for days on a path to L1.* Tears welled up in me again, when I imagined how alone I would feel, dying alone in the great void. *There was no goodbye. Just silence as we let the space divide us. "I'll be waiting". Kip... You were always so optimistic. I bet you're back from Ulukoma by now, giving Melna hell.*
 
   The lines finally met. I inhaled the most painful breath and in the most broken voice said "Attitude 20 down"
 
-  "Prepare for ignition"
+  "Liffa, Prepare for ignition"
 
   The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that I was leaving behind.
 
   I breathed heavily into my mask and said, "Kip... Mel... I love you."
-
