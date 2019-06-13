@@ -32,6 +32,8 @@
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
   - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?
 
+- Casra tried to kill Lissa before but it didn't work, but it's not obviously the bluekelp.
+
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
 
 - Introduce a species of bird to Ulukoma, and then when Lin + Kip climb the tree, have some foreshadowing where Kip knocks a nest down accidentally, and Lin saves the eggs. (Perhaps future books can have Lin be some hero?)
@@ -46,6 +48,7 @@
 - Make note of how firewood works in the Shadestead
 
 - Depict Lissa as a dream-goddess to Kipnu on the come-down from Kanosin
+  - Especially good with Lissa's Non-Dying Lore
 
 - Talk about Linyu a bit more - make it clear there's a problem even though Linyu doesn't die.
 
@@ -70,6 +73,8 @@
 - "We know truth not only by reason but also by heart" <- what?
 
 - Embalming in salt - salt graves
+
+- Make it clear Lissa has died before
 
 
 ### Part 3

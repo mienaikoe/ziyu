@@ -98,8 +98,21 @@ Kip is sentenced. Lif and Kip share a moment of quiet solace in each other and t
 
 Kip is in Ulukoma. He finds Casra and Linyu. They survive the cold. Kip ventures into the forest, gets trapped by Setre who takes him to Lissa.  Kip tries to share about the obstruction, but Lissa laughs and enslaves him along with the rest of the group. Kip is taken to the grand yurt by Setre, is drugged and has sex with Lissa and Setre. He escapes with Casra. Casra is benevolent. Has trust issues, but Kip has shown that he is a good man in a bad place by saving Lin. He shares that Ara is dying, and thi shares about the history of Ulukoma and about radio technology. They try to rally the newcomers at the beach, and find hundreds. Casra is captured by Ramne, who is loyal to Lissa. Kip and Linyu lead the rest to Casra's hideaway where they prepare to rescue hae. It goes terribly wrong, and has ambiguous endings for all characters. At the end, Kip is trying to save Casra, and hears Lif's voice on the listener.
 
+Hidden:
+- Lissa and all hae crew are ressurected after a day and imprison the survivors of Kip's army to drug slavery, including Setre and Fanla. Linyu fled.
+- Penyi flees with Ginnu?
+- Ramne is...?
+- Maybe Casra had enough light to survive? Maybe Kip did?
+- If they survive it should be at a cost
 
-### Interlogue - Mel
+
+### Interlogue - Lif
+
+Takeoff
+
+
+
+### Part 3 - "The " (Mel)
 
 Mel is at the observatory and discovers evidence of a craft being launched toward the obstruction. She is distraught and is pretty certain it's Lif. She vows to take vengeance and bring hae back, but doesn't know how. She goes home to sleep on it and go to the senate in the morning. Before heading to sleep, she gets a knock on the door, and it's Setre (& Linyu?).
 
@@ -109,9 +122,6 @@ Mel is at the observatory and discovers evidence of a craft being launched towar
 = Setre has known Ulukoma as home for a long time, but might leave for something this important.
 = Setre wouldn't leave Linyu alone with Ramne on the loose.
 = Did Linyu die?
-
-
-### Part 3 - "The " (Mel)
 
 - Linyu and Melna introduction. Linyu discovers Pohua in the garden, growing perfectly while lots of other crops have failed. Melna takes pohua with her. The Heikoans generally despise Melna for losing their food stores and say so in the city center. She's met with an Arkeza protestor who tries to stop her from boarding the train without hearing his pleas. Melna gives him a tuber of pohua, and he tosses it aside.
 

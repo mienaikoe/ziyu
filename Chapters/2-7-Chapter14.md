@@ -426,6 +426,8 @@
 
 	"And you under Ara are not guilty of the same? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into an addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
 
+	<!-- TODO: Change this, as Lissa should not be livid but nonchalant since nobody can die -->
+
 	Thi leaned in close to him and wrapped hae hand around his throat.
 
 	"You think we're broken. Flying off the *fucking* rails. We tried to make a home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. *Nobody* can have a shred of fucking happiness."
