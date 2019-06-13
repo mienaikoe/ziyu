@@ -102,15 +102,15 @@
 
   I took the moment of silence to shift to a chair and sit down close to Jes. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-  "Heiko Senator's conduit, Clerk Pomri speaking."
+  The line opened and an unenthused maman spoke, "Heiko Senator's conduit, Clerk Pomri."
 
-  "Clerk Pomri, I have an urgent message for Melna"
+  "Clerk Pomri, I have an urgent message for Melna."
 
   "Senator Melna is currently in assembly."
 
   "When will she be out?"
 
-  "It can last anywhere from 10 clicks to the whole day."
+  "It can last anywhere from 2 va'na to the whole day."
 
   "This will likely affect today's deliberations. Is there any way you can get this to her?"
 

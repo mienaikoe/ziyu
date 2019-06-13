@@ -50,7 +50,7 @@ Melna took a few deep breaths to regain her composure.
 
 "Yes, žah."
 
-The observer scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
+The observer scurried away to fetch some empty film plates while Pomri rose from hae desk and approached Melna.
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
@@ -68,7 +68,7 @@ Mel sighed, exasperated at how she let things go this far. "We need to find a wa
 
 "Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
 
-"There is much to lose and very little to gain by bothering them," she said. "Look. Why don't we focus on rebuilding our grain reserves. We've lost half to politics. We could afford to build more."
+"There is much to lose and very little to gain by bothering them," thi said. "Look. Why don't we focus on rebuilding our grain reserves. We've lost half to politics. We could afford to build more."
 
 "We can't grow in this darkness. And besides, it would only delay the inevitable."
 
@@ -82,7 +82,7 @@ Melna sighed, letting her internal frustration simmer down and settle.
 
 "Ask me tomorrow. I have to go home."
 
-Pomri threw her hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
+Pomri threw hae hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
 
 Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
 
@@ -92,7 +92,7 @@ Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki
 
 "That's ridiculous!"
 
-She closed the door behinid her, ignoring Pomri's complaints.
+She closed the door behind her, ignoring Pomri's complaints.
 
 A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
