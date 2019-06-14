@@ -35,7 +35,7 @@ Kip responded between pushes. "Thank you...shouldn't...stop". Casra understood a
 
 "You're alive!" Kip said, jubilant.
 
-Casra reset hae focus and produced two steel bits and a still-dry notebook from a peculiar bag at her waist. She took a large rock in her shaking hands and started crashing it into the steel above the paper while the people crowded around to shield her from the wind. A woman sat down beside hae and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kip carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
+Casra reset hae focus and produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. A woman sat down beside hae and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kip carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
 
 Meanwhile Kip was trying to talk to the child to keep hae awake and aware.
 
