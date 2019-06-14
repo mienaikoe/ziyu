@@ -67,7 +67,7 @@
 
   The station was the nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused and obstruction-dimmed light of Ara painted soft shapes on top. The cold loitered in the unmoving air, the beginning of the end of morning winds in Heiko.
 
-  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Well I guess I'm early.* She hopped off of Laen-Laen and then helped Linyu off as well before patting his cheek. The two cautiously approached the pair in the corner. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a woman about his height and build, twiddling with a small steel bar.
+  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Guess I'm not the only late one.* She hopped off of Laen-Laen and then helped Linyu off as well before patting his cheek. The two cautiously approached the pair in the corner. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a woman about his height and build, twiddling with a small steel bar.
 
   She greeted them, "Hi there. Do you happen to know the time?"
 
@@ -99,31 +99,35 @@
 
   Suddenly, a voice called from behind them, "Melna. glad I found you."
 
-  The pair turned around to find Pomri, on hae own saffa and armed with a titanium spear as long as hae body was tall. 
+  The pair turned around to find Pomri, on hae own saffa and armed with a titanium spear as long as hae body was tall.
 
   "Looks like you've made some friends," she said.
 
-  The woman tugged on the man's arm and they dashed away from the station, leaving the bar behind.
+  The woman immediately dropped the steel bar and tugged on the man's arm and they dashed away from the station as fast as they could.
 
   "You're woefully unprepared," said Pomri.
 
   "And you're woefully late," Mel responded.
 
-  "Who is this?" Pomri asked, only glancing at Linyu.
+  Pomri made no excuses.
+
+  "Who is the kaln?" thi asked, giving the slightest glance to Linyu.
 
   "This is Linyu."
 
   Pomri patiently waited for more details.
 
-  Melna started again, "I found Laen-Laen protecting hae last night and now they're pretty much inseparable."
+  Melna started again, "I found hae keeping warm with Laen-Laen last night and now they're pretty much inseparable."
 
-  "And you're taking this strange kaln with us to Shaki?"
+  "And you're taking hae with us to Shaki?"
 
   "I think thi might know something about Holragi that we don't know."
 
-  Pomri wore her blank stare, incredulous that a senator would even suggest something so ridiculous.
+  Pomri wore a blank stare in an attempt to hide hae frustration.
 
-  Mel let out an exasperated sigh. "I know this sounds the smallest bit harebrained but I'll show you once I hear it again."
+  "You never run out of strange ideas, do you?" she asked in an antagonizing tone.
+
+  Mel let out an exasperated sigh. "I know this all sounds crazy. But... the end of everything is knocking on our door. I'm doing this for the assurance that we tried everything we could."
 
 
   <!-- Pomri foreshadows her loyalty? -->
