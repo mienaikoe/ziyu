@@ -36,7 +36,7 @@ She looked him up and down again, surprised.
 
 "I need to call you something when I introduce you."
 
-She flipped the tent cover and they entered a new world of blue light. Everyone was nude and had ornately-patterned luminescent markings on their bodies. Some were smoking something sweet he had never encountered before, others were singing and dancing songs from the mainland, and others were in the throws of erotic ecstasy. All were unbothered by the entrance of Setre and her capture.
+She flipped the tent cover and they entered a new world of blue light. Everyone was nude and had ornately-patterned luminescent markings on their bodies. The dancing ones blurred their markings into the sweet smelling smoke of a plant he hadn't encountered before. Their pipes emmitted bright sparks that filled the smoke with a blue glow, like pixies joining the dance. And still others were in the throws of erotic ecstasy. The scene was unbothered by the entrance of Setre and her capture.
 
 She led him through the narrow spaces between people. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat. They came to the back of the tent, where a maman no more than Kip's age sat reclined in front of a tent post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing.
 

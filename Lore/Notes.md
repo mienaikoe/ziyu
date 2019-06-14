@@ -9,7 +9,7 @@
   - Mel's struggle is anxiety, paranoia, trust
   - Lif asks Mel if she is pregnant (show they've been trying but Mel is keeping a secret from them that she's preventing it somehow)
 
-- Somehow explain how the time system works, 
+- Somehow explain how the time system works,
 
 - Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
@@ -32,7 +32,12 @@
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
   - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?
 
-- Casra tried to kill Lissa before but it didn't work, but it's not obviously the bluekelp.
+- Kanosin is made out of Bluekelp, and is addicting.
+  - Secretly: This is how bluekelp evolved. It keeps people alive and addicted so they keep coming back to it to    spread its spores through the water or through Kanosin.
+
+- Kanosin smoke contains tons of tiny sparks of Bluekelp that get hot enough for their proteins to fluoresce very quickly.
+
+- Casra tried to kill Lissa before but it didn't work, but it's not obviously the bluekelp, just subtly.
 
 - Maybe the trees can tune themselves - Wood rings as capacitors and spiraling branches as coils. Evolutionary for plant communication across great distances.
 
@@ -60,7 +65,7 @@
   - Lissa says that Casra wanted to die along - terminal illness.
     - This was her last stand against me.
   -PROBLEM:
-    - people have to die at Ulukoma for Ramne to gain power by his secret 
+    - people have to die at Ulukoma for Ramne to gain power by his secret
     - and for Lissa to show humanity, and then remorse.
     - ***Ramne controls who dies and who lives.***
       - Penyi lives because she makes a good slave?
