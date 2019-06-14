@@ -400,7 +400,7 @@
 
 	"Casra!" He called toward the sound. There was no answer.
 
-	Finally, he came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was dumbfounded at what he saw. A streak of blue light hanging upon every wave, and reaching down to the ocean floor. Above, there were far more dots marring Ulu than he had seen before. Some were white, some yellow, and others red.
+	Finally, he came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was astonished at the scene before him. A streak of blue light hanging upon every wave, and reaching down to the ocean floor. Above, there were far more dots marring Ulu than he had seen before. Some were white, some red, and others infrared.
 
 	Kip refocused on his mission. He called out again, "Casraaa!!"
 
@@ -408,7 +408,7 @@
 
 	"Have you come to kill me too, Kipnu?" Lissa asked.
 
-	Kip lunged at hae, but Lissa was faster. Thi dodged, and Kip fell onto the icy ground. Before he could get up, thi drew a short sword to his neck.
+	Kip lunged, but Lissa was faster with hae dodge, and Kip fell to the ground. Before he could get up, thi drew a short sword to his neck.
 
 	"Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
 
@@ -432,7 +432,7 @@
 
 	"You think we're broken. Flying off the *fucking* rails. We tried to make a home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. *Nobody* can have a shred of fucking happiness."
 
-	Thi took hae hand away from Kip's neck and he gasped for air between tears and cries of pain. Lissa rummaged in hae dressings and took out an ornate kanosin pipe, well-used and wooden, and lit it with a hot tip. Thi took a drag and then threw the pipe to Kip, who took it eagerly to stop the pain.
+	Thi took hae hand away from Kip's neck and he gasped for air between tears and cries of pain. Lissa rummaged in hae dressings and took out an ornate kanosin pipe, well-used and wooden, and lit it with a hot tip. The sparks were slow to light, and few to number, but thi took a drag anyway and threw the pipe to Kip, who took it eagerly to stop the pain.
 
 	"Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
 
@@ -446,7 +446,7 @@
 
 	Thi looked over at him, and for the first time showed some doubt.
 
-	They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Lissa's pale-cold face. Thi reached for the kanosin pipe from Kip and took two more very deep hits before bringing it back to him and removing hae sword from his hand and the ground. He cried out again, but the kanosin mediated the pain a little.
+	They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Lissa's pale-cold face. Thi reached for the kanosin pipe from Kip and took two more deep inhales before bringing it back to him and removing hae sword from his hand and the ground. He cried out again, but the kanosin mediated the pain a little.
 
 	Thi set the blade in hae own left palm and stared at the blood.
 
@@ -458,17 +458,17 @@
 
 	Kip started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
 
-	Thi stood up and looked out to the ocean, "This is how thi wanted to die. Dancing in the light that darkness rules. Casra and I buried a friend here once. Back when I still believed. But this isn't the way it was supposed to happen."
+	Thi stood up and looked out to the ocean, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed. But this isn't the way it was supposed to happen."
 
 	Thi pointed straight out toward the water. "Thirty paces. Don't let hae die."
 
 	He immediately looked out toward the water, and glanced back to find Lissa walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
 
-	The water wasted no time numbing his whole body. First with his hydroderm, and then slowly creeping inward to more sensitive areas. Perhaps it was the Kanosin, but the cold was not painful. Instead, he could felt faint tickles as he swam past the bluekelp, activating its light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear the voice of a maman in his listener, but he ignored it and kept searching.
+	*The water is... warm?* He was slightly disconcerted at the warmth amidst the faint tickles of bluekelp as he swam past, as if the ocean itself had come alive and he was headed straight into its belly. The frail villi-like stalks bent and swayed to his movements, their light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear voices amongst the static in his listener, but he ignored it and kept searching.
 
-	Once he got out about as far as 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
+	Once he reached about 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
 
-	Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer in the cold before drowning. Kip started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
+	Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer before drowning. Kip started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
 
 	He heard a sound in his listener again, but it was much more audible, "Prepare for ignition".
 
