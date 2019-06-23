@@ -16,9 +16,9 @@
 
 "Senator Melna, I think you should see something."
 
-Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark at a telescope plate pointed toward the horizon. He was carefully adjusting a dial on the lens output as he made room for Melna.
+Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark at a telescope plate pointed toward the horizon. His eyes were exhausted but transfixed on the plate before him, as he carefully adjusted a dial on the lens output and made room for Melna.
 
-"What should I be looking for?" Melna asked.
+"What should I be looking for, Thimlu?" Melna asked.
 
 "Look for a line of small dots rising up from the horizon."
 
@@ -48,9 +48,13 @@ Melna took a few deep breaths to regain her composure.
 
 "Record everything. Every dot, every time. And find a way to determine their shape and size. Wire your findings to me at the senate before dinner. I'm calling for a debate in the evening."
 
-"Yes, žah."
+"We shall keep a constant eye."
 
-The observer scurried away to fetch some empty film plates while Pomri rose from hae desk and approached Melna.
+"And Thimlu," she recalled, "Keep your lines open. Communication is the only way we'll get through this."
+
+"You have my word, žah."
+
+Thimlu scurried away to fetch some empty film plates while Pomri rose from hae desk and approached Melna.
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
@@ -76,7 +80,7 @@ Mel sighed, exasperated at how she let things go this far. "We need to find a wa
 
 "And what if the obstruction decides to disperse one day? We'll all be roasted alive."
 
-"We would be dead long before if we don't try to grow something. We need to do something within our power, Melna."
+"And we will have starved to death long before. We need to do something within our power, Melna."
 
 Melna sighed, letting her internal frustration simmer down and settle.
 
@@ -202,7 +206,7 @@ She decided to be deliberate. Another prying question might push the kaln to lea
 
 Thi slowly creaked the door open just enough to look outside at Mel's distance, and reach for the glass. Thi kept the door cracked like this, sipping on water and glancing at Mel with exhausted but vigilant eyes. In the crack of light, she could see that the reed trousers and top thi had worn before had returned to hae body.
 
-"You know, my spouse, Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. That was more of the other one's job."
+"You know, my spouse... Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. That was more of the other one's job."
 
 Linyu whispered, "Liffa".
 
@@ -210,7 +214,7 @@ Linyu whispered, "Liffa".
 
 Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear.
 
-She listened intently as Liffa's haunting voice bid her goodbye from the great void of space, not knowing who was listening. The words echoed through her mind and sent her into fit of panicked anguish. Spasms overtook her breathing in between curses of anger and cries of guilt.
+She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger, guilt, and shame.
 
 "Mel-na," Linyu whispered under hae breath, as thi clutched Kip's pendant under hae top. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
 

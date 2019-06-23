@@ -45,13 +45,13 @@
 
   "Well, we're going on a big trip today so let's eat up to prepare," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with Linyu and the saffa in toe.
 
-  "Is this what you eat, Laen?" she asked him, pointing at the vast field of Pohua. He sniffed the stems, hungry but loyal in his patience.
+  "You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.
 
   "Let's find you a couple big ones... wow these are all pretty big. And they seem pretty healthy even in the cold."
 
   She plucked a couple big ones at the low point of the field and quickly dusted them off, storing them in her bag.
 
-  "Here you are," she said, tossing two of the largest ones to him. He chomped down on them, taking enough time to chew, and the sweet aroma of fresh Pohua and not-so-fresh saffa breath filled her nose. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light and their grain stores had been emptied by the senate's last mandate.
+  "Here you are," she said, tossing two of the largest ones to him. He chomped down on them, taking enough time to chew, and the sweet aroma of fresh pohua and not-so-fresh saffa breath filled her nose. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light and their grain stores had been emptied by the senate's last mandate.
 
   "Well, I guess we'll have to get something in town," she told a disappointed Linyu.
 
@@ -127,7 +127,9 @@
 
   "You never run out of strange ideas, do you?" she asked in an antagonizing tone.
 
-  Mel let out an exasperated sigh. "I know this all sounds crazy. But... the end of everything is knocking on our door. I'm doing this for the assurance that we tried everything we could."
+  Mel let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
+
+  "I only hope that we don't run out of time on silly ideas."
 
 
   <!-- Pomri foreshadows her loyalty? -->
