@@ -52,6 +52,13 @@ Is a character that starts out bored with life and has lots of dreams and fantas
       - Nature only speaks when it suffers.
       - You can only learn from suffering.
 
+  - Heavy Sci-Fi
+  - Machine's role in preserving the final problem across universes.
+    - Communicating across an event horizon / singularity
+    - Kardashev 1 civilizations seeding new universes to solve the final problem
+    - Nature playing a role in amplifying the final problem
+    - The solution to the final problem
+
   - Part 1
     - How do you place a value on people in a perfect communism?
     - The pitfalls of legalism
@@ -133,11 +140,11 @@ Mel is at the observatory and discovers evidence of a craft being launched towar
 
 - At the senate, Fajro says that Holragi has sent a series of projectiles to L1, aimed at creating a chain reaction to wipe out the bots. Melna knows he's actually planning to bomb Heiko and invade Shaki from Ulukoma. She devises a plan to move Heikoans all to Ulukoma with the Pohua they grew and thwart his invasion there. But she no longer has a voice in Heiko. Liffa, as a global hero, backs her up and they all plan to go. The Arkeza secretly plan to murder all Holragians in Ulukoma as part of a right-wing extremist plot.
 
-- Penyi and Liffa are in intense pain whenever they're near each other. the first bombs go off at L1 and Liffa screams in agony. 
+- Penyi and Liffa are in intense pain whenever they're near each other. the first bombs go off at L1 and Liffa screams in agony.
 
 
 
-### Part 4 I guess? "The 
+### Part 4 I guess? "The
 
 
 - Setre travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover.

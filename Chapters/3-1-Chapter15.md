@@ -216,7 +216,7 @@ Shifting away from the door, thi slid it back and pushed the listener onto Melna
 
 She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger, guilt, and shame.
 
-"Mel-na," Linyu whispered under hae breath, as thi clutched Kip's pendant under hae top. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
+"Mel-na," Linyu whispered under hae breath, as thi moved closer to comfort her. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
 
 Mel fell asleep still crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. But Linyu lay awake, unsure of how to tell her about Kip, but certain that anyone he trusted with his life could be trusted with hae own.
 

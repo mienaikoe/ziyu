@@ -4,7 +4,7 @@
 - Melna goes to see Jes, and Linyu is there
 - Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
 - The two travel to Yansha and talk on the way.
-- At Yansha, they meet Setre
+- At Yansha, they meet Ramne and Ginnu
 
  -->
 
@@ -23,7 +23,7 @@
 
   She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. There was no sign of hae listener and Liffa's robes were still in the washroom. *Thi left. But there's still so much I don't know about hae.*
 
-  With some hesitation, she decided to carry on with her day and look for Linyu later. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and a canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
+  With some hesitation, she decided to carry on with her day and look for Linyu later. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled an oiled wood canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
 
   She approached the stable, calling, "Laen-Laen," and he made three short whoops to wake up.
 
@@ -117,7 +117,7 @@
 
   Pomri patiently waited for more details.
 
-  Melna started again, "I found hae keeping warm with Laen-Laen last night and now they're pretty much inseparable."
+  Melna started again, "I found hae voiceless and keeping warm with Laen-Laen last night and now they're pretty much inseparable."
 
   "And you're taking hae with us to Shaki?"
 
@@ -129,16 +129,43 @@
 
   Mel let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
 
-  "I only hope that we don't run out of time on silly ideas."
+  "I only hope that we don't run out of time."
+
+  "Time... Never been fond of it, personally. I find that I get more done when I don't have time to complain about how little time I have."
+
+  "Sometimes I wonder how you became a senator with such baseless guidance."
+
+  "I build my trust around those who know the way."
 
 
-  <!-- Pomri foreshadows her loyalty? -->
+*************
 
 
+  The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced. Pomri took out hae canteen and took a gulp of water before looking over to Linyu.
 
+  "You thirsty, Linyu?"
+
+  Thi didn't answer, but sent a scowl of distrust hae way. Pomri's arm receded and thi re-placed the screw stopper.
+
+  "Your funeral," thi said.
+
+  Melna placed her hand on the kaln's shoulder and said, "Don't worry about Pomri. We bicker like this all the time."
+
+  Hae look of disapproval was unbreaking, but hae gaze was diverted back to the road ahead.
 
 
 <!--
+
+Ramne + Penyi + Ginnu?
+or Ramne + Ginnu?
+
+Do this reveal when meeting and running from Ramne
+  Maybe Ginnu has the pendant, and gives it to Linyu to try and tell hae that Kipnu is alive.
+  Ramne is angry at this and causes a ruckus to try and get the pendant back while Melna runs
+    away with Linyu. Pomri tries to stop him, and gets a mild gash in the process.
+
+
+
 She changed the subject in attempt to build trust, "Here. Let me show you something."
 
 She reached under her shirt to reveal her family pendant. Silver, and slightly worn from use.
