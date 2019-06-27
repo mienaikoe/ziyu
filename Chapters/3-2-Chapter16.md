@@ -145,13 +145,21 @@
 
   "You thirsty, Linyu?"
 
-  Thi didn't answer, but sent a scowl of distrust hae way. Pomri's arm receded and thi re-placed the screw stopper.
+  Thi didn't answer, but threw back a scowl of distrust with hae eyes.
 
-  "Your funeral," thi said.
+  Pomri's hand receded and twisted the vessel closed. "Your pride will be your death," thi said. Linyu's gaze had already diverted back toward the road.
 
-  Melna placed her hand on the kaln's shoulder and said, "Don't worry about Pomri. We bicker like this all the time."
+  A soft hand rested on Linyu's shoulder, snapping hae out of hae disdain, "Hey, you ok?"
 
-  Hae look of disapproval was unbreaking, but hae gaze was diverted back to the road ahead.
+  Thi straightened hae back and let out a gentle sigh, bringing a hand to meet hers.
+
+  Melna said, "Pomri might be a bit harsh, but thi means well. We're about Va'na to Yansha, and Shaki is still further. We need to keep hydrated out here."
+
+  She extended her own canteen to hae, and thi begrudgingly took a sip and gave it back to Melna.
+
+  "Laen," thi whispered.
+
+  "Saffa's can stay hydrated for much longer because they're from the desert. We'll give him some once we reach Yansha."
 
 
 <!--
