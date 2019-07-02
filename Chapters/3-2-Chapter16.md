@@ -11,7 +11,7 @@
 ## Chapter 16
 
 
-<!-- TODO: ADd Linyu to this chapter -->
+<!-- TODO: Add Linyu to this chapter -->
 
   Mel awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Lif at the front door watching hae garden in the light while Kip lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind, their thirst quenched by millions of deafening droplets hanging in the air. But there were hints of betrayal in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up and looked toward Lif at the door who was looking back at the two of them with tears in hae eyes.
 

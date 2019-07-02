@@ -95,7 +95,7 @@
 
 	The people returned to talking, and Casra began to approach a fire when a man from the back started cackling.
 
-	"Fate be gentle! Hahaha" He laughed to the wind as he reclined next to the fire. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A woman, a bit younger than him and dressed in a tight black robe, tugged on his arm to stop but he twisted free of her grasp and pushed her away.
+	"Fate be gentle! Hahaha" He laughed to the wind as he reclined next to the fire. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A young woman, quite a bit younger than him and dressed in a tight black robe, tugged on his arm to stop but he twisted free of her grasp and pushed her away.
 
 	He stepped forward into the center and continued, "Casra, you fool. Lissa grants the wishes of those who earn the right to have them. These slaves, you call them, they're lazy and they're wicked. Lissa did what you were too weak to do."
 
@@ -131,9 +131,9 @@
 
 	"And yet you would humiliate me in front of hae? If you're going to take me, then get to it."
 
-	Ramne made a thunderous grunt, and ten others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them. Kip followed after hae but they were both stopped in their tracks by a long dagger held out by a woman twice Kip's weight in muscle - one of Ramne's allies.
+	Ramne made a thunderous grunt, and ten others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them with Kip following after, but they were both stopped in their tracks by a long dagger held out by a maman twice Kip's weight in muscle - one of Ramne's allies. The woman in black wasted no time running toward the warrior, screaming for hae to save the kaln.
 
-	Casra said to Ramne, "I hope your woman is as disappointed in you as I am."
+	Casra said to Ramne, "I hope she is as disappointed in you as I am."
 
 	He was expressionless as he bound Casra's unfighting arms behind hae.
 

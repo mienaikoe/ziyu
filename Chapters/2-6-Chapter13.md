@@ -26,9 +26,9 @@ Setting:
 
   Lin was silent on the walk home. Kip was walking next to hae, trying in vain to think of comforting things to say, but he held hae hand in the hopes that it would provide some comfort. He tried to meet the people in the group, but there were too many altogether.
 
-  "Kipnu," the woman called to him.
+  "Kipnu," a woman called to him.
 
-  Her robe had not quite dried yet and she was folding her hands to keep warm on their walk to Casra's safehouse. He looked back at her, and slowed to match her pace.
+  It was the young woman who had begged Ramne to stop, her black robes still drenched and her arms folded around her to keep warm. He looked back at her, and slowed to match her pace.
 
   "Yes, Um.."
 
@@ -36,9 +36,9 @@ Setting:
 
   "Ginnu. You're the one bound to Ramne?"
 
-  "We are not bound, we're business partners."
+  "We're... partners."
 
-  "And yet he left you behind?"
+  "Is that why he left you behind?"
 
   She went silent, and changed the subject.
 
@@ -52,7 +52,7 @@ Setting:
 
   She paused, not having thought of that possibility.
 
-  "I didn't think so," said Kip. "Look, I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne is not the kind of man who would hesitate to kill you if he had to. You have to distance yourself from him and anyone else who might try to protect Lissa."
+  "I didn't think so," said Kip. "Look, I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Lissa."
 
   "He just likes hae for the money. He wouldn't touch me."
 
@@ -60,17 +60,25 @@ Setting:
 
 	"I sell the goods. I know the streets of Yansha like the skin on my knees."
 
-  "You're expendable to him. Just like Casra was when Lissa came along."
+	"Does he pay you well?"
 
-	She kept walking with her head faced forward, and a pout on her lips.
+	"That's none of your business."
+
+  "Sounds like he has the better end of the deal."
+	
+	"We have an arrangement. We're both happy."
+
+	"What do you think he'll do the minute someone else comes along? What did he do to Casra when Lissa came along."
+
+	Ginnu kept walking with her head faced forward, and a pout on her lips.
 
 	"Kipnu," she asked, "Why do you care so much about Casra? Ram and I have met every tribe leader on this island and no one has ever mentioned your name."
 
-	"There's something here. A key to unlock something bigger than any of us can imagine."
+	"There's something here. A key to something bigger than any of us can imagine."
 
-	"Are you high or something?"
+	"You high or something?"
 
-	He sighed. "You wouldn't understand."
+	He sighed. "It's hard to explain."
 
 	They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and thinking about what sort of torture Lissa had planned for Casra.
 
@@ -88,7 +96,7 @@ Setting:
 
 	"You're right, Linyu. But there are many ways to help that don't put your life in danger."
 
-  The firewood had been gathered, and a flame started. Ginnu was itching to build friendships, so she asked them, "Hey you two, did Casra ever keep any spices here?"
+  The firewood had been gathered, and a flame started. Ginnu was itching to make friends, so she asked them, "Hey you two, did Casra ever keep any herbs here?"
 
   Linyu said, "A few."
 
@@ -126,15 +134,15 @@ Setting:
 
 	"Lin, get me some rope," said Setre.
 
-	Kip was perplexed, "What's this all about?"
+	"What's this all about?" Kip demanded.
 
-	"Ginnu is a spy," she responded, struggling to keep Ginnu still.
+	"Ginnu is a spy," she responded, struggling to keep her still.
 
 	Kip was growing tired of secrets. *How many hidden identities are people keeping on this island?*
 
 	"Everyone has at least one," Setre said, and he suddenly realized that his question hadn't stayed fully in his head.
 
-	Linyu scurried up the ladder and quickly came back with a handful of strong rope - a thicker variant of the material used for their clothing. Setre first bound Ginnu's wrists, and then hae feet, and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
+	Linyu scurried up the ladder and quickly came back with a handful of strong rope - a thicker variant of the material used for their clothing. Setre bound Ginnu's wrists and ankles and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
 
 	"Save your tears."
 
@@ -146,17 +154,19 @@ Setting:
 
 	Setre was incredulous. "By Ara, are you thick?"
 
-	Kip was getting frustrated. "Look, we'll just leave her here and come back for her when we've taken the Shadestead."
+	Kip was getting frustrated. "Look, we'll just leave her here and come back for her when we've taken over."
 
-	"And then what? She's lives the rest of her life as a prisoner? As long as Kanosin exists in this world, she will do whatever it takes to get it."
+	"And then what? She's lives the rest of her life as a prisoner? As long as Kanosin exists in this world, peddlers like her will do whatever it takes to keep it alive."
 
-	Ginnu interrupted her, "You aren't such an angel yourself, Guardian. Unlike you my hands are clean of all this madness. I'm just trying to escape it."
+	Ginnu interrupted her, "I'm just trying to escape this madness. Unlike you, Guardian Setre."
 
-	Setre lifted her by her shirt and she shouted in pain, but Setre maintained her hold and said, "And unlike you, I'm trying to stop it."
+	Setre lifted her by her shirt and she shouted in pain, but Setre maintained her hold. 
+	
+	"And unlike you, I'm trying to stop it."
 
-	Kip put himself in between them and shouted, "Setre, what's gotten into you? Let's figure this out later. For now, Ginnu, we'll have to keep you tied up. I'm sorry it had to be this way, but Setre is right about the danger you pose."
+	Kip put himself in between them and shouted, "Setre, what's gotten into you?"
 
-	Ginnu pouted and sank into the floor. Kip felt pity for her, but Setre was not persuaded.
+	Ginnu pouted and sank into the floor. Kip felt pity for her, but Setre was not amused.
 
 	Kipnu suggested to the group, "I'll take her to the fire. When I come back, we'll talk."
 
@@ -182,7 +192,21 @@ Setting:
 
 	Setre was drawing a map on the ground with some charcoal and a lantern, too engrossed to greet Kip as he came back in.
 
-	He squatted down to her level and said the first word, "Setre. When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
+	"What was that about, Setre?"
+
+	"Do you want to win this or not?"
+
+	"She doesn't pose a threat to us."
+
+	"Yet. The minute she knows what you're up to, she will run."
+
+	"Look. She can't go back to the shadestead or she'll blab about you, and she can't just stay tied up here in the cold. Leave her with me."
+
+	She sighed. "You better keep your eyes on her."
+
+	"You know I will."
+
+	He squatted down to her level and reset his focus, "Setre. When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
 
 	"Casra kept this plan from you because you were completely unexpected. You came out of nowhere, you saved Linyu, and got caught up in this war of secrets. But now when I look at you, leading a band of hundreds, picking up where Casra left; I can tell thi made the right choice to pull you out of Lissa's reach."
 
@@ -300,14 +324,12 @@ Setting:
 
 	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as families bound and unbound, and some were individuals who had heard stories of Ulukoma from people they knew. The younger ones only knew that Ulukoma was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
 
-	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them.
+	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them. He helped Ginnu hold it in her tied hands and keep it on her ear.
 
-	"Mamen, men, women. Linyu is about to demonstrate something that will be crucial to our cause tonight. What I've given each of you is called a listener. Casra made them here, and entrusted them to hae kaln and myself. Now, I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
+	"Mamen, men, women. Linyu is about to demonstrate something that will be crucial to our plan. What I've given each of you is called a listener. Casra made them here, and entrusted them to hae kaln and myself. Now, I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
 
 	Kip sent a nod in Linyu's direction which thi confirmed and moved to the transmitter box, connecting the battery to it with well-worn wires of steel. With a clear of the throat, as hae mother had done, thi began to sing the same song that Casra had sung to Kip. He watched as the group slowly began to comprehend what they were hearing, their faces lighting up with awe as they looked back at Kipnu. Casra's presence was filling the air like an invisible spirit of knowledge. He looked back at Linyu who for only a moment cracked a small smile.
 
-	Ginnu paced quickly toward him without a trace of the doubt she had before. She asked, "How is this possible?"
+	Ginnu looked intently toward him without a trace of the doubt she had before. She asked, "How is this possible?"
 
-	Kip said, "The wind speaks."
-
-  Setre said, "And Ulu listens."
+	Kip told her, "The wind speaks. And Ulu listens."

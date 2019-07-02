@@ -7,15 +7,15 @@
 			- Kip goes out to check what's going on
 
 			- Finds a dark giant room
-			- Ramne is carrying an unconscious Penyi with a fall injury
+			- Ramne is carrying an unconscious Ginnu with a fall injury
 			- Ramne is alarmed by Kip's presence
 			- He also has a listener, but a bit smaller
 			- They talk and Ramne suspiciously hears something in his listener and leaves the two in a hurry.
 
-			- Kip asks Fanla for some tools to save Penyi
-			- Penyi goes into convlusions, but is saved by Kip's medical skill
+			- Kip asks Fanla for some tools to save Ginnu
+			- Ginnu goes into convlusions, but is saved by Kip's medical skill
 			- Kip uses kanosin to reduce swelling and pain
-			- He goes back to Fanla to ask her to take care of Penyi
+			- He goes back to Fanla to ask her to take care of Ginnu
 
 			- When Kip rises back into the armory, he smells smoke and hears a bunch of yells and can't find Fanla
 			- He peaks under the tent cover and sees unwounded bodies on the ground around the tent, and Setre + team with a cloth around their mouths pulling them out.
@@ -32,17 +32,17 @@
 ## Chapter 14
 
 
-	Kip paused the group in their walk toward the Shadestead, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him.
+	Kip paused the group in their quiet walk toward the Shadestead, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him. Huddled to his right was Ginnu, untied and shivering from the cold.
 
-	"From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get out. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one we could all be captured, so do not let this happen. And finally, Do Not Kill; I repeat Do Not Kill unless they are endangering your life or your partner's life. Setre will be there and she cannot be harmed. Everyone clear?"
+	"From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same. We will only be able to see things from above, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one, they will be able to predict our movements so don't let this happen. And finally, we are not here to kill, we are here to intimidate Lissa into giving up. Even if we have all of the weapons on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
 
 	"Yea," the said in a broken unison.
 
 	"Voices off, everyone clear?"
 
-	They nodded in a much clearer unison.
+	They made a gesture with their hands to signal a clearer yes.
 
-	"Stay here until you hear me through your listeners. I'll join you once the you begin. Good luck, everyone."
+	"Stay here until you hear me through your listeners. I'll join you once you begin. Good luck, everyone."
 
 	He put his arm around Lin and said, "Lead the way." Lin took him through the forest, ever closer to the fire until they came upon an old tree that was leaning due to shifting clay in the ground.
 
@@ -122,9 +122,9 @@
 
 	He noticed one of the eating guardians look to the side, and he quickly said, "Stop! Stop!" into the transmitter. They did, and the guardian went back to eating.
 
-	"Walk slower and spread out," he said. And they watched as the group followed his orders. Once they reached the back side of the armory, Kip addressed the most agile maman in the group, "Penyi, go in and survey the place. The rest of you, sit tight and get your bearings." Kip kept his eyes on the guardians, watching every move and thinking of contingencies in case they did catch on. Moments stretched longer and longer until Kip began to feel uneasy about the time it was taking to search a tent so small.
+	"Walk slower and spread out," he said. And they watched as the group followed his orders. Once they reached the back side of the armory Kip addressed them, "Two people go in and survey the place. The rest of you, sit tight and get your bearings." Kip watched them enter and then trained his eyes on the guardians, watching every move and thinking of contingencies in case they did catch on. Moments stretched longer and longer until Kip began to feel uneasy about the time it was taking to search a tent so small.
 
-	He asked Linyu, "What do you think is taking hae so long?"
+	He asked Linyu, "What do you think is taking them so long?"
 
 	Thi shrugged and kept watching the scene, but Kip was getting impatient.
 
@@ -146,73 +146,170 @@
 
 	Back on the ground, Kip took the rope off and followed the pathway the group had taken as quickly and quietly as they had. Nearing the group, he saw their listeners and remembered to put his own on.
 
-  "Hey, what's going on?" he asked them at a whisper.
+  "Hey, what's going on?" he asked Ginnu at a whisper.
 
-  A maman told him, "Not sure. Penyi went in, then... nothing."
+  She told him, "Not sure. Fanla and Penyi went in, then... nothing."
 
-  "I'm going in. Someone come with me to be a messenger in case something goes wrong."
+  "I'm going in. Come with me to be a messenger in case something goes wrong."
 
-  "I'll go," whispered a woman. She came forward on all fours to quiet her movements, introducing herself, "I am Fanla, a tracker from Heiko."
+	"Me? Why?"
 
-  She was young, likely the kind who had come to Ulukoma on a whim. But fear was not apparent in her expressions - only excitement.
+	"You know this place better than anyone."
 
-  "Ok Fanla. Follow a few paces behind me. If I get hit, you run, got it?"
+	"No no no. I can't."
 
-  "Got it," She said.
+	"Why?"
 
-  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. His ears listening for any sign of trouble from the fire or from Lin, he began surveying the tent a little closer than he had before. All was blue and still, with no sign of Penyi. *Thi didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Fanla to come in.
+	"I'm not a fighter or anything. I wouldn't be helpful."
+
+	"Good thing we're not here to fight, then."
+
+  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. His ears listening for any sign of trouble from the fire or from Lin, he began surveying the tent a little closer than he had before. All was blue and still, with no sign of the two. *They didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Ginnu to come in.
 
   They both slowly walked around the room, looking at the weapons that were stockpiled - daggers, spears, swords, bows and arrows. All hardened and sharpened to an infinitesimal edge.
 
-	"Hey, look at this," Fanla beckoned from another side of the tent.
+	"Hey, look at this," Ginnu beckoned from another side of the tent.
 
 	Kip shot a glance toward her feet where a small wooden door lay among the thin damp leaves. Its polished hardware was too precise to be made in Ulukoma, but its messy grease and handle reminded them of where they were.
 
-	"Maybe this is where Penyi went," she said.
+	"Maybe this is where they went," she said.
 
-	"Maybe," he said, taking up two daggers and handing one to Penyi. Her hands took the dagger as she looked up with concern for Kipnu, but he could do nothing to quell it - he had to find Fanla. Kip kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for two leading into the darkness.
+	"Maybe," he said, taking up two daggers and handing one to Ginnu. Her hands took the dagger as she looked up with concern and confusion, but he could do nothing to quell it - they had to find the missing scouts. Kip kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for one leading into the darkness.
 
-	"I'll go down," he said. "Start bringing people in one-by-one. If you hear any trouble, bring some people and come get me."
+	"I've never seen this before," she said.
 
-	"Got it," she said.
+	"This place gets stranger the longer I'm here," he responded.
 
-	With his hands against the wall, Kip made his way into the tunnel with only the blue light on his chest to light his way. After only a few steps, he came upon a sharp descent in the ground and he could no longer see a reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. He covered his marking with his right arm and readied his dagger in the other while watching as the mysterious person came closer. They stopped immediately below him, several strides down and removed their shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, looking at a body lying on the floor in front of him.
+	After a pause, she said. "Let me go first. I won't raise suspicion."
+	
+	"After you, then."
 
-	He murmured to himself, "Now who might you be?"
+	With their hands against the wall, they made their way into the tunnel with only the blue light on Kip's chest to light the way. After only a few steps, Ginnu suddenly and silently vanished, followed by a loud thump that reverberated in a space bigger than he could imagine.
 
-	He reached for an arm and picked the body up. It was a maman. *Penyi. You must have fallen.*. Once Ramne was far enough away, Kip put the dagger in his pouch and started his search for the ground again, slowly swinging his leg off the ledge. On the third swing, he broadened his swing, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm and proceeded to move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found the ground - a desert of grit and dust. In the distance, he could still see the remnants of Ramne's blue light and the shadow of Penyi on his shoulder. *I can catch up*. He rubbed his toe to ease the pain and redistribute the water in his skin, and then took off after Ramne. With every silent step, the gap between them was closing, and the light of Ramne's chest grew brighter. The anticipation of a fight grew in him. *A man like that deserves what's coming to him*. When Kip had come within ten paces, Ramne stopped and turned in suspicion, but he was too late to fend off any sort of attack. Instead he threw Penyi at him and ran a few paces forward to keep the distance between himself and his would-be assailant.
+	"Ginnu?!" he yelled out to her, but there was no answer.
+	
+	He moved a little closer and came upon a sharp cut off in the ground where there was no more reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. With his right arm, he covered his blue mark, readying his dagger in the other and watched as the mysterious person came closer. The figure stopped immediately below him, several strides down and removed a shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, examining at the body lying on the floor in front of him.
 
-	"Who're you? How'd you get down here?"
+	"Now who might you be?" He murmured to himself, reaching for her arm. His eyes grey wider in an instant.
 
-	Kip dropped the dagger briefly to catch Penyi and lay hae down as quickly and gently as he could. He reached for the dagger, but couldn't find it anywhere. Out of options, he turned toward Ramne and took a defensive stance.
+	"Ginnu? What are you doing down here?"
 
-	"Kip?! Well dammit, I thought you'd never come," he said.
+	She didn't answer, unconscious.
+
+	"Welcome to the real Ulukoma, I guess," he said to her unhearing ears. He lifted himself, turning his back, and walked backward the way he came.
+
+	Once Ramne had created enough distance, Kip hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
+	
+	He rubbed his toe to ease the pain and then moved to Ginnu who still lay where Ramne found her.
+
+	Once he was sure that Ramne was gone, Kip looked back down at Ginnu and felt for her pulse. *Still ticking*. Thi began to stir and moan, and Kip immediately turned his focus to her.
+
+	"Hey it's me, Kipnu. Stay as still and quiet as you can," Kipnu told a barely-conscious Ginnu. He could see bad scrapes and bruises on her shoulder and on the side of her head.
+
+	"How is your head? Does it hurt?" he asked has he gently touched the wound.
+
+	"Ahhhh," she groaned.
+
+	"Ok. I can work with that."
+
+	He took off his pouch and removed the dagger from it and gently raised Ginnu's head to place the pouch underneath. With graceful and deliberate touches, he checked the head injury and found that a piece of her skull had fractured just forward of her right ear, and fluid was building up at the site of the fracture.
+
+	"UNNHNN!" She yelled in pain as he pressed gently at the base of her skull.
+
+	*Shit*
+
+	He took out the dagger with his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, dermal fluid, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
+
+	"Unnhhhh!!" She exclaimed, now audibly afraid.
+
+	"You'll be fine, Ginnu. Just stay strong and quiet for me."
+
+	He glanced at where he had seen Ramne before to find nothing but the dark and then reassured her one more time with a hand squeeze before running back toward the pegs and the hole he entered from. Inside, Fanla and Penyi were busy fetching weapons and passing them under the tent.
+
+	"Fanla? Penyi? Where did you go? We've been waiting for you," he whispered loudly.
+
+	Fanla replied, "We hid because someone came in looking for us."
+
+	He hasitated for a moment and then regained his train of thought.
+
+	"I need a hot tip, have you seen one?"
+
+	Fanla approached him and didn't seem to have heard what he requested, "What have you been doing down there? Linyu has been going crazy on the listener."
+
+	*Why didn't I hear him?*
+
+	"What do you mean?"
+
+	"Thi saw some figures running from the tent and is certain one of them was Casra."
+
+	"Dammit."
+
+	"Well shouldn't you go after them?"
+
+	"I can't do that right now. Ginnu is down here and she's fallen pretty badly. I need a hot tip to cauterize."
+
+	She gasped and then darted to a corner of the tent where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw some Kanosin and a hot tip in this bag."
+
+	Before he could turn back around, she asked him, "What should I tell the others?"
+
+	"Tell them to stay hidden and Find Setre. Tell her what you told me."
+
+	"Got it," she said and darted off.
+
+	From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Ginnu was having a seizure.
+
+	"No no that's too soon!"
+
+	He sprinted in the dark toward the sounds and straddled hae braced hae head with his right arm.
+
+	"Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
+
+	"Come On!" He yelled quietly.
+
+	He glanced at the wound and saw that the swelling had come down but blood was still draining out steadily.
+
+	*She's bleeding from an artery under the broken bone.*
+
+	He opened the pouch that Fanla had given him and used his fingers to examined its contents. *Pipe...Kanosin leaf...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
+
+	He took one more observation of her vitals while repeatedly pressing the plunger to warm it up, "convulsions continue; pulse fast; pressure high; temperature high."
+
+	The plunger was hot and he first rubbed it across his small finger while wincing in pain to quickly sanitize, and then wedged it into the space her fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
+	He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kip stopped and jumped off of Ginnu and away from an arm that had tried to grab him in the darkness. It was Ramne,by the looks of his markings, pacing toward him.
+
+	"Who're you? How'd you get down here?" Ramne asked.
+
+	Kip took a defensive stance and held the blade tightly in the light so Ramne could see.
+
+	"I need to help Ginnu," Kip asserted.
+
+	"Kip?! Well dammit, I thought you'd never come."
 
 	Kip didn't respond, but held his stance and his look of disdain.
 
-	"Oh I get it. You're the hero come to rescue the weak. Bout time you woke up, man. No heroes here; just kanoheads. Selfish, miserable, fucked-up kanoheads."
+	"Oh I get it. You're the hero come to the rescue. Bout time you woke up, man. No heroes here; just kanoheads. Selfish, miserable, fucked-up kanoheads."
 
 	"*You* made them that way. You don't have to keep doing this."
 
-	He snickered under his gritty breath and took a few steps closer, letting the toe of his hard reed boot shove into Penyi's lifeless shoulder. Kip didn't budge.
+	He snickered under his gritty breath and took a few steps closer to the table, resting his weight on Ginnu's lifeless arm. Kip quickly glanced at her and noticed a large bruise on the corner of her head. But he didn't dare budge to look further.
 
-	Ramne said, "You think I'm any different than anyone else here? You think one of my hearts still cares about right and wrong? If it weren't me out there keeping the world full of Kano, someone else would be there to fill my shoes. I'd rather be the one reaping the benefits. Doesn't bother me one bit how it comes."
+	Ramne said, "You think I'm any different than anyone else here? You think either of my hearts still cares about right and wrong? If it weren't me out there keeping the world full of Kano, someone else would be doing it. I'd rather be the one reaping the benefits. Doesn't bother me one bit how they come."
 
-	"And what would Linyu think about it?"
+	"Look, I'm not here to argue about how awful you are. Ginnu needs help or she'll die."
 
-	"Why the hell would I–"
+	"She's already dead, Kip. What does she care?"
 
-	His tone turned remained uncaring.
+	He glanced at her again to check the veracity of his statement. Blood continued to drip out of the wound.
 
-	"You don't know what happened here, Kip. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. They chose to abandon everyone while Set and I tried to save it from burning to the ground."
+	Ramne continued, "You think you know what happened here, don't you, Kip. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Set and I tried to save it from burning to the ground."
 
-	Ramne leaned over Penyi and Kip, holding his chest above them with his palms on his knees. He took a closer look at Kip in the light of his decorated chest.
+	Ramne leaned over Ginnu, his chest above hers with his palms on his knees. He took a closer look at Kip in the light of his decorated body.
 
 	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can."
 
 	Kip met his gaze with conviction in his eyes. "When Ara fades from the sky and Lissa has killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
-	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the darkness. They simply... disappear."
+	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the darkness."
 
 	Rising to his right, he turned and stared comfortably into the void as if speaking to an invisible friend.
 
@@ -234,93 +331,23 @@
 
 	Ramne backed away slowly from Kip, their eyes fixated on each other, and then he turned to fade into the infinite abyss.
 
-	Once he was sure that Ramne was gone, Kip looked back down Penyi and felt for hae pulse. *Still ticking*. Thi began to stir and moan, and Kip immediately turned his focus to hae.
+	Without pause, Kip once again dropped to Ginnu and took an observation, "Unconscious; pulse high; pressure high; temperature still high; breathing...stopped"
 
-	"Stay still, don't move," Kipnu told a barely-conscious Penyi. He could see bad scrapes and bruises on hae shoulder and on the side of hae head.
+	He scrambled to find the hot tip in the dust and caught it with a finger. The cauterizing procedure was nearly instant, as he had been rehearsing it in his head while talking to Ramne.
 
-	"How is your head? Does it hurt?" he asked has he gently touched the wound.
+	*Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the pipe and a spiral of kanosin leaves. He set the leaves in the perfectly-sized hole of the pipe and took only a few presses to top off the hot tip. The leaves danced and shriveled away from the heat as the hot tip was plunged into them, and he stopped when he saw embers.
 
-	"Ahhhh." Thi groaned.
-
-	"Ok. I can work with that."
-
-	He took off his pouch and gently raised Penyi's head and shoulders much to hae protest. With graceful and deliberate touches, he checked how bad the head injury and found that a piece of hae skull had fractured underneath.
-
-	"UNNHNN!" Thi yelled in pain.
-
-	*Shit*
-
-	He scrambled to look for the dagger he had dropped, but couldn't find it anywhere. *Ramne...He must have picked it up.*
-
-	"I'll be right back," he said.
-
-	"Unnhhhh!!" Thi exclaimed. *Brain damage.*
-
-	He slid his bag under hae head and reassured hae one more time before ran back toward the pegs and the hole he entered from.
-
-	He whispered loudly from the opening, "Fanla, hand me a knife."
-
-	She was in the middle of passing daggers under the tent, but she came back to the hole and whispered, "What have you been doing down there? Linyu has been going crazy on the listener."
-
-	*Why didn't I hear hae?*
-
-	"What do you mean?"
-
-	"Thi saw some figures running from the tent and is certain one of them was Casra."
-
-	"Dammit."
-
-	"Well shouldn't you go after them?"
-
-	"It's Penyi... Thi's fallen pretty badly. I need to make an incision."
-
-	She gasped and then darted to a corner of the tent where she picked up a dagger and a pouch.
-
-	She immediately handed them to Kipnu and said, "There's Kanosin in there. For the pain."
-
-	Before he could turn back around, she asked him, "What should I tell the others?"
-
-	"Tell them to stay hidden and Find Setre. Tell her what you told me. She'll know what to do."
-
-	"Got it," she said and darted off.
-
-	From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Penyi was beginning convulsions.
-
-	"No no that's too soon!"
-
-	He sprinted in the dark toward the sounds and straddled hae braced hae head with his right arm.
-
-	"Fanla!" He yelled for her, but she couldn't hear.
-
-	He held the knife in his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, dermal fluid, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
-
-	"Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
-
-	"Come On!" He yelled.
-
-	He glanced at the wound and saw that the swelling had come down but blood was still coming out of the wound.
-
-	*Thi will lose too much blood if I don't bring hae pulse down... Kanosin?*
-
-	He opened the pouch that Fanla had given him and used his fingers to examined its contents. *Pipe...Kanosin Flowers...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
-
-	He took one more observation of hae vitals while repeatedly pressing the plunger to warm it up, "convulsions stopped; unconscious; pulse fast; pressure high; temperature normalized; breathing normalized," and then removed the pipe and a kanosin flower for preparation.
-
-	*I can't believe I'm doing this.* He finished the pipe and then topped off the hot tip again and placed it firmly against the dried pistils of the flower. They danced and shriveled away from the heat and then started to form embers.
-
-	"Here goes," he said out loud, and proceeded to inhale the Kanosin. He took a moderately sized inhale and quickly stopped closer to Penyi to breathe it into hae mouth during inhale. Thi didn't respond. Kip took another drag from the pipe and breathed it into hae mouth, and this time thi shriveled hae face and started to cough lightly.
-
-	"Penyi!" He laughed, but then remembered that he couldn't stop yet.
-
-	He warmed up the hot tip again and moved it toward the incision he had made to relieve the pressure on hae brain. With three gentle presses he cauterized the wound while Penyi made wincing faces but took the pain.
-
-	Kip once again took an observation, "Conscious; pulse normalizing; pressure normalizing; temperature normal; breathing... coughing. Welcome back, Penyi."
+	"Here goes," he said out loud, and proceeded to inhale the Kanosin. He took a moderately sized inhale and quickly stopped closer to Ginnu to push it into her lungs. She didn't respond. Kip took another drag from the pipe and breathed it into her mouth.
+	
+	<!-- TODO: Does Ginnu die? -->
+	
+	 and this time he could feel her pulse slowing and softening. A wave of relief overcame him, but then remembered that he couldn't stop yet. He pressed on her lungs to force air in and out of them and 
 
 	Thi opened hae eyes the slightest bit like two doors slightly ajar with a blue light seeping through.
 
-	"Hey Penyi, can you hear me?"
+	"Hey Ginnu, can you hear me?"
 
-	Penyi tried to nod, but winced in pain and moved hae arm toward the wound on hae head. Kip gently pressed hae shoulder, glad that thi could still move.
+	Ginnu tried to nod, but winced in pain and moved hae arm toward the wound on hae head. Kip gently pressed hae shoulder, glad that thi could still move.
 
 	He asked hae some questions to get hae reoriented, "Do you know who I am?"
 
@@ -330,7 +357,7 @@
 
 	Hae let out a breathing whimper, and his heart sank for hae.
 
-	"Penyi, you've suffered some memory loss, so you might not be able to remember certain things. You will eventually re-learn them. For now you are safe and you should do what you can to rest."
+	"Ginnu, you've suffered some memory loss, so you might not be able to remember certain things. You will eventually re-learn them. For now you are safe and you should do what you can to rest."
 
 	Thi took his hand into hae own and managed to make what Kip interpreted to be smile.
 
@@ -382,7 +409,7 @@
 
 	"Ulu. They ran toward Ulu," she said in a hurried tone.
 
-	"I'm going after them. Take care of Setre and Penyi."
+	"I'm going after them. Take care of Setre and Ginnu."
 
 	Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
 
