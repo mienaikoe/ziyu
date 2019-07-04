@@ -181,13 +181,13 @@
 	"This place gets stranger the longer I'm here," he responded.
 
 	After a pause, she said. "Let me go first. I won't raise suspicion."
-	
+
 	"After you, then."
 
 	With their hands against the wall, they made their way into the tunnel with only the blue light on Kip's chest to light the way. After only a few steps, Ginnu suddenly and silently vanished, followed by a loud thump that reverberated in a space bigger than he could imagine.
 
 	"Ginnu?!" he yelled out to her, but there was no answer.
-	
+
 	He moved a little closer and came upon a sharp cut off in the ground where there was no more reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. With his right arm, he covered his blue mark, readying his dagger in the other and watched as the mysterious person came closer. The figure stopped immediately below him, several strides down and removed a shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, examining at the body lying on the floor in front of him.
 
 	"Now who might you be?" He murmured to himself, reaching for her arm. His eyes grey wider in an instant.
@@ -199,7 +199,7 @@
 	"Welcome to the real Ulukoma, I guess," he said to her unhearing ears. He lifted himself, turning his back, and walked backward the way he came.
 
 	Once Ramne had created enough distance, Kip hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
-	
+
 	He rubbed his toe to ease the pain and then moved to Ginnu who still lay where Ramne found her.
 
 	Once he was sure that Ramne was gone, Kip looked back down at Ginnu and felt for her pulse. *Still ticking*. Thi began to stir and moan, and Kip immediately turned his focus to her.
@@ -220,7 +220,7 @@
 
 	He took out the dagger with his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, dermal fluid, and cerebral fluid formed a rivulet in the dust while Kip put the knife far away and continued to monitor hae pulse.
 
-	"Unnhhhh!!" She exclaimed, now audibly afraid.
+	"Am I dying?" She asked, now slightly more awake and audibly afraid.
 
 	"You'll be fine, Ginnu. Just stay strong and quiet for me."
 
@@ -248,7 +248,7 @@
 
 	"I can't do that right now. Ginnu is down here and she's fallen pretty badly. I need a hot tip to cauterize."
 
-	She gasped and then darted to a corner of the tent where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw some Kanosin and a hot tip in this bag."
+	She gasped and then darted to a corner of the tent where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw a vial of Kanosin and a hot tip in this bag."
 
 	Before he could turn back around, she asked him, "What should I tell the others?"
 
@@ -260,7 +260,7 @@
 
 	"No no that's too soon!"
 
-	He sprinted in the dark toward the sounds and straddled hae braced hae head with his right arm.
+	He sprinted through the darkness toward the sounds and straddled hae braced hae head with his right arm.
 
 	"Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
 
@@ -270,12 +270,12 @@
 
 	*She's bleeding from an artery under the broken bone.*
 
-	He opened the pouch that Fanla had given him and used his fingers to examined its contents. *Pipe...Kanosin leaf...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
+	He opened the pouch that Fanla had given him and used his fingers to examine its contents. *unloaded syringe, Kanosin vial...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
 
-	He took one more observation of her vitals while repeatedly pressing the plunger to warm it up, "convulsions continue; pulse fast; pressure high; temperature high."
+	He took one more observation of her vitals while repeatedly pressing the plunger to warm it up, "convulsions; pulse fast; pressure high; temperature high."
 
 	The plunger was hot and he first rubbed it across his small finger while wincing in pain to quickly sanitize, and then wedged it into the space her fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
-	He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kip stopped and jumped off of Ginnu and away from an arm that had tried to grab him in the darkness. It was Ramne,by the looks of his markings, pacing toward him.
+	He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kip stopped and jumped off of Ginnu and away from an arm trying to grab him out of the darkness. It was Ramne, by the looks of his markings, pacing toward him.
 
 	"Who're you? How'd you get down here?" Ramne asked.
 
@@ -291,7 +291,7 @@
 
 	"*You* made them that way. You don't have to keep doing this."
 
-	He snickered under his gritty breath and took a few steps closer to the table, resting his weight on Ginnu's lifeless arm. Kip quickly glanced at her and noticed a large bruise on the corner of her head. But he didn't dare budge to look further.
+	He snickered under his gritty breath and took a few steps closer, kicking Ginnu's sprawled lifeless leg out of the way. Kip quickly glanced at her and saw the blood still trickling out of the wound. But he didn't dare budge to look further.
 
 	Ramne said, "You think I'm any different than anyone else here? You think either of my hearts still cares about right and wrong? If it weren't me out there keeping the world full of Kano, someone else would be doing it. I'd rather be the one reaping the benefits. Doesn't bother me one bit how they come."
 
@@ -309,7 +309,7 @@
 
 	Kip met his gaze with conviction in his eyes. "When Ara fades from the sky and Lissa has killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
-	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the darkness."
+	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the dark."
 
 	Rising to his right, he turned and stared comfortably into the void as if speaking to an invisible friend.
 
@@ -317,63 +317,57 @@
 
 	"How do you know about that?"
 
-	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power." He smiled and paused to change the subject. "You know what, Kip, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
+	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power."
 
-	"Go to hell."
+	"People like you bring nothing but misery to the world. You make me sick."
+
+	"You know what, Kip, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
+
+	"Get the fuck out of here."
 
 	"Just think about it. This'll be the only place left when the darkness falls and you mainlanders kill each other in the chaos."
 
-	Kip stood up to challenge him and said, "We aren't like you!"
+	Kip walked closer to challenge him and said, "We aren't like you!"
 
-	Ramne smirked and stood up to face him again.
-
-	"Not yet," he said.
+	Ramne smirked in his face and said, "Not yet."
 
 	Ramne backed away slowly from Kip, their eyes fixated on each other, and then he turned to fade into the infinite abyss.
 
 	Without pause, Kip once again dropped to Ginnu and took an observation, "Unconscious; pulse high; pressure high; temperature still high; breathing...stopped"
 
+	"Dammit, Ramne," he said under his breath.
+
 	He scrambled to find the hot tip in the dust and caught it with a finger. The cauterizing procedure was nearly instant, as he had been rehearsing it in his head while talking to Ramne.
 
-	*Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the pipe and a spiral of kanosin leaves. He set the leaves in the perfectly-sized hole of the pipe and took only a few presses to top off the hot tip. The leaves danced and shriveled away from the heat as the hot tip was plunged into them, and he stopped when he saw embers.
+	*Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the syringe and glowing vial. It took only a few presses to warm the hot tip enough to sanitize the needle. He loaded the syringe with the vial and set the puncture lever to let the kanosin enter the needle. *It's ready.* He pulled her shirt down to expose her chest and plunged the kanosin into it. The blue streaks radiated across her pallid skin as they had for Kip a single night ago. Her eyes gazed forward and inward, sitting lifeless in the cradles of a face that had been alive moments ago. Kip watched as they dilated ever so slightly, but didn't move.
 
-	"Here goes," he said out loud, and proceeded to inhale the Kanosin. He took a moderately sized inhale and quickly stopped closer to Ginnu to push it into her lungs. She didn't respond. Kip took another drag from the pipe and breathed it into her mouth.
-	
-	<!-- TODO: Does Ginnu die? -->
-	
-	 and this time he could feel her pulse slowing and softening. A wave of relief overcame him, but then remembered that he couldn't stop yet. He pressed on her lungs to force air in and out of them and 
+	He checked her vitals again, "Unconscious. Temperature lower. Pulse...No no no!"
 
-	Thi opened hae eyes the slightest bit like two doors slightly ajar with a blue light seeping through.
+	He slipped behind her as he had for Linyu and began to compress her hearts. No response. *She lost too much blood. I need to transfuse.*
 
-	"Hey Ginnu, can you hear me?"
+	The syringe showed some signs of dulling but he carried on, plunging it into his own arm to fill the vial with blood. Pressing his own puncture wound against his leg, he found a very narrow artery in her arm and filled it with the contents of the vial. Her shirt became a dressing for her wound while he once again assumed his position behind her, trying desparately to pump her blood.
 
-	Ginnu tried to nod, but winced in pain and moved hae arm toward the wound on hae head. Kip gently pressed hae shoulder, glad that thi could still move.
+	"You will not die on me. Not today," he said into her unhearing ear.
 
-	He asked hae some questions to get hae reoriented, "Do you know who I am?"
+	"Kipnu!" He heard Fanla's voice calling from above.
 
-	Thi looked at him with determined eyes, but did not say a word.
+	"Not now!"
 
-	"Can you speak?"
+	"The shadestead is on fire!"
 
-	Hae let out a breathing whimper, and his heart sank for hae.
+	"I said not now!"
 
-	"Ginnu, you've suffered some memory loss, so you might not be able to remember certain things. You will eventually re-learn them. For now you are safe and you should do what you can to rest."
+	He moved out from under Ginnu and picked up the needle again, jabbing it into the same wound, yelling in pain and frustration. He removed the bloody dressing and found the narrow vessel again. Her question weighed on him heavily. *"Am I dying?"* He heard it echo in his mind as he crawled back under her and counted his compressions on her hearts.
 
-	Thi took his hand into hae own and managed to make what Kip interpreted to be smile.
+	Fanla called to him again, "We're pulling people out of the tent. They're all unconscious. We need your help."
 
-	"A smile already? You're a fighter," he said.
+	"Let them die!" He said in a fit of rage.
 
-	*Need to get moving*
+	Exasperated, Fanla left Kip to grieve and went to help the others on the surface. After 80 presses with no pulse or breathing, he stopped and slowly removed Ginnu's body from his own. He looked into her eyes once more, both of their chests illuminating the space between life and death.
 
-	"I have to go, ok?" Thi made a concerned look and breathed heavily as if to speak, but only a punctuated breath took the air.
+	"I'll come back for you," he told her, wishing he could be certain. An overwhelming air of failure welled up in him, but he pushed it down and forced himself to run away.
 
-	"It's ok. I'll send a couple others down here to look after you and bring you some water. Just rest for now."
-
-	Thi brought haeself to trust his plan and then loosened hae grip on his hand. Slowly, he stood up with hae hands still wrapped around his own, feeling a strange connection with this maman.
-
-	"I'll come back for you after. I promise," he said longingly, and then turned back to face the direction of Fanla and the others. He spotted some mild hallucinations in the dark, and his emotions were rapidly waxing and waning. "Must be the Kanosin," he said to himself, and kept going.
-
-	On the way up the strange pegs, he caught the faint odors of wood and kanosin smoke hanging in the air. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
+	He caught the faint odors of smoke hanging in the air on the way back up. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
 
 	"Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the tent carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance from the tent staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
 
@@ -417,7 +411,7 @@
 
 	Kip ran into the darkness, exhausted but determined to save Casra.
 
-	The trees were transforming as he ventured into the dark. From giant pillars of reflected fire to silent phantoms looming in the dark. The darkness often led him into trees, discovered only by the sudden absence of echoes. He searched for any faint sign of a horizon through the darkness, but none was visible. His feet began to belabor him, and his mind raced with imaginings of being found and killed by lurkers in the dark, or just getting lost and dying in that impenetrable black. Slowing to avoid hitting anything, he looked upward toward the sky to search for the red dots that he had seen up in the treetops with Linyu, but the sky was obscured by the treetops.
+	The trees were transforming as he ventured into the dark. From giant pillars of reflected fire to silent shadows looming over him. The darkness often led him into trees, discovered only by the sudden absence of echoes. He searched for any faint sign of a horizon through the darkness, but none was visible. His feet began to belabor him, and his mind raced with imaginings of being found and killed by lurkers in the dark, or just getting lost and dying in that impenetrable black. Slowing to avoid hitting anything, he looked upward toward the sky to search for the red dots that he had seen up in the treetops with Linyu, but the sky was obscured by the treetops.
 
 	*"Lin...Lin..."* Setre's murmurs passed through the ears of his mind, and confused him even more. *Was Setre hallucinating? I haven't heard anything on the listener. But I am pretty far from them now.*
 
@@ -435,7 +429,7 @@
 
 	"Have you come to kill me too, Kipnu?" Lissa asked.
 
-	Kip lunged, but Lissa was faster with hae dodge, and Kip fell to the ground. Before he could get up, thi drew a short sword to his neck.
+	Kip lunged, but Lissa was faster with hae dodge, and Kip fell to the ground. Before he could get up, thi drew hae dagger to his neck.
 
 	"Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
 
@@ -443,13 +437,13 @@
 
 	"Had I known you were a fucking psychopath, I would have kept you a slave. But instead, I let my guard down, and you destroyed everything and everyone I loved."
 
-	"It wasn't me," he pleaded. Thi turned him around and stabbed cleanly through the center of his left hand. While he was writhing in agony, thi raised her voice to overcome his.
+	"It wasn't me," he pleaded. Thi turned him around and stabbed cleanly through the center of his left hand. While he was writhing in agony, thi raised hae voice to overcome his.
 
 	"I loved my people. We loved our way of life. An Ara-worshipper like you would never understand."
 
-	He spoke back through gasps and cries, "They had to love you, they were your slaves."
+	He spoke back through gasps and cries, "Your people are slaves."
 
-	Thi twisted the blade and he screamed even more.
+	Thi applied pressure to his free arm against its natural bend as he struggled to keep both his hand and arm intact.
 
 	"And you under Ara are not guilty of the same? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into an addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
 
@@ -457,9 +451,9 @@
 
 	Thi leaned in close to him and wrapped hae hand around his throat.
 
-	"You think we're broken. Flying off the *fucking* rails. We tried to make a home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. *Nobody* can have a shred of fucking happiness."
+	"You think we're broken. A derailed train bumbling around in the dark. I'll tell you what we are. We tried to make the only home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. Nobody here can have a shred of fucking happiness."
 
-	Thi took hae hand away from Kip's neck and he gasped for air between tears and cries of pain. Lissa rummaged in hae dressings and took out an ornate kanosin pipe, well-used and wooden, and lit it with a hot tip. The sparks were slow to light, and few to number, but thi took a drag anyway and threw the pipe to Kip, who took it eagerly to stop the pain.
+	Thi took hae hand away from Kip's neck and he gasped for air between tears and cries of pain. Lissa rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
 
 	"Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
 
@@ -473,7 +467,7 @@
 
 	Thi looked over at him, and for the first time showed some doubt.
 
-	They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Lissa's pale-cold face. Thi reached for the kanosin pipe from Kip and took two more deep inhales before bringing it back to him and removing hae sword from his hand and the ground. He cried out again, but the kanosin mediated the pain a little.
+	They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Lissa's pale-cold face. Thi reached for the pipe from Kip and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
 
 	Thi set the blade in hae own left palm and stared at the blood.
 
@@ -485,9 +479,13 @@
 
 	Kip started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
 
-	Thi stood up and looked out to the ocean, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed. But this isn't the way it was supposed to happen."
+	Thi stood up and looked out to the ocean, taking hae time pondering about the past couple days.
 
-	Thi pointed straight out toward the water. "Thirty paces. Don't let hae die."
+	Thi let the wind carry hae words to him, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed in hae promise. But this isn't the way it was supposed to happen."
+
+	Thi turned back to him, "Kipnu. Remember that nobody dies in the darkness." A pause punctuated the air and did nothing to help Kipnu understand.
+
+	Lissa lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
 
 	He immediately looked out toward the water, and glanced back to find Lissa walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
 

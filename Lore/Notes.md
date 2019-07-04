@@ -34,8 +34,7 @@
 
 - Kanosin is made out of Bluekelp, and is addicting.
   - Secretly: This is how bluekelp evolved. It keeps people alive and addicted so they keep coming back to it to    spread its spores through the water or through Kanosin.
-
-- Kanosin smoke contains tons of tiny sparks of Bluekelp that get hot enough for their proteins to fluoresce very quickly.
+  - Secretly: Kanosin responds to radio and can be used for mind control.
 
 - Casra tried to kill Lissa before but it didn't work, but it's not obviously the bluekelp, just subtly.
 

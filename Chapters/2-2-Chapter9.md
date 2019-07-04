@@ -36,7 +36,7 @@ She looked him up and down again, surprised.
 
 "I need to call you something when I introduce you."
 
-She flipped the tent cover and they entered a new world of blue light. Everyone was nude and had ornately-patterned luminescent markings on their bodies. The dancing ones blurred their markings into the sweet smelling smoke of a plant he hadn't encountered before. Their pipes emmitted bright sparks that filled the smoke with a blue glow, like pixies joining the dance. And still others were in the throws of erotic ecstasy. The scene was unbothered by the entrance of Setre and her capture.
+She flipped the tent cover and they entered a new world of blue. Everyone was nude and had ornately-patterned luminescent markings on their bodies as if a vascular system of light had permeated their skin. The dancing ones blurred into the sweet smelling smoke of a plant he hadn't encountered before, their skin filling the air with an otherworldly glow. And still others were in the throws of erotic ecstasy, divining the truth in each other from behind their own eyes. The scene was unbothered by the entrance of Setre and her capture.
 
 She led him through the narrow spaces between people. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat. They came to the back of the tent, where a maman no more than Kip's age sat reclined in front of a tent post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing.
 
@@ -56,17 +56,17 @@ And Lissa continued, "Anyway, just cooperate and we'll all have a great time."
 
 Thi observed him with a feigned frown.
 
-"You seem a bit on-edge. Have a bit of the ghost."
+"You seem a bit on-edge. Come share in the spirit with us."
 
-Thi held up the pipe to Kip's nose and encouraged him to take a drag. He took the pipe, but immediately tried to give it back.
+Thi held up glowing blue syringe to Kip and encouraged him to take it. He took the device, familiar to him in touch but not in sight, and immediately tried to give it back.
 
-"See this is what I'm talking about," said Lissa, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he carefully took up the pipe onto his lips, trying his best not to inhale.
+"See this is what I'm talking about," said Lissa, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he carefully looked closer at the syringe but an impatient Setre took it from him and held his arm tight enough to break it if he struggled any more.
 
-"Inhale!," thi commanded, tightening hae grip on the dagger.
+"Stop!" she commanded, tightening her grip. Lissa was licking the rim of his ear while still holding a dagger to his neck.
 
-He inhaled a small bit and the smoke triggered his cough reflex almost immediately. He tried to cough without moving his neck into the dagger, and Lissa lowered it and put it away, saying "There you go. You'll get the hang of it. One more."
+Setre moved the syringe to his chest, away from his hearts, and punctured his skin, finishing the injection quicker than any he had ever done. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Lissa lowered it, saying "There you go, my little Heikoan. You'll start to feel it."
 
-He caught his breath and took another drag. This time it was longer and smoother, and he felt his muscles relaxing significantly, almost to the point of being immovable. His head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment.
+He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immovable, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
 
 "There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. There was an internal tension brewing inside between his self-identity and his suppressed hedonistic desires. He put his hand around the pendant on his neck.
 
