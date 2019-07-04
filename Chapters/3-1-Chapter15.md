@@ -64,7 +64,7 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from hae d
 
 "That is far too much power for one province to hold."
 
-"Perhaps you are right. But we have no other option."
+"Perhaps you're right. But we have no other option."
 
 Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. There is much that they are hiding."
 
@@ -72,15 +72,11 @@ Mel sighed, exasperated at how she let things go this far. "We need to find a wa
 
 "Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
 
-"There is much to lose and very little to gain by bothering them," thi said. "Look. Why don't we focus on rebuilding our grain reserves. We've lost half to politics. We could afford to build more."
-
-"We can't grow in this darkness. And besides, it would only delay the inevitable."
-
-"There is the desert."
+"There is much to lose and very little to gain by bothering them," thi said. "Look. Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
 
 "And what if the obstruction decides to disperse one day? We'll all be roasted alive."
 
-"And we will have starved to death long before. We need to do something within our power, Melna."
+"And we will have starved to death long before that happens. We can only do that which is within our power to do, Melna."
 
 Melna sighed, letting her internal frustration simmer down and settle.
 

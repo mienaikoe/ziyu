@@ -141,7 +141,9 @@
 *************
 
 
-  The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced. Pomri took out hae canteen and took a gulp of water before looking over to Linyu.
+  The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced. 
+  
+  Pomri took out hae canteen and took a gulp of water before looking over to Linyu.
 
   "You thirsty, Linyu?"
 
@@ -155,12 +157,25 @@
 
   Melna said, "Pomri might be a bit harsh, but thi means well. We're about Va'na to Yansha, and Shaki is still further. We need to keep hydrated out here."
 
-  She extended her own canteen to hae, and thi begrudgingly took a sip and gave it back to Melna.
+  She extended her own canteen to hae, and thi begrudgingly took a sip and then another and gave it back to Melna.
 
-  "Laen," thi whispered.
+  "Laen," thi whispered hae concern to her.
 
-  "Saffa's can stay hydrated for much longer because they're from the desert. We'll give him some once we reach Yansha."
+  "Saffas drink a lot of water and hold it for much longer. We'll give him some once we reach Yansha."
 
+  Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear.
+
+  "Hey Linyu," she began to ask. Thi turned more to show thi was listening. The bruises on hae neck received more light now. They reminded her of the pain thi took to talk and the extent thi went to to protect the listener.
+
+  "It's.. It's nothing. Don't mind me," she said.
+
+  Linyu relaxed again, while Melna kept looking toward Yansha, troubled by a question she didn't know how to ask. *After we get to Yansha. We need to know.*
+
+
+*************
+
+
+  Yansha was a maritime city-state settled in the center of a freshwater wetland that had kept it populated with wild Saffa.
 
 <!--
 

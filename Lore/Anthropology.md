@@ -38,6 +38,8 @@ Cities are connected via telephone lines, but can only support specific lines be
 
 Cities are connected via train lines which call only to capital cities every Va'ala (~6 hours). It takes about 8 va'ama to travel from Heiko to Shaki and back. The extra time is saved so that the schedule can fit in with common sleep and eating schedules.
 
+Lots of people who can afford a Saffa keep them for quick travel in places that the trains can't reach, like in rural areas or traveling outside of the habitable ring. Saffas are essentially giant meerkat/fennecs that do well in temperature extremes due to growing closer to the desert. Their diets are omnivorous, but leaning toward tough fruits and small bugs found in the steppe. In the wild, they generally walk to low areas in the darkness where watering holes lie, or they dig until they hit the water table.
+
 
 
 ## Life
