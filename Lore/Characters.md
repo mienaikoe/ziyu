@@ -2,7 +2,7 @@
 
 ## Main Characters
 
-### Lif(fe)[Ofan]
+### Lif(fe)[Maman]
 The Main Character. Lif serves as the energy of the trio, inspiring them, and providing fun, creative things for them to engage their minds and refresh their spirits. þeir everyday chores typically consist of helping Kip with farming and preparing dinner. þe also acts as a sort of glue, gathering the three of them together when þe senses they need to talk about something heavy. Lif is easy to upset, however, and may get discouraged by a judgment or minor setback to one of þeir plans. Lif is mischievous and open-minded compared to her spouses.
 
 ### Mel(na)[Woman]
@@ -20,12 +20,18 @@ Cas is a doctor from Shaki Harbor, who moved to Ulukoma to help the people there
 ### Lin(po)[Mamale]
 Casra's kaln.
 
-### Set(re)
+### Set(re)[Female]
 Lin's birther. Set grew up as an orphan in Holragi, and was forced to be strong, and sometimes to bully in order to survive. She moved to Ulukoma
 to gain power among the downtrodden and troublemakers. She found Casra and decided to follow her instead. After Ulukoma fell to Lissa, Setre was forced to become Lissa's guardian and abort any kids she had with her.
 
-### Ram(ne)
+### Ram(ne)[Male]
 Lin's father and drug dealer
 
-### Gin(nu)
+### Gin(nu)[Female]
 Ramne's Girlfriend who is caught up in a web of chaos and kanosin. She's on a sobriety arc.
+
+### Fan(la)[Female]
+A pseudo-leader of the group that takes the Shadestead
+
+### Pom(ri)[Mamale]
+Melna's assistant and confidant. Generally more prepared than Melna, but doesn't let this go to hae head, and learns from Melna at whatever chance thi has.

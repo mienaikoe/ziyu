@@ -175,7 +175,29 @@
 *************
 
 
-  Yansha was a maritime city-state settled in the center of a freshwater wetland that had kept it populated with wild Saffa.
+  Pomri was glowing at the first sight of hae hometown, Yansha. It was rare that thi would be introducing the city to a kid. Though thi knew they wouldn't be there for long, thi made the best of what little time they had.
+
+  "Linyu, do you know much about Yansha?"
+
+  Thi looked at Linyu vacantly, annoyed that Pomri was talking to hae again.
+
+  "Allow me to introduce you to my home. Yansha is a great city-state on the border of Shaki and Heiko. The original settlers found this giant freshwater wetland and realized that the center of it would be safe from invaders."
+  
+  "It wasn't very safe from saffa," Mel butted in.
+
+  Pomri shot her a glare, and continued teaching. 
+  
+  "The saffa and tilmarim that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained to live in peace."
+
+  "They tricked them into fighting each other."
+
+  "Melna! Let me tell the story!"
+
+  "Linyu doesn't need any fog in hae water."
+
+  "How would you know this story anyway?"
+
+  "Everyone from Yansha tells it"
 
 <!--
 

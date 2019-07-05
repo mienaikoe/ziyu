@@ -121,7 +121,15 @@ Takeoff
 
 ### Part 3 - "The " (Mel)
 
-Mel is at the observatory and discovers evidence of a craft being launched toward the obstruction. She is distraught and is pretty certain it's Lif. She vows to take vengeance and bring hae back, but doesn't know how. She goes home to sleep on it and go to the senate in the morning. Before heading to sleep, she gets a knock on the door, and it's Setre (& Linyu?).
+15
+Mel is at the observatory and discovers evidence of a craft being launched toward the obstruction. She is distraught and is pretty certain it's Lif. She vows to take vengeance and bring hae back, but doesn't know how. She goes home to sleep on it and go to the senate in the morning, meets Linyu on the way, and Linyu knows her name, and hears Liffa.
+
+16
+Mel, Linyu, and Pomri go to Yansha. Linyu sees Ginnu and Ramne and runs. Pomri and Ramne run after hae, leaving Melna to hold off Ginnu
+
+17
+
+
 
 = Linyu would likely be helped (in Heiko. Shaki is too busy for moneyless nobodies).
 = Ginnu and Penyi just arrived. They wouldn't be likely to leave the island.
