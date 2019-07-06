@@ -203,7 +203,17 @@
 
   Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
 
-  "Now
+  "Now that you know about our history, let me tell you about the bridge we're crossing."
+
+  Linyu leaned back and looked at Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
+
+  "By Ara, I haven't heard you chuckle once since the blobby things."
+
+  "The Obscura," she corrected her.
+
+  "Whatever. Some kaln comes along and now you're bright as a lake in the desert."
+
+  She looked down at hae
 
 <!--
 
