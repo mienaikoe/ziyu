@@ -175,7 +175,7 @@
 *************
 
 
-  Pomri was glowing at the first sight of hae hometown, Yansha. It was rare that thi would be introducing the city to a kid. Though thi knew they wouldn't be there for long, thi made the best of what little time they had.
+  Pomri was glowing at the first sight of hae hometown, Yansha. The pale orange of Ara splashed light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city hanging above it like a vine across a forest. It was rare that thi would be introducing the city to a kid. They wouldn't be there for long, so thi made the best of what little time they had.
 
   "Linyu, do you know much about Yansha?"
 
@@ -197,7 +197,13 @@
 
   "How would you know this story anyway?"
 
-  "Everyone from Yansha tells it"
+  "I hear it everytime I come here with a Yanshan."
+
+  "Good. Then let Linyu hear it too."
+
+  Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
+
+  "Now
 
 <!--
 
