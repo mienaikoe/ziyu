@@ -207,13 +207,12 @@
 
   Linyu leaned back and looked at Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
 
-  "By Ara, I haven't heard you chuckle once since the blobby things."
+  "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a lake in the desert."
 
-  "The Obscura," she corrected her.
+  She looked down at hae and pondered at the mysteries of this peculiar child dressed in reed clothes that life had swept her way.
 
-  "Whatever. Some kaln comes along and now you're bright as a lake in the desert."
+  "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi has adapted and found allies through it all. We will need to do the same."
 
-  She looked down at hae
 
 <!--
 
