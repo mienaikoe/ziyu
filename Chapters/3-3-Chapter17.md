@@ -19,3 +19,7 @@
   Melna asked him, "Can you ask anyone to open it?"
 
   "I'm locked out of the city until I am relieved from my shift at mid-day."
+
+  "Yansha has never been this tightly locked. What is the reason?" Pomri demanded.
+
+  "There is no more food or space to support refugees. We cannot risk taking in a single person as it would mean risking the lives of all our citizens."
