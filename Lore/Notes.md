@@ -51,6 +51,8 @@
 
 - Make note of how firewood works in the Shadestead
 
+- Ginnu should be maman
+
 - Depict Lissa as a dream-goddess to Kipnu on the come-down from Kanosin
   - Especially good with Lissa's Non-Dying Lore
 

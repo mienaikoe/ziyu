@@ -33,7 +33,7 @@
 
   Thi started to talk but remembered the pain as only a whisper emerged. Thi cleared hae throat gently and tried again.
 
-  "Warmer," thi said with a scratch of a voice, holding hae hand against Laen-Laen's belly.
+  "Warm," thi said with a scratch of a voice, holding hae hand against Laen-Laen's belly.
 
   "I was so worried where you had gone."
 
@@ -41,7 +41,7 @@
 
   She was perplexed. "Why? Because you're... alone. And I have no clue where your parents are... And you can't scream for help."
 
-  "I'm fine," thi said with conviction. Mel was even more confused now. Wondering where such an independent child could have come from.
+  "Fine," thi said with conviction. Mel was even more confused now. Wondering where such an independent child could have come from.
 
   "Well, we're going on a big trip today so let's eat up to prepare," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with Linyu and the saffa in toe.
 
@@ -111,7 +111,7 @@
 
   Pomri made no excuses.
 
-  "Who is the kaln?" thi asked, giving the slightest glance to Linyu.
+  "Who's this kaln?" thi asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
 
   "This is Linyu."
 
@@ -165,11 +165,11 @@
 
   Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear.
 
-  "Hey Linyu," she began to ask. Thi turned more to show thi was listening. The bruises on hae neck received more light now. They reminded her of the pain thi took to talk and the extent thi went to to protect the listener.
+  "Hey Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck shone clearer now in the brighter light. They reminded her of how painful it would be for Linyu to answer all the questions she wanted to know.
 
   "It's.. It's nothing. Don't mind me," she said.
 
-  Linyu relaxed again, while Melna kept looking toward Yansha, troubled by a question she didn't know how to ask. *After we get to Yansha. We need to know.*
+  Linyu relaxed again while Melna kept looking toward Yansha, troubled by a question she didn't know how to ask. *When we stop at Yansha. I need to know.*
 
 
 *************
@@ -209,7 +209,7 @@
 
   "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a lake in the desert."
 
-  She looked down at hae and pondered at the mysteries of this peculiar child dressed in reed clothes that life had swept her way.
+  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in reed clothes that life had swept her way.
 
   "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi has adapted and found allies through it all. We will need to do the same."
 

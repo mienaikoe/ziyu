@@ -108,11 +108,11 @@ He shifted his legs a little to reveal a little kaln dressed in strange reed clo
 
 "Oh my goodness, are you ok?" She asked, reaching for hae.
 
-Thi looked back at Mel and shifted away with eyes transfixed, wanting to run but too exhausted to do so.
+Thi looked back at Mel with glowing blue eyes and scurried away, wanting to run but too exhausted to do so. Melna was startled by hae eyes, but settled herself.
 
-"It's ok. I'm not here to hurt you," she comforted her.
+"It's ok. I'm not here to hurt you," she comforted.
 
-With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see severe bruises around hae neck. Her eyes lingered and then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
+With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see severe hand-shaped bruises around hae neck. Her eyes lingered and then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
 
 "I am Melna," she said deliberately. Her hand turned to clasp haes.
 
@@ -120,7 +120,9 @@ Trying to respond, the kaln could only muster a whisper, so she bent down closer
 
 "Lin... Yu."
 
+
 ********
+
 
 Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it. Linyu walked around the dimly lit great room, filled with awe at  the immensity of her house. Thi paused to watch Melna at the wood, remembering the smell of smoke and the screams of panic, but quickly snapped out of it and continued hae tour. Sensing her own frustration building, Melna stopped trying to start a fire and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
@@ -128,13 +130,15 @@ Mel filled the kitchen mantle with kindling from the garden and pressed her hot 
 
 At first Linyu hesitated, staring at the cup in her hand with obvious anxiety. Thi took the cup after the dryness of hae mouth spoke loudest and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine hae neck closer.
 
-"You have a lot of swelling in here. What happened?"
+"You have a lot of swelling here. What happened?"
 
 "F-Fire," Linyu whispered.
 
-"Oh no! That's terrible!"
+"Oh," she said, surprised to hear a lie. "You should know that I'm a great listener. It's literally my job to listen to people all day. If you want to tell me what really happened, you can say so."
 
-There were a million questions hiding in her mind, but her lips were blocking them for fear of overwhelming the child.
+After a moment of thought, Linyu whispered again, "Fire."
+
+There were a million questions hiding in Melna's mind, but her lips were blocking them for fear of overwhelming the child.
 
 "Was it in the city? I didn't hear of any fire."
 
@@ -180,7 +184,7 @@ Thi nodded hesistantly, and clutched to it tighter.
 
 "Where is thi now?"
 
-Linyu stared back at her with eyes like dams built with doubt. Thi walked angrily back toward hae old clothes next to the washroom door.
+Linyu stared back at her with eyes like dams holding back a flood of doubt. Thi walked frustratedly back toward hae old clothes next to the washroom door.
 
 "I'm sorry, we don't have to talk about that right now."
 

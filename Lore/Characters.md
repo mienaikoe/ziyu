@@ -27,11 +27,14 @@ to gain power among the downtrodden and troublemakers. She found Casra and decid
 ### Ram(ne)[Male]
 Lin's father and drug dealer
 
-### Gin(nu)[Female]
+### Gin(nu)[Mamale?/Female?]
 Ramne's Girlfriend who is caught up in a web of chaos and kanosin. She's on a sobriety arc.
 
 ### Fan(la)[Female]
 A pseudo-leader of the group that takes the Shadestead
+
+### Pen(yi)[Male]
+Fanla's second in command. Sepcializes in metallurgy.
 
 ### Pom(ri)[Mamale]
 Melna's assistant and confidant. Generally more prepared than Melna, but doesn't let this go to hae head, and learns from Melna at whatever chance thi has.
