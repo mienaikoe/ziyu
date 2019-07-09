@@ -15,6 +15,9 @@
 
 - City smells, tastes, sounds, dialog with strangers
 
+- More Deep Hard Scifi talk in the senate about what the obscura could be.
+  - Show off their level of technology, philosophy, and astronomy
+
 - Fajro should be depicted as almost reptilian though human-like
 
 - Consider making the interlogue into a separate chapter where Mel is informed of what happened.

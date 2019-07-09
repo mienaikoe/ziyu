@@ -41,3 +41,13 @@
   "I don't know what to tell you, žah."
 
   Melna began to pace slowly, frustrated but holding steady on a more pensive state of mind. She pondered busting through the gate somehow, but ruled out the bending of thick steel bars as a matter of time.
+
+  She turned to Pomri and asked, "What if we went the other way?"
+
+  "What other way?"
+
+  "You said the only way is through the desert. What about the ocean?"
+
+  "The ocean is dangeorus in this darkness and without the wind. If the vessel unhooks from the rail, we could be drifting out into the darkness."
+
+  
