@@ -23,7 +23,7 @@
   "I've told you all I know," said the guard.
 
   Melna made room for Linyu and jumped off of Laen-Laen's back to approach the guard. Pomri remained mounted.
-  
+
   She asked him, "Can you ask anyone to open the gate?"
 
   "I'm locked out of the city until I am relieved from my shift at mid-day."
@@ -50,4 +50,34 @@
 
   "The ocean is dangeorus in this darkness and without the wind. If the vessel unhooks from the rail, we could be drifting out into the darkness."
 
-  
+  "Ah. I see," she said. She turned around to the guard and asked him, "Excuse me, do you know of a good ship and captain we could hire?"
+
+  "Toward Shaki? There aren't many fishers who know that route."
+
+  "Any ship will do, as long as we can trust the captain."
+
+  "The only ships like that go to Ulukoma first. Check the far dock."
+
+  "Thank you sir."
+
+  "Oh and uh..." He hesitated. "There's a captain named Ramne who runs a ship that way. I wouldn't trust him."
+
+  Linyu leapt away in fear, crawling under Laen to signal that thi wanted to leave.
+
+  Pomri went after hae saying, "Eh? What's gotten into you?"
+
+  He stooped down to stare eye-to-eye with hae.
+
+  "I take it you're not a boat person. Well, we can't go back now so you're either coming with us or you're on your own again."
+
+  Thi took a moment, feeling angry at the predicament thi was put into. There was nowhere to run, standing outside a massive city barred from entry, and Laen-Laen, who could take hae anywhere if anywhere were safe anymore. Thi placed hae hand on Kip's pendant under hae shirt and closed hae eyes in thought.
+
+  "Together," thi whispered. Pomri smiled at hae courage.
+
+
+*************
+
+
+  "One night is all I ask," Said the fisherwoman, chiding a starving maman.
+
+  "For a fish?"
