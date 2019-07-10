@@ -48,7 +48,7 @@
 
   "You said the only way is through the desert. What about the ocean?"
 
-  "The ocean is dangeorus in this darkness and without the wind. If the vessel unhooks from the rail, we could be drifting out into the darkness."
+  "The ocean is dangeorus without light or wind. If the vessel unhooks from the rail, we could be drifting out into the darkness."
 
   "Ah. I see," she said. She turned around to the guard and asked him, "Excuse me, do you know of a good ship and captain we could hire?"
 

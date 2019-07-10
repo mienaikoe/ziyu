@@ -106,17 +106,17 @@ He whimpered a little, a suspicious complaint for a freezing saffa.
 
 He shifted his legs a little to reveal a little kaln dressed in strange reed clothing curled at his belly.
 
-"Oh my goodness, are you ok?" She asked, reaching for hae.
+"Oh my goodness," she exclaimed, reaching for hae, "Are you ok?"
 
-Thi looked back at Mel with glowing blue eyes and scurried away, wanting to run but too exhausted to do so. Melna was startled by hae eyes, but settled herself.
+Thi looked back at Mel with a vacant stare through glowing blue eyes and then scurried away, wanting to run but too exhausted to do so. Melna was startled by hae eyes, but settled herself.
 
-"It's ok. I'm not here to hurt you," she comforted.
+"It's ok. I'm here to help," she comforted.
 
-With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see severe hand-shaped bruises around hae neck. Her eyes lingered and then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
+With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see two hand-shaped bruises around hae neck. Her eyes lingered on them, then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
 
-"I am Melna," she said deliberately. Her hand turned to clasp haes.
+"I am Melna," she said deliberately. Her hand rose to clasp haes. Thi flinched at first, and softened.
 
-Trying to respond, the kaln could only muster a whisper, so she bent down closer to hear hae.
+The kaln could only muster a whisper through hae raspy voice, so Melna bent down closer to hear.
 
 "Lin... Yu."
 
@@ -124,17 +124,21 @@ Trying to respond, the kaln could only muster a whisper, so she bent down closer
 ********
 
 
-Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it. Linyu walked around the dimly lit great room, filled with awe at  the immensity of her house. Thi paused to watch Melna at the wood, remembering the smell of smoke and the screams of panic, but quickly snapped out of it and continued hae tour. Sensing her own frustration building, Melna stopped trying to start a fire and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
+Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Mel sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
 "You must be thirsty, Linyu. Have some water."
 
-At first Linyu hesitated, staring at the cup in her hand with obvious anxiety. Thi took the cup after the dryness of hae mouth spoke loudest and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine hae neck closer.
+At first Linyu hesitated, staying still with the cup next to hae eyes, Mel holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it  and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
 
-"You have a lot of swelling here. What happened?"
+"Have you always been blind, Linyu?"
+
+Thi fidgeted nervously and whispered, "...No"
+
+"You also have a lot of swelling here. What happened?"
 
 "F-Fire," Linyu whispered.
 
-"Oh," she said, surprised to hear a lie. "You should know that I'm a great listener. It's literally my job to listen to people all day. If you want to tell me what really happened, you can say so."
+"Oh," she said, surprised to hear a lie. "You should know that I'm a great listener. It's literally my job to listen to people all day. If you ever want to tell me what really happened, you can say so."
 
 After a moment of thought, Linyu whispered again, "Fire."
 
@@ -146,25 +150,37 @@ Linyu stared into the distance, hae eyes unmoving, untelling.
 
 "Why don't you get a little rest, little one. We'll talk more in the morning."
 
-Thi nodded and let go of Mel, rubbing hae eyes and cheeks as thi moved away.
+Thi nodded and took one more sip of the cold water.
 
 "You can sleep on the bed, and I'll stay out here in the great room. How about that?"
 
 Thi nodded, not wanting to make any more decisions.
 
-"Okay, let's get you cleaned up."
+"But first, let's get you cleaned up."
 
-She drew a bucket of water from the dew column and fetched a towel for hae to wash with. There weren't any robes small enough, but Liffa's robes came close, so she pulled them from the cellar and gave them to Linyu.
+She drew a bucket of water from the dew column and fetched a towel for hae to wash with. There weren't any robes small enough, but Liffa's night robes came close, so she pulled them from the cellar and gave them to Linyu.
 
-"You can rinse yourself with the towel. These robes will be big on you, but just put them on for now and I can tie them to fit."
+"You can rinse yourself in the washroom. These robes will be big on you, but just put them on for now and I can tie them to fit."
 
-Linyu looked up to her with grateful eyes and mouthed, "Thank you", and then walked into the washroom with the bucket and towel, leaving the clean robes and the device on hae ear just outside the entryway.
+Linyu looked up to her mouth with grateful eyes and mustered hae strongest, "Thank you". Melna led hae into the washroom with the bucket and towel, leaving the clean robes just outside the entryway.
 
-Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged again from the washroom, showing Linyu, unabashedly bare save for a pendant and fumbling with the trinket on hae ear.
+"Take your time. I'll be right out here."
+
+"Water?" Thi whispered.
+
+Melna paused in confusion and then realized that the kaln might never have had plumbing before.
+
+"Oh. Right... Come with me."
+
+She led hae to a simple twist valve that fed into a wide plate set into the wall not more than hae own height. With her hand on haes, they opened the valve until a small flow of water exited at the plate and spread evenly across the ground. Thi held out hae hands to feel the drops cover hae fingers and trickle down hae arms. Mel watched as an involuntary smile crept up hae face, and couldn't help but smile too.
+
+"Well I'll leave you to your wash-up," she said and left the room with the towel sitting on a short table near the entryway.
+
+Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged from the washroom showing Linyu unabashedly bare save for a pendant and fumbling with the trinket on hae ear.
 
 Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
-Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on a table near her and running back off to the washroom, knocking twice once inside to let Melna know thi was out of eyeshot. Hesitantly, Melna moved her gaze to the trinket, which Linyu had placed next to Kip's pendant. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
+Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on the ground near hae and then feeling hae way back to the washroom. Hesitantly, Melna moved her gaze to the trinket. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
 
 *What is this thing?*
 
@@ -172,7 +188,7 @@ She faintly heard some noise coming from it, and put it up to her ear. It was ju
 
 "**** -entation now."
 
-Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and staring at the listener with disappointment. Thi took it from her hands without hesitation and hid it in hae robes.
+Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and hae own wet clothes in hae hands. Thi knew where the listener had gone, and carried a look of disappointment. Thi felt for her hands and then ripped it from her hands and hid it in hae robes.
 
 She responded, "I'm sorry, I should have asked first."
 
@@ -184,11 +200,9 @@ Thi nodded hesistantly, and clutched to it tighter.
 
 "Where is thi now?"
 
-Linyu stared back at her with eyes like dams holding back a flood of doubt. Thi walked frustratedly back toward hae old clothes next to the washroom door.
+Linyu stared into the void of reality between hae and Melna with eyes like dams holding back a flood of doubt.
 
-"I'm sorry, we don't have to talk about that right now."
-
-A thump rang across the room as Linyu slammed the door behind hae. From where she sat, Mel could hear the painful breaths and sniffles of a child trying to find the balance between the pain of speaking with the pain of losing hae mother. She felt powerless, unfamiliar to her but to a past she had long forgotten. It brought a pair of tears to her own eyes as she empathized with Linyu. Mel instinctively walked toward the cries in the washroom, bringing the half-empty glass of water as a sign of peace.
+"I'm sorry, we don't have to talk about that right now," Melna said, but Linyu had already turned away and started stumbling back into the washroom. A thump rang across the room as Linyu slammed the door behind hae and sat against it to block its movement. She picked up the half-empty water glass from the table in the great room and and reassumed her post at the door. Melna didn't try to open the door or talk to hae – when Liffa's mother had died, she consoled hae through the same thing and learned how important it was to hold a space for grief. It shook her to imagine feeling such a heavy loss while recovering from the brink of death; such that she had forgotten all of her own stresses and focused on the well-being of this one kaln.
 
 "Linyu, may I come in?"
 
@@ -204,7 +218,7 @@ She decided to be deliberate. Another prying question might push the kaln to lea
 
 "I promise that I won't ask any more questions. And I won't steal your ear device. I just have some water for you here by the door."
 
-Thi slowly creaked the door open just enough to look outside at Mel's distance, and reach for the glass. Thi kept the door cracked like this, sipping on water and glancing at Mel with exhausted but vigilant eyes. In the crack of light, she could see that the reed trousers and top thi had worn before had returned to hae body.
+Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the beauty of Liffa's robes clothing Linyu's shoulders.
 
 "You know, my spouse... Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. That was more of the other one's job."
 
@@ -212,9 +226,7 @@ Linyu whispered, "Liffa".
 
 "Yes. That's hae name."
 
-Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear.
-
-She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger, guilt, and shame.
+Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger, guilt, and shame.
 
 "Mel-na," Linyu whispered under hae breath, as thi moved closer to comfort her. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
 
