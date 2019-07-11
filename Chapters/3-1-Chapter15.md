@@ -54,7 +54,7 @@ Melna took a few deep breaths to regain her composure.
 
 "You have my word, žah."
 
-Thimlu scurried away to fetch some empty film plates while Pomri rose from hae desk and approached Melna.
+Thimlu scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
@@ -68,23 +68,23 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from hae d
 
 Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. There is much that they are hiding."
 
-"Your pleading will be met on deaf ears, Melna."
+"Your pleading will be met with hostility, Melna."
 
 "Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
 
-"There is much to lose and very little to gain by bothering them," thi said. "Look. Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
+"There is much to lose and very little to gain by bothering them," she said. "Look. Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
 
 "And what if the obstruction decides to disperse one day? We'll all be roasted alive."
 
-"And we will have starved to death long before that happens. We can only do that which is within our power to do, Melna."
+"And we will have starved to death long before that happens. We can only do that which is within our power to do."
 
 Melna sighed, letting her internal frustration simmer down and settle.
 
 "Ask me tomorrow. I have to go home."
 
-Pomri threw hae hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly wind barrelled its way through the door and into Pomri's robes, forcing hae to clasp hae arms.
+Pomri threw her hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
 
-Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
+Melna turned back to her and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
 
 "But the trains aren't running to Heiko."
 
@@ -92,7 +92,7 @@ Melna turned back to hae and said, "Meet me tomorrow at the first train to Shaki
 
 "That's ridiculous!"
 
-She closed the door behind her, ignoring Pomri's complaints.
+Mel closed the door behind her, ignoring Pomri's complaints.
 
 A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 

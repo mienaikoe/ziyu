@@ -3,7 +3,11 @@
 - The three are blocked from entering Yansha
 - They contemplate traveling through the desert.
 - They meet a ship captain named Ramne that tries to convince them to take his ship to Shaki.
-  - Linyu can point to hae neck to signal danger from Ramne
+  - Linyu doesn't know that Ramne tried to kill hae because thi was already unconscious.
+    - Instead thi just knows that Ramne captured Casra on the beach.
+    - Setre saved hae, or Fanla, or Ginnu. Yes Ginnu <-
+    - Kipnu's group never found the antikan hidden beneath the armory.
+    - Instead the kanosin-resurrected army rose and killed them except for Setre, Fanla, and Penyi who hid.
   - Pomri convinces them that it's the only way to make it on time
 - On the boat, they meet Ginnu, who has a healing wound on her head and similar blue hue in her eyes. (Linyu doesn't know about her death.)
 - The observatory reports in about the presence of giant ships
@@ -22,7 +26,7 @@
 
   "I've told you all I know," said the guard.
 
-  Melna made room for Linyu and jumped off of Laen-Laen's back to approach the guard. Pomri remained mounted.
+  Melna held Linyu steady and jumped off of Laen-Laen's back to approach the guard while Pomri remained mounted.
 
   She asked him, "Can you ask anyone to open the gate?"
 
@@ -62,11 +66,24 @@
 
   "Oh and uh..." He hesitated. "There's a captain named Ramne who runs a ship that way. I wouldn't trust him."
 
-  Linyu leapt away in fear, crawling under Laen to signal that thi wanted to leave.
+  Linyu whimpered in fear at his name, drawing Pomri's attention.
 
-  Pomri went after hae saying, "Eh? What's gotten into you?"
+  "Eh? What's gotten into you?" she asked.
 
-  He stooped down to stare eye-to-eye with hae.
+  Thi was getting ready to jump off of Laen-Laen and run, but Melna had already become aware of hae and leapt back to hae.
+
+  "Hey, Linyu. What's wrong?" asked Melna, holding onto hae arms.
+
+  "Ramne," thi said in a cracked voice, "He..."
+
+  Tears were forming at the corners of hae eyes.
+
+  "What did he do?"
+
+  "Mom," thi said, at the end of hae wit.
+
+  <!-- TODO: -->
+
 
   "I take it you're not a boat person. Well, we can't go back now so you're either coming with us or you're on your own again."
 
