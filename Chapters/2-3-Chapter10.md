@@ -7,7 +7,7 @@ Write Setre has caring about Linyu's life and future.
 ## Chapter 10
 
 
-A hand fell upon Kip's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same reed clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
+A hand fell upon Kip's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same kelp clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
 
 "Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kip, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kip out of the tent. He looked back for a second and saw nothing but the door to the tent closed. Stark naked, severely malnourished, and fighting withdraw from something he did not know, he made a break for some fallen tree he had never seen before in the darkest part of the island.
 
@@ -31,7 +31,7 @@ Kip was immeasurably relieved to see a familiar face, even if only an acquaintan
 
 Thi said, "Kipnu, you've made it! Come now, under the fallen tree."
 
-They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He squatted down, both to cover himself and to gain some warmth. Casra had already prepared him a set of reed cloths and helped him into them.
+They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kip to follow hae. Once inside, Kip could see a small lantern being lit by a small maman. He squatted down, both to cover himself and to gain some warmth. Casra had already prepared him a set of kelp cloths and helped him into them.
 
 "Lin, grab some ankan from the cupboard."
 

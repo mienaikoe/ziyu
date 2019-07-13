@@ -1,16 +1,31 @@
 <!--
 
 - The three are blocked from entering Yansha
-- They contemplate traveling through the desert.
-- They meet a ship captain named Ramne that tries to convince them to take his ship to Shaki.
-  - Linyu can point to hae neck to signal danger from Ramne
-  - Pomri convinces them that it's the only way to make it on time
-- On the boat, they meet Ginnu, who has a healing wound on her head and similar blue hue in her eyes. (Linyu doesn't know about her death.)
+
+If they get into yansha
+- They can talk to Thimli
+  - Thimli can deliver evidence of bombs
+- Describe the city of water
+  - In chaos
+- They have to roam covertly
+  - Ramne turns into a chase scene
+  - Ramne has antikan, so Ginnu can see
+
 - The observatory reports in about the presence of giant ships
 
  -->
 
 ## Chapter 17
+
+  One gatekeeper stood vigil at the gate of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Yanshan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
+
+  "Heh," she scoffed as the group approached her, "The traitor and her master."
+
+  Pomri rebuked her, "Such a warm welcome, Bavle. Now open the gate."
+
+  
+  <!-- new above, old below-->
+
 
   "Yansha is locked to travel," an elderly guard told them at the gate into the city.
 

@@ -104,7 +104,7 @@ He whimpered a little, a suspicious complaint for a freezing saffa.
 
 "Laen-Laen, what's wrong?"
 
-He shifted his legs a little to reveal a little kaln dressed in strange reed clothing curled at his belly.
+He shifted his legs a little to reveal a little kaln dressed in strange kelp clothing curled at his belly.
 
 "Oh my goodness," she exclaimed, reaching for hae, "Are you ok?"
 

@@ -209,7 +209,7 @@
 
   "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a lake in the desert."
 
-  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in reed clothes that life had swept her way.
+  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothes that life had swept her way.
 
   "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi has adapted and found allies through it all. We will need to do the same."
 
