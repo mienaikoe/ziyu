@@ -501,4 +501,4 @@
 
 	As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
 
-	The listener spoke again, "Kip... Mel... I love you."
+	The listener spoke again, "Kipnu... Melna... I love you."

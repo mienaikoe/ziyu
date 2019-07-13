@@ -112,4 +112,4 @@ Interlogue
 
   The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that I was leaving behind.
 
-  I breathed heavily into my mask and said, "Kip... Mel... I love you."
+  I breathed heavily into my mask and said, "Kipnu... Melna... I love you."
