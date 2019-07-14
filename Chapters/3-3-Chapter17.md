@@ -1,8 +1,8 @@
 <!--
 
-- The three are blocked from entering Yansha
+- The three are blocked from entering Rudjan
 
-If they get into yansha
+If they get into Rudjan
 - They can talk to Thimli
   - Thimli can deliver evidence of bombs
 - Describe the city of water
@@ -26,24 +26,71 @@ If they get into yansha
 
 ## Chapter 17
 
-  One gatekeeper stood vigil at the gate of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Yanshan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
 
-  "Heh," she scoffed as the group approached her, "The traitor and her master."
+  One gatekeeper stood vigil at the end of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Yanshan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
 
-  Pomri rebuked her, "Such a warm welcome, Bavle. Now open the gate."
+  "Well look who it is," she scoffed as the group approached her, "The traitor and the liar. Quite the band of thieves you make."
+
+  Pomri responded, "Such a warm welcome, Bavle."
+
+  "Oh, pardon my manners," she said facetiously, "Perhaps you'd like to be thrown across the rails first."
+
+  "Perhaps you'd like this spear down your throat."
+
+  Melna glanced to the side and whispered, "Pomri, what's this about?"
+
+  But Bavle continued, "So tell me why I should let you bastards through."
+
+  A lull in the conversation formed while Melna watched their eyes turn in her direction and stuttered to begin, "W-we are on our way to a senate session. We would like to pass."
+
+  "No," said the guard.
+
+  "What? Why?"
+
+  "Well you haven't told me the password."
+
+  Melna paused, trying to understand such a ridiculous requirement. *A password? Since when was there a password to enter Rudjan?*. She thought and thought for an awkward moment that had long overstayed its welcome, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then all out laughing from the two.
+
+  "I didn't think she'd fall for that!" yelled Pomri. "A password?! Really, Melna?"
+
+  Bavle joined her, "Is your senator honestly so dull?"
+
+  Melna was unamused at being the brunt of a joke, not to mention the waste of precious time, but she took it in stride.
+
+  "Ok, very funny," she said. "We have a train to catch, so please let us be on our way."
+
+  Bavle couldn't stop laughing, but moved to a hidden panel in the wall and with an effortless flick of the finger, she activated a switch to the gate motors.
+
+  "Oh I've missed your damn face, Pomri. Come back when the obscura are gone."
+
+  "I will. Just gotta save the world first."
+
+  "Just another day for Pomri."
+
+  Pomri's saffa went in first, and Bavle stopped Melna's saffa.
+
+  "And you two be on your best behavior. I don't want to jump in the water to save some kid who can't swim."
+
+  "We will," Melna said, still a little annoyed at the two.
+
+  They passed through the giant iron gate and immediately entered onto a pier of a bustling market of small ships lit by oil lanterns bobbing to and fro from their latch points on each end of the bows and sterns.
+  
+
+
+
 
   
   <!-- new above, old below-->
 
 
-  "Yansha is locked to travel," an elderly guard told them at the gate into the city.
+  "Rudjan is locked to travel," an elderly guard told them at the gate into the city.
 
   "I am a Heiko senator passing through to Shaki. Please let us pass," Melna told him.
 
   "My apologies, žah, I cannot even open the gate. You'll have to find a way around."
 
   Pomri interjected, "That's crazy. We need to board the train."
-
+Rudjan
   "I've told you all I know," said the guard.
 
   Melna held Linyu steady and jumped off of Laen-Laen's back to approach the guard while Pomri remained mounted.
@@ -52,7 +99,7 @@ If they get into yansha
 
   "I'm locked out of the city until I am relieved from my shift at mid-day."
 
-  "Yansha has never been this tightly locked. What is the reason?" Pomri demanded.
+  "Rudjan has never been this tightly locked. What is the reason?" Pomri demanded.
 
   "There is no more food or space to support refugees. We cannot risk taking in a single person as it would mean risking the lives of all our citizens."
 

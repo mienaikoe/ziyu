@@ -88,7 +88,7 @@ Melna turned back to her and said, "Meet me tomorrow at the first train to Shaki
 
 "But the trains aren't running to Heiko."
 
-"Bring your saffa. We'll ride to Yansha and catch the second train there."
+"Bring your saffa. We'll ride to Rudjan and catch the second train there."
 
 "That's ridiculous!"
 

@@ -3,8 +3,8 @@
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
 - Melna goes to see Jes, and Linyu is there
 - Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
-- The two travel to Yansha and talk on the way.
-- At Yansha, they meet Ramne and Ginnu
+- The two travel to Rudjan and talk on the way.
+- At Rudjan, they meet Ramne and Ginnu
 
  -->
 
@@ -157,13 +157,13 @@
 
   Thi straightened hae back and let out a gentle sigh, bringing a hand to meet hers.
 
-  Melna said, "Pomri might be a bit harsh, but she means well. We're about Va'na to Yansha, and Shaki is still further. We need to keep hydrated out here."
+  Melna said, "Pomri might be a bit harsh, but she means well. We're about Va'na to Rudjan, and Shaki is still further. We need to keep hydrated out here."
 
   She extended her own canteen to hae, and thi begrudgingly took a sip, a pause, and then another before giving it back to Melna.
 
   "Laen," thi whispered hae concern to her.
 
-  "Saffas drink a lot of water and hold it for much longer. We'll give him some once we reach Yansha."
+  "Saffas drink a lot of water and hold it for much longer. We'll give him some once we reach Rudjan."
 
   Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear; the things she heard, and the things she might be missing.
 
@@ -171,19 +171,19 @@
 
   "It's.. It's nothing. Never mind," she said.
 
-  Linyu relaxed again while Melna kept looking toward Yansha, troubled by a question she didn't know how to ask. *When we stop at Yansha. I need to know.*
+  Linyu relaxed again while Melna kept looking toward Rudjan, troubled by a question she didn't know how to ask. *When we stop at Rudjan. I need to know.*
 
 
 *************
 
 
-  Pomri was glowing at the first sight of her hometown, Yansha. The pale orange of Ara splashed light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city hanging above it like a vine across a forest. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
+  Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city hanging above it like the root of a tree sprawling across a forest. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
 
-  "Linyu, do you know much about Yansha?"
+  "Linyu, do you know much about Rudjan?"
 
-  Thi looked at Linyu vacantly, annoyed that Pomri was talking to hae again.
+  Linyu looked at her vacantly, annoyed that she was talking to hae again.
 
-  "Allow me to introduce you to my home. Yansha is a great city-state on the border of Shaki and Heiko. The original settlers found this giant freshwater wetland and realized that the center of it would be safe from invaders."
+  "Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko. The original settlers found this giant freshwater wetland and realized that the center of it would be safe from invaders."
 
   "It wasn't very safe from saffa," Mel butted in.
 
@@ -199,7 +199,7 @@
 
   "How would you know this story anyway?"
 
-  "I hear it everytime I come here with a Yanshan."
+  "I hear it everytime I come here with a Rudjanian."
 
   "Good. Then let Linyu hear it too."
 
@@ -211,9 +211,11 @@
 
   "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a stone in the desert."
 
-  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothes that life had swept her way.
+  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothing that life had swept her way.
 
-  "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found people to trust. We will need to do the same."
+  "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
+
+  Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Pomri's saffa joined him and together they announced their presence to the lands of Rudjan.
 
 
 <!--
