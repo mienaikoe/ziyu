@@ -69,11 +69,15 @@ If they get into Rudjan
 
   Pomri's saffa went in first, and Bavle stopped Melna's saffa.
 
-  "And you two be on your best behavior. I don't want to jump in the water to save some kid who can't swim."
+  "Now you two, keep a watchful eye. All sorts of trouble is brewing lately."
 
-  "We will," Melna said, still a little annoyed at the two.
+  "Thank you for letting us know. We'll remain vigilant while we're here," she responded with an unmistakeable kind of sincerity. A curiosity pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
 
-  They passed through the giant iron gate and immediately entered onto a pier of a bustling market of small ships lit by oil lanterns bobbing to and fro from their latch points on each end of the bows and sterns.
+  "Bavle," she asked passing while underneath the gate. Will you be okay?" she asked, careful to avoid making her uncomfortable.
+  
+  Bavle chortled and quickly pulled her clothing tighter around her chest, "Yes we'll be okay. It takes more than a bit of cold to make the Rudjanese quiver."
+
+  Melna bowed in respect and implored Linyu to do so while they bid farewell to the keeper who had already turned to close the gate. They passed through two sets of the giant iron gates and immediately entered onto a pier of a bustling market of small ships lit by oil lanterns bobbing to and fro from their latch points on each end of the bows and sterns.
   
 
 
