@@ -71,72 +71,76 @@ If they get into Rudjan
 
   "Now you two, keep a watchful eye. All sorts of trouble is brewing lately."
 
-  "Thank you for letting us know. We'll remain vigilant while we're here," she responded with an unmistakeable kind of sincerity. A curiosity pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
+  "Thank you for letting us know. We'll be vigilant," she responded with an unmistakeable kind of sincerity. Her curious eye pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
 
-  "Bavle," she asked passing while underneath the gate. Will you be okay?" she asked, careful to avoid making her uncomfortable.
+  "Bavle," she asked passing while underneath the gate. "Will you be okay?"
   
-  Bavle chortled and quickly pulled her clothing tighter around her chest, "Yes we'll be okay. It takes more than a bit of cold to make the Rudjanese quiver."
+  Bavle chortled and quickly pulled her clothing tighter around her chest, "Yes I'll be okay. It takes more than a bit of cold to make the Rudjanese quiver."
 
-  Melna bowed in respect and implored Linyu to do so while they bid farewell to the keeper who had already turned to close the gate. They passed through two sets of the giant iron gates and immediately entered onto a pier of a bustling market of small ships lit by oil lanterns bobbing to and fro from their latch points on each end of the bows and sterns.
+  Melna bowed in respect and implored Linyu to do so while they bid farewell to the keeper who had already turned to close the gate. They passed through two sets of the giant iron gates and immediately entered onto the pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society.
   
+  By the time Melna had caught up to Pomri, she had already got off of her saffa and bought some grilled shellfish on a stick to eat. She handed Linyu a kebab of hae own and thi showed none of hae usual reluctance to take it.
 
+  "You'll have to get your own, Melna."
 
+  "I figured you'd say that."
 
+  Melna dismounted from Laen-Laen, careful not to disrupt Linyu, and approached a row of merchants selling a myriad of items.
 
+  One called out to her, "Aye aren't you a beauty. A girl like you could use a pearl or two."  
   
-  <!-- new above, old below-->
+  If she were just a few Na'to younger, she might have given in to such an idea, but she knew that she was old enough not to be called a girl, and just young enough to bask alone in the empty compliment.
+  
+  "Do saffa eat fish?" She asked a fisher.
+
+  Thi replied, "Aye. They'll eat just about anything in my experience."
+
+  "I'll have two of whatever you suggest, and four paddlebreads."
+
+  "Alright then. Two Ferch," thi reached for the most expensive ones. "Do you want them grilled?"
+
+  She thought it best to be safe, "Yes, please."
+
+  The merchant set the fish onto a large pipe behind her that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal.
+
+  "That will be 90," thi said while wrapping the bread in dried kelp.
+
+  Melna paused in confusion and then, recalling that she was no longer in the share community of Heiko, rummaged in her bag for two 50 coins and handed them over.
+
+  "Keep the extra," she said.
+
+  "Thank you!" said the merchant in a sing-song voice.
+
+  Melna's curiosity made her ask more, "You all seem to be doing well even with the Obscura looming over Ara."
+
+  "Yes. Well, when the vegetation dies off, the fish seem to bite at anything. Even if it's in a net."
+
+  "Aren't you afraid that your fish will be next to die?"
+
+  Thi moved to turn over the fish on the grill pipe.
+  
+  "Well, yes. But what can I do about that? It is not easy to dry fish with a dim Ara. They rot too quickly. And we have enough grain from Heiko to keep us going until Holragi figures out what's going on."
+
+  "But what will you do if you run out of food before then?"
+
+  "We must have faith. We would have killed each other in fear already if we didn't have faith."
+
+  "I see," said Melna.
+
+  "Your fish are ready."
+
+  Thi handed her the two fish wrapped in dried kelp, and Melna accepted them, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and rejoined Linyu and Pomri.
+
+  "The people here. They're blissfully ignorant of their impending doom," Melna said. She fed one of the fish to Laen-Laen, and the other to Pomri's saffa. "It's like they aren't prepared at all."
+
+  Pomri replied in a serious tone, "I think you have us wrong, Melna. We know exactly what happens when starvation sets in. Our city was founded on it in a way. But we survived be helping one another. Nothing good comes from panic."
+
+  "But the founders of Rudjan at least had alternate plans if things didn't go so well, didn't they?"
+
+  "As settlers? No. They knew that their lives were in danger by traveling far from Shaki. They might not find food on the way, or they might not find the land they were looking for, or thieves in the know might jump them in the dark. But they left anyway. Going back was never an option. It's the same now as it was then. We would be better off dead than leaving the home we worked so hard to build."
 
 
-  "Rudjan is locked to travel," an elderly guard told them at the gate into the city.
-
-  "I am a Heiko senator passing through to Shaki. Please let us pass," Melna told him.
-
-  "My apologies, žah, I cannot even open the gate. You'll have to find a way around."
-
-  Pomri interjected, "That's crazy. We need to board the train."
-Rudjan
-  "I've told you all I know," said the guard.
-
-  Melna held Linyu steady and jumped off of Laen-Laen's back to approach the guard while Pomri remained mounted.
-
-  She asked him, "Can you ask anyone to open the gate?"
-
-  "I'm locked out of the city until I am relieved from my shift at mid-day."
-
-  "Rudjan has never been this tightly locked. What is the reason?" Pomri demanded.
-
-  "There is no more food or space to support refugees. We cannot risk taking in a single person as it would mean risking the lives of all our citizens."
-
-  Pomri was visibly angry now. "This is ridiculous. Whose law is this?"
-
-  "Our senators told us this was a decree that the entire senate has made."
-
-  "If the senate had agreed on such a rule, I would have known," said Melna.
-
-  "I don't know what to tell you, žah."
-
-  Melna began to pace slowly, frustrated but holding steady on a more pensive state of mind. She pondered busting through the gate somehow, but ruled out the bending of thick steel bars as a matter of time.
-
-  She turned to Pomri and asked, "What if we went the other way?"
-
-  "What other way?"
-
-  "You said the only way is through the desert. What about the ocean?"
-
-  "The ocean is dangeorus without light or wind. If the vessel unhooks from the rail, we could be drifting out into the darkness."
-
-  "Ah. I see," she said. She turned around to the guard and asked him, "Excuse me, do you know of a good ship and captain we could hire?"
-
-  "Toward Shaki? There aren't many fishers who know that route."
-
-  "Any ship will do, as long as we can trust the captain."
-
-  "The only ships like that go to Ulukoma first. Check the far dock."
-
-  "Thank you sir."
-
-  "Oh and uh..." He hesitated. "There's a captain named Ramne who runs a ship that way. I wouldn't trust him."
-
+<!--
   Linyu whimpered in fear at his name, drawing Pomri's attention.
 
   "Eh? What's gotten into you?" she asked.
@@ -153,7 +157,7 @@ Rudjan
 
   "Mom," thi said, at the end of hae wit.
 
-  <!-- TODO: -->
+
 
 
   "I take it you're not a boat person. Well, we can't go back now so you're either coming with us or you're on your own again."
@@ -162,10 +166,5 @@ Rudjan
 
   "Together," thi whispered. Pomri smiled at hae courage.
 
+-->
 
-*************
-
-
-  "One night is all I ask," Said the fisherwoman, chiding a starving maman.
-
-  "For a fish?"
