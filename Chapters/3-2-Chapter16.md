@@ -71,7 +71,7 @@
 
   "Stay here, Linyu. I'll be right back."
 
-  She cautiously approached the pair in the corner. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a maman about his height and build, twiddling with a small steel bar with a bend at the end.
+  She approached the pair in the corner wearing an impeccable posture in lieu of her robes. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a maman about his height and build, twiddling with a small steel bar with a bend at the end.
 
   She greeted them, "Hi there. Do you know if this is when the train typically arrives?"
 
@@ -99,15 +99,15 @@
 
   Mel hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
 
-  "Hurry it up!" The woman demanded with the bar still at Melna's neck.
+  "Hurry it up!" The maman demanded with the bar still at Melna's neck.
 
   Suddenly, a voice called from behind them, "Melna. glad I found you."
 
-  The pair turned around to find Pomri, on her own saffa, holding a titanium spear as long as her body was tall.
+  The pair turned around to find Pomri, on her own saffa, holding a titanium sword to the maman's neck.
 
   "Looks like you've made some friends," she said.
 
-  The man immediately dropped the steel bar and tugged on the maman's arm and they dashed away from the station as fast as they could.
+  The maman immediately dropped the steel bar and tugged on the man's arm and they dashed away from the station as fast as they could.
 
   "You're woefully unprepared," said Pomri.
 

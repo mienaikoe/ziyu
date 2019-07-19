@@ -3,10 +3,19 @@
 - The three are blocked from entering Rudjan
 
 If they get into Rudjan
+- Describe the city, meet some ppl
+- Head to the comms office
+  - talk to Thimli, 
+    - The obscura are a countless number of machines. They have stopped building over the past day.
+    - he confirms that Liffa is near L2. Trajectory looks to be bleeding off velocity in the atmosphere near Heiko, and then again near Holragi, and finally landing somewhere in the desert.
+    - trajectories are looking like the empty vessels are not going as far out as Liffa. Melna says to keep looking. (Not close enough to see their shapes yet)
+  - Melna asks the big question to Linyu
+    - Linyu explains radio briefly with drawings
+    - Ramne barges in, and they have an intense look and then a chase scene.
+
 - They can talk to Thimli
   - Thimli can deliver evidence of bombs
-- Describe the city of water
-  - In chaos
+
 - They have to roam covertly
   - Ramne turns into a chase scene
   - Ramne has antikan, so Ginnu can see
@@ -137,7 +146,19 @@ If they get into Rudjan
 
   "But the founders of Rudjan at least had alternate plans if things didn't go so well, didn't they?"
 
-  "As settlers? No. They knew that their lives were in danger by traveling far from Shaki. They might not find food on the way, or they might not find the land they were looking for, or thieves in the know might jump them in the dark. But they left anyway. Going back was never an option. It's the same now as it was then. We would be better off dead than leaving the home we worked so hard to build."
+  "As settlers? No. They knew that their lives were in danger by traveling far from Shaki. They might not find food on the way, or they might not find the land they were looking for, or thieves in the know might jump them in the dark. But they left anyway. Going back was never an option. It's the same now as it was then. We would be better off dead than struggling under someone else's foot."
+
+  "I will applaud your peoples' clarity of purpose, if not your stubborn insistence on independence."
+
+  "We bow to no one, Melna. Not even to you."
+
+  They both re-assumed their positions on their saffas, making gentler movements in light of their slightly fuller bellies.
+
+  Melna asked, "To the train then?"
+
+  "To the train."
+
+  "Train," Linyu chimed in a whisper.
 
 
 <!--
