@@ -11,12 +11,15 @@
 
 - Somehow explain how the time system works,
 
+- Accentuate the train pipes
+
 - Make the city come alive in ch 3 instead of just rando getting a roll to eat.
 
 - City smells, tastes, sounds, dialog with strangers
 
 - More Deep Hard Scifi talk in the senate about what the obscura could be.
-  - Show off their level of technology, philosophy, and astronomy
+  - Show off their level of technology, philosophy, and astronomy.
+  - Clarify that Heiko supplies astronomy and biology research to the world (agrarian culture).
 
 - Fajro should be depicted as almost reptilian though human-like
 
@@ -38,6 +41,9 @@
 - Kanosin is made out of Bluekelp, and is addicting.
   - Secretly: This is how bluekelp evolved. It keeps people alive and addicted so they keep coming back to it to    spread its spores through the water or through Kanosin.
   - Secretly: Kanosin responds to radio and can be used for mind control.
+
+- Lissa mentions that doctors like Kip give her great customers
+  - Hinting at the opioid crisis
 
 - Casra tried to kill Lissa before but it didn't work, but it's not obviously the bluekelp, just subtly.
 

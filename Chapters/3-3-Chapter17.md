@@ -76,17 +76,21 @@ If they get into Rudjan
 
   "Just another day for Pomri."
 
-  Pomri's saffa went in first, and Bavle stopped Melna's saffa.
+  Pomri's saffa went in first, but Bavle stopped Melna before she could pass through behind.
 
-  "Now you two, keep a watchful eye. All sorts of trouble is brewing lately."
+  "Now, you two keep a watchful eye. All sorts of trouble has been brewing lately."
 
   "Thank you for letting us know. We'll be vigilant," she responded with an unmistakeable kind of sincerity. Her curious eye pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
 
   "Bavle," she asked passing while underneath the gate. "Will you be okay?"
   
-  Bavle chortled and quickly pulled her clothing tighter around her chest, "Yes I'll be okay. It takes more than a bit of cold to make the Rudjanese quiver."
+  Bavle chortled and quickly pulled her clothing tighter around the wound, "Yes I'll be okay. It takes more than a few thugs to bother me."
 
-  Melna bowed in respect and implored Linyu to do so while they bid farewell to the keeper who had already turned to close the gate. They passed through two sets of the giant iron gates and immediately entered onto the pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society.
+  Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle and thi asked, "She. Hurt?" 
+  
+  Melna broke her focus to see Linyu staring back up at her. Hae blue eyes like flames in the twilight. She scratched a bit at hae head and said, "Not for long."
+  
+  They passed through two giant iron gates and immediately found themselves on a wide pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society.
   
   By the time Melna had caught up to Pomri, she had already got off of her saffa and bought some grilled shellfish on a stick to eat. She handed Linyu a kebab of hae own and thi showed none of hae usual reluctance to take it.
 
@@ -106,13 +110,13 @@ If they get into Rudjan
 
   "I'll have two of whatever you suggest, and four paddlebreads."
 
-  "Alright then. Two Ferch," thi reached for the most expensive ones. "Do you want them grilled?"
+  "Alright then. Two semah," thi reached for two red fish that were nearly the size of hae arms. "Do you want them cooked?"
 
   She thought it best to be safe, "Yes, please."
 
-  The merchant set the fish onto a large pipe behind her that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal.
+  The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. Thi also pulled out four small balls of dough and set them on a counter. Carefully, she rolled them out flat with the handle of a short boat paddle, and then used the round blade to move the bread to another part of the hot pipe.
 
-  "That will be 90," thi said while wrapping the bread in dried kelp.
+  "That will be 90," thi said, wiping hae hands on hae kelp apron.
 
   Melna paused in confusion and then, recalling that she was no longer in the share community of Heiko, rummaged in her bag for two 50 coins and handed them over.
 
@@ -138,7 +142,7 @@ If they get into Rudjan
 
   "Your fish are ready."
 
-  Thi handed her the two fish wrapped in dried kelp, and Melna accepted them, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and rejoined Linyu and Pomri.
+  Thi handed her the two fish wrapped in dried kelp, and Melna accepted them, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and rejoined with the others.
 
   "The people here. They're blissfully ignorant of their impending doom," Melna said. She fed one of the fish to Laen-Laen, and the other to Pomri's saffa. "It's like they aren't prepared at all."
 
@@ -152,7 +156,22 @@ If they get into Rudjan
 
   "We bow to no one, Melna. Not even to you."
 
-  They both re-assumed their positions on their saffas, making gentler movements in light of their slightly fuller bellies.
+  Melna turned to Linyu and said, "Hey, let's say our goodbyes to Laen-Laen." 
+  
+  "Goodbye?" thi asked in a worried tone.
+
+  "He'll be fine here. But we can't take him on the train, he's too big."
+
+  Linyu held tight Laen-Laen's neck, brushing his neck with hae hands, while Melna spoke to him.
+  
+  "Hey Laen. We might be gone for a while. You should be safe with the other saffa on the wetlands, ok?"
+
+  He whooped low, hearing the uncertainty in her tone. She nuzzled him despite his fishy breath and then reached out to Linyu to draw hae closer to her.
+
+  "I'll be back then," Pomri said, leading the saffas back toward the gate to bring them to Bavle.
+
+  <!-- Demonstrate Linyu's attachment to Laen, and willingness to grow. -->
+  <!-- Show Melna's insistence on knowing about the listener -->
 
   Melna asked, "To the train then?"
 
@@ -160,6 +179,7 @@ If they get into Rudjan
 
   "Train," Linyu chimed in a whisper.
 
+  The city seemed to have been made for boats before people, 
 
 <!--
   Linyu whimpered in fear at his name, drawing Pomri's attention.
