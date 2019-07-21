@@ -181,11 +181,11 @@
 
   "Linyu, do you know much about Rudjan?"
 
-  Linyu looked at her vacantly, annoyed that she was talking to hae again.
+  Linyu looked in her direction with a vacant face, annoyed that she was talking again.
 
-  "Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko. The original settlers found this giant freshwater wetland and realized that the center of it would be safe from invaders."
+  "Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
 
-  "It wasn't very safe from saffa," Mel butted in.
+  "It wasn't very safe from saffa," Melna butted in.
 
   Pomri shot her a glare, and continued teaching.
 
@@ -199,7 +199,7 @@
 
   "How would you know this story anyway?"
 
-  "I hear it everytime I come here with a Rudjanian."
+  "I hear it everytime I come here with a Rudjanese."
 
   "Good. Then let Linyu hear it too."
 
@@ -207,13 +207,13 @@
 
   "Now that you know about our history, let me tell you about the bridge we're crossing."
 
-  Linyu leaned back and looked toward Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
+  Linyu leaned back against Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
 
   "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a stone in the desert."
 
   She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothing that life had swept her way.
 
-  "Linyu reminds me to stay grounded through the trouble we're preparing for. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
+  "Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
 
   Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Pomri's saffa joined him and together they announced their presence to the lands of Rudjan.
 

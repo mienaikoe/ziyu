@@ -35,7 +35,7 @@ If they get into Rudjan
 
 ## Chapter 17
 
-
+<!-- Gate -->
   One gatekeeper stood vigil at the end of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Yanshan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
 
   "Well look who it is," she scoffed as the group approached her, "The traitor and the liar. Quite the band of thieves you make."
@@ -70,11 +70,11 @@ If they get into Rudjan
 
   Bavle couldn't stop laughing, but moved to a hidden panel in the wall and with an effortless flick of the finger, she activated a switch to the gate motors.
 
-  "Oh I've missed your damn face, Pomri. Come back when the obscura are gone."
+  "Oh I've missed your damn face, Pomri. Come back when Ara is back."
 
   "I will. Just gotta save the world first."
 
-  "Just another day for Pomri."
+  "Just another day for you."
 
   Pomri's saffa went in first, but Bavle stopped Melna before she could pass through behind.
 
@@ -86,10 +86,12 @@ If they get into Rudjan
   
   Bavle chortled and quickly pulled her clothing tighter around the wound, "Yes I'll be okay. It takes more than a few thugs to bother me."
 
-  Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle and thi asked, "She. Hurt?" 
+  Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle and thi asked, "She. Hurt?"
   
   Melna broke her focus to see Linyu staring back up at her. Hae blue eyes like flames in the twilight. She scratched a bit at hae head and said, "Not for long."
   
+<!-- Merchant's Quarter -->
+
   They passed through two giant iron gates and immediately found themselves on a wide pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society.
   
   By the time Melna had caught up to Pomri, she had already got off of her saffa and bought some grilled shellfish on a stick to eat. She handed Linyu a kebab of hae own and thi showed none of hae usual reluctance to take it.
@@ -144,6 +146,8 @@ If they get into Rudjan
 
   Thi handed her the two fish wrapped in dried kelp, and Melna accepted them, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and rejoined with the others.
 
+<!-- Saffas eating -->
+
   "The people here. They're blissfully ignorant of their impending doom," Melna said. She fed one of the fish to Laen-Laen, and the other to Pomri's saffa. "It's like they aren't prepared at all."
 
   Pomri replied in a serious tone, "I think you have us wrong, Melna. We know exactly what happens when starvation sets in. Our city was founded on it in a way. But we survived be helping one another. Nothing good comes from panic."
@@ -178,8 +182,6 @@ If they get into Rudjan
   "To the train."
 
   "Train," Linyu chimed in a whisper.
-
-  The city seemed to have been made for boats before people, 
 
 <!--
   Linyu whimpered in fear at his name, drawing Pomri's attention.
