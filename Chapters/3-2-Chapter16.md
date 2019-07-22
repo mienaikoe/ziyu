@@ -215,7 +215,7 @@
 
   "Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
 
-  Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Pomri's saffa joined him and together they announced their presence to the lands of Rudjan.
+  Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Pomri's saffa joined him and together they announced their presence to the wetlands of Rudjan.
 
 
 <!--
