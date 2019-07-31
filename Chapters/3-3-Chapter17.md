@@ -114,21 +114,21 @@ If they get into Rudjan
 
   If she were just a few Na'to younger, she might have given in to such an idea, yet she knew that she was well old enough not to be called a girl, and just young enough to bask alone in the empty compliment.
 
-  She approached a fisher and asked, "Do you have paddlebreads?"
+  She approached a fisher and asked, "Do you have flatbreads?"
 
   Thi replied, "Aye. Make 'em fresh too."
 
-  "I'll have four of those and two of whatever fish you suggest."
+  "I'll have six of those and whatever fish you suggest."
 
-  "Alright then. Two semah," thi reached for two red fish that were the size of hae hands. "Do you want them cooked?"
+  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was the size of hae hand. "Do you want it cooked?"
 
   "Yes, please."
 
-  The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. From a clay pot, thi also pulled out four small balls of dough and set them on a counter. With methodical and skillful hands, she rolled them out flat with the round handle of a short boat paddle, and then used the smooth flat blade to move the bread to the hot pipe as well.
+  The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. From a clay pot, thi also pulled out six small balls of dough and set them on a counter. With methodical and skillful hands, she rolled them out on a small round table using the round handle of a short boat paddle, and then used the smooth flat blade to move the bread to the hot pipe as well.
 
   "That will be 90," thi said, wiping hae hands on hae apron.
 
-  Melna paused in confusion and then, recalling that she was no longer within the communal economic zone of Heiko, rummaged in her bag for two 50 coins and handed them over.
+  Melna hesitated and then, recalling that she was no longer within Heiko, rummaged in her bag for two 50 coins and handed them over.
 
   "Keep the extra," she said.
 
@@ -140,7 +140,7 @@ If they get into Rudjan
 
   "Aren't you afraid that your fish will be next to die?"
 
-  Thi moved to turn over the fish on the grill pipe.
+  Thi moved to turn over the fish and bread on the pipe.
 
   "Well, yes. But what can I do about that? It is not easy to dry fish with a dim Ara. They rot too quickly. And we have enough grain from Heiko to keep us going until Holragi figures out what's going on."
 
@@ -150,11 +150,15 @@ If they get into Rudjan
 
   "I see," said Melna.
 
-  "Your fish are ready."
+  Thi went back to the pipe and pulled three long pieces of kelp from a barrel nearby to wrap the fish and bread. Hae gestures were quick and confident, as if hae mind were taking a rest and letting hae hands do all the thinking for a time. 
 
-  Thi handed her the two fish wrapped in dried kelp, and Melna accepted them, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and rejoined with the others.
+  "Your food is ready," thi said.
 
-  "The people here. They're blissfully ignorant of their impending doom," Melna said. She fed one of the fish to Laen-Laen, and the other to Pomri's saffa. "It's like they aren't prepared at all."
+  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, taking in the sounds and ignoring Pomri who was trying to make small talk. 
+  
+  "Bread?," she butted in, lighting up Linyu's face. She handed them both a cake and then leaned against a wall near Linyu to eat her fish.
+
+  "The people here," she addressed Pomri. "They're blissfully ignorant of their impending doom. It's like they aren't prepared at all."
 
   Pomri replied in a serious tone, "I think you have us wrong, Melna. We know exactly what happens when starvation sets in. Our city was founded on it in a way. But we survived be helping one another. Nothing good comes from panic."
 
@@ -166,7 +170,17 @@ If they get into Rudjan
 
   "We bow to no one, Melna. Not even to a senator."
 
-  "Well no need to bow, but shall we eat while making our way to the conduit?"
+  Pomri and Melna finished their last morsels of lunch while Linyu had stopped about halfway through the bread.
+
+  "Here. You can put the bread back so you can eat the rest later," she said to Linyu.
+
+  Thi said, "Okay," hae throat struggling a little less than before.
+
+  Melna trimmed Linyu's bread at the biting edge and then put it back into its kelp package.
+
+  "We're headed to the trains, but first I have to stop by the conduit. Have you been to a conduit before?"
+
+  "A long time ago," thi said, a little sad but mostly excited.
 
   <!-- No need to feed saffas if they can find tons of food on the wetlands. -->
   <!--  -->
