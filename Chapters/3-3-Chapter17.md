@@ -178,6 +178,8 @@ If they get into Rudjan
 
   Melna trimmed Linyu's bread at the biting edge and then put it back into its kelp package.
 
+<!-- Talking about Ulukoma -->
+
   "We're headed to the trains, but first I have to stop by the conduit. Have you been to a conduit before?"
 
   "Before," thi said with a longing gesture on hae face.
@@ -200,7 +202,7 @@ If they get into Rudjan
 
   "I... Don't."
 
-  
+
 
 
 
