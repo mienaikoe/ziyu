@@ -92,6 +92,12 @@
 - Make it clear Lissa has died before
 
 
+### Interlogue
+- Make it clearer when the transition between the tunnel and leaving the tunnel happens.
+- Reword, don't add.
+
+
+
 ### Part 3
 
 - War as a catalyst for social reform
@@ -100,41 +106,43 @@
 
 
 
+### Part 4
 
+- Oberth Effect
+  - The Oberth effect is strongest at a point in orbit known as the periapsis, where the gravitational potential is lowest, and the speed is highest. This is because firing a rocket engine at high speed causes a greater change in kinetic energy than when fired at lower speed. Because the vehicle remains near periapsis only for a short time, for the Oberth maneuver to be most effective the vehicle must be able to generate as much impulse as possible in the shortest possible time.
 
+- Option 1: Uplift Gone Wrong
+  - Summary
+    - The obscura wanted to uplift the civilization but, end up lifting up the strong civilizations: Holragi
+    - They block the sun to stop Holragi and force the nation to unify.
+    - Holragi fights back, but are futile.
+    - Volcanic areas like Ulukom become a fallback.
+      - Forebears of life survived there against the same AI. How?
+    - Book 2 would focus on their stalemate
+  - Theme
+    - Uplifting is best done through radio, but is also a filter for communities that have radio.
+    - Technology of any kind can be a catalyst for political destabilization
+    - First Contact with a k-3 AI will likely be peaceful with the AI, and violent with every entity vying for
+    - Robots build would cause a split in the species: (radio societies could control the robots, non-radio societies would die off. The great filter. Why? Proof of advancement. Proof of work. Proof of research. Only societies that can cooperate and contribute to the last question are permitted to survive. Otherwise, their planet's resources are stripped and their star is harvested.)
+    - Plot Hole: Why is biological life needed for the final question? AI can do it more efficiently. access.
+    - Life is designed for survival. AI is designed for redundancy.
 
-Option3: Lissa has a covert army of moles and manipulators in every tribe, in Shaki and in the shadestead, slowly converting people with blackmail and bribery. Impossible to fight directly.
-  - Most realistic
-  - This would be interesting to plot Casra against Kip.
-    - But what could I do after that? Kip alone is useless. Would he demonstrate his trustworthiness?
-    - Kip's main goal is to figure out the antenna tech and get off of Ulu.
-      - He also wants to save Casra and Linyu.
-  - They use the antenna array to start a secret resistance movement.
-    - They learn amplitude mod and bring this tech to Heiko.
-    - Kip hears Lif on the radio after their network succeeds to thwart Lissa.
-    - Casra builds a new society in Ulu and prepares for the ice age.
+- Option 2: Energy Harvest
+  - Summary
+    - The obscura are harvesting as many stars as possible for the final problem
+    - They assume life no longer exists, so are unprotected from attack
+  - Theme
+    - K-1 life might have a home-turf advantage against a k-3 AI that is unprepared for attack
+    - Is the final problem worth it?
 
-- Robots are actually a diffuse neural cloud of microscopic phototransistors
-
-### Interlogue
-- Make it clearer when the transition between the tunnel and leaving the tunnel happens.
-- Reword, don't add.
-
-### Part 3
-  - Casra and Linyu leave with Kip.
-  - Mel uses Kip's technology when she visits the obstruction to control the robots to block the bombs otherwise they would hit Heiko.
-    - Robots build would cause a dichotomy: (radio societies could control the robots, non-radio societies would die off. The great filter. Why? Proof of advancement. Proof of work. Proof of research. Only societies that can cooperate and contribute to the last question are permitted to survive. Otherwise, their planet's resources are stripped and their star is harvested.)
-
+- Option 3: Gods
   - Black Hole Planet
     - The metal gods below are preserving life
     - the metal gods above want to destroy it
-
-    the population is growing too rapidly for a planet to survive war and pollution. They either:
-      - kill off their population
-        - Holragi's approach
-      - convince the AI that they can curtail their growth
-        - Lif: "They need a sign of good faith, and they'll give us 10 years."
-      - destroy the AI and solve the problem later
-        - Readers would hate humanity for kicking the can down the road
-      - Deliver the message in the next book
-        - This would be like mass effect
+      - the population is growing too rapidly for a planet to survive war and pollution. They either:
+        - kill off their population
+          - Holragi's approach
+        - destroy the AI and solve the problem later
+          - Readers would hate their own species for kicking the can down the road on similar problems.
+        - Deliver the message in the next book
+          - This would be like mass effect

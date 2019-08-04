@@ -150,12 +150,12 @@ If they get into Rudjan
 
   "I see," said Melna.
 
-  Thi went back to the pipe and pulled three long pieces of kelp from a barrel nearby to wrap the fish and bread. Hae gestures were quick and confident, as if hae mind were taking a rest and letting hae hands do all the thinking for a time. 
+  Thi went back to the pipe and pulled three long pieces of kelp from a barrel nearby to wrap the fish and bread. Hae gestures were quick and confident, as if hae mind were taking a rest and letting hae hands do all the thinking for a time.
 
   "Your food is ready," thi said.
 
-  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, taking in the sounds and ignoring Pomri who was trying to make small talk. 
-  
+  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, taking in the sounds and ignoring Pomri who was trying to make small talk.
+
   "Bread?," she butted in, lighting up Linyu's face. She handed them both a cake and then leaned against a wall near Linyu to eat her fish.
 
   "The people here," she addressed Pomri. "They're blissfully ignorant of their impending doom. It's like they aren't prepared at all."
@@ -180,10 +180,37 @@ If they get into Rudjan
 
   "We're headed to the trains, but first I have to stop by the conduit. Have you been to a conduit before?"
 
-  "A long time ago," thi said, a little sad but mostly excited.
+  "Before," thi said with a longing gesture on hae face.
 
-  <!-- No need to feed saffas if they can find tons of food on the wetlands. -->
-  <!--  -->
+  "Before? Before what?"
+
+  Thi hesitated and looked away again, but Melna didn't relent this time, stooping to Linyu's level with her hands on hae shoulders.
+
+  "Linyu. I know that whatever happened to you must be difficult to remember, but if..." she hesitated to push her own troubles out of her mind. "If your parents or any of your family are out there, they must be worried looking for you."
+
+  Linyu was done being sad, and had turned to anger. "Fire. Awoke here," thi said, straining through every word.
+
+  "Where did this happen?"
+
+  "Ulu. Koma." *Kipnu!*
+
+  She regained her focus, "You don't remember how you got here?"
+
+  Linyu paused staring at Melna's nose with those blank eyes illuminating her face like a lantern searching for figures in the darkness.
+
+  "I... Don't."
+
+  
+
+
+
+  <!--
+
+  "Ramne. Who is Ramne?"
+
+  "I've heard of him," Pomri chimed in. "He used to be some nobody in the Rudjan guard who thought he was smarter than the rest of us. Never got promoted, so he just left us one day without a trace."
+
+   -->
 
 
 
