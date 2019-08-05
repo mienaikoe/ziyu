@@ -176,7 +176,7 @@ She led hae to a simple twist valve that fed into a wide plate set into the wall
 
 "Well I'll leave you to your wash-up," she said and left the room with the towel sitting on a short table near the entryway.
 
-Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged from the washroom showing Linyu unabashedly bare save for a pendant and fumbling with the trinket on hae ear.
+Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged from the washroom showing a bare Linyu fumbling with a large pendant and the trinket on hae ear.
 
 Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
@@ -226,7 +226,7 @@ Linyu whispered, "Liffa".
 
 "Yes. That's hae name."
 
-Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger, guilt, and shame.
+Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger.
 
 "Mel-na," Linyu whispered under hae breath, as thi moved closer to comfort her. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
 

@@ -248,27 +248,4 @@ Linyu quickly finished checking the two and hae eyes started to water. Without a
 
 "Kip," thi whispered through tears. She let hae cry a bit more but her mind kept racing back and forth to all of the possibilities that could have led to this moment.
 
-"Is he ok?" She asked.
-
-Thi shook hae head.
-
-"Was it the fire?"
-
-Thi shook hae head again.
-
-"Do you know where he is?"
-
-"Mom," thi whispered with a tremble.
-
-"Your mother – he's with your mother?"
-
-Thi began to cry more and Mel held her shoulder out to cry on. For the moment, she believed Kip to be safe.
-
-"Linyu, please. Let me have this. I am bound to Kipnu."
-
-
-
-"Linyu, I'm sorry. I- I just... miss him."
-
-It smelled faintly of the ocean, but nothing else stood out to her. *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
 -->

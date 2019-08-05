@@ -35,6 +35,8 @@
 
 - Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
 
+- Kip's supressed desires thing comes out of nowhere. Introduce this earlier in the book.
+
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
   - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?
 
@@ -90,6 +92,24 @@
 - Embalming in salt - salt graves
 
 - Make it clear Lissa has died before
+
+
+#### Hidden ending of part 2:
+- Kipnu drowns trying to save Casra
+  - Setre survives and finds Kipnu's body in the ocean
+  - Lissa gave him antikan so he could feel pain from the knife, so he can't be resurrected.
+- Ramne assumes control over Ulukoma
+- Ginnu dies in the basement
+  - but is resurrected because of Kanosin in her blood at death.
+  - She remains Ramne's slave, as she is blind.
+  - but pretends not to know because she intends to kill Ramne.
+- Linyu dies at the hand of Ramne in strangulation
+  - Linyu is reviving (Coma)
+  - Setre brings Linyu to flee Ramne-controlled Ulukoma
+  - They head to Kipnu's home in search of Melna
+  - Setre must hide because she is in the ranks of the kanosin trade but not high enough to be protected.
+  - She was also a prolific thief before landing in Ulukoma.
+- Casra is definitely dead, but unclear whether the kelps upload their brains.
 
 
 ### Interlogue

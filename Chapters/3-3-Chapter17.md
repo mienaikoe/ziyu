@@ -178,30 +178,81 @@ If they get into Rudjan
 
   Melna trimmed Linyu's bread at the biting edge and then put it back into its kelp package.
 
+  "We're headed to the trains toward Shaki, but first I have to stop by the conduit, ok?"
+
+  She took hae hand and traced the path they would take on hae palm.
+
+  "Just hold tightly to my hand, and I won't let you run into anything."
+
+  "Okay," thi said.
+
+  Melna led the way while Pomri took the rear to keep a sharper eye for trouble. They passed over a bridge to the first island, upon which a public garden was built full of trees that grew high above the nearby buildings.
+
 <!-- Talking about Ulukoma -->
 
-  "We're headed to the trains, but first I have to stop by the conduit. Have you been to a conduit before?"
+  "Have you been to a conduit before?" Melna asked along the path.
 
-  "Before," thi said with a longing gesture on hae face.
+  "Before," thi said with a longing tone.
 
-  "Before? Before what?"
+  "Before what?"
 
-  Thi hesitated and looked away again, but Melna didn't relent this time, stooping to Linyu's level with her hands on hae shoulders.
+  Thi hesitated and looked away, but Melna didn't relent this time.
 
   "Linyu. I know that whatever happened to you must be difficult to remember, but if..." she hesitated to push her own troubles out of her mind. "If your parents or any of your family are out there, they must be worried looking for you."
 
-  Linyu was done being sad, and had turned to anger. "Fire. Awoke here," thi said, straining through every word.
+  "Fire... Woke here," thi said, straining through every word.
 
-  "Where did this happen?"
+  "Where was the fire?"
 
-  "Ulu. Koma." *Kipnu!*
+  "Home."
 
-  She regained her focus, "You don't remember how you got here?"
+  "Where is home?"
 
-  Linyu paused staring at Melna's nose with those blank eyes illuminating her face like a lantern searching for figures in the darkness.
+  "...Ulu."
 
-  "I... Don't."
+  "The ocean? Were you on a ship?"
 
+  Thi didn't respond, looking confused and agitated.
+
+  "Do you remember how you got here?"
+
+  "I...No," thi said, realizing the peculiarity of hae situation.
+
+  "Okay. Let's work backward then. What is the last thing you do remember?"
+
+  "Fire... nana... Kipnu."
+
+  Melna stopped in her tracks, aghast at hearing his name. "Kipnu? Were you in Ulukoma?"
+
+  Thi reached into hae shirt and pulled out Kipnu's binding pendant, which Melna bent down to see for herself. A golden yellow reflection stared back at her through the mirror polish she grew to recognize. It was scratched, but only lightly.
+
+  *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
+
+  "Is... is he ok?" She asked. "Do you know where he is?"
+
+  Thi fought with haeself to stay calm.
+
+  "Mom," thi tried to speak, but hae voice trembled and came out as a whisper.
+
+  "Your mother – he's with your mother?"
+
+  Thi looked sternly at her nose, staring at Melna's nose with those blank eyes illuminating her face like a lantern on the end of a boat, searching for figures in the darkness.
+
+  "I. Don't. Know."
+
+  "Please," Melna pleaded to hae, "Let me have this. Him and I are bound with Liffa."
+
+  Thi pressed it tightly against hae chest, not with intention to protect it from Melna, but to savor it as the last totem of memory thi had with Kipnu. Thi would only give it to someone thi trusted, and would certainly never let it leave hae sight.
+
+  "Okay," thi said, and lifted the pendant from hae neck and placed it over Melna's.
+
+  "Thank you, Linyu. Regardless of where Kipnu is, I know he must trust you a lot to give this to you."
+
+  "" <!-- TOOD -->
+
+  Pomri butted in, "Perhaps we should be going. The train doesn't wait."
+
+  <!-- At the conduit -->
 
 
 

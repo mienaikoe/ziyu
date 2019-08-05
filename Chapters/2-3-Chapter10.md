@@ -43,7 +43,7 @@ Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some 
 
 He did as she told and immediately winced.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see Lin eying the silver pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kip could see Lin eying the shiny pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
 
 "It's... gone. What is that stuff?" he asked.
 
@@ -73,7 +73,7 @@ Thi gently leaned into Linyu who reciprocated the gesture.
 
 "Set as in Setre? Thi was with you?"
 
-"Oh yes. 
+"Oh yes.
 
 "Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
 
