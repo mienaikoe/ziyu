@@ -242,15 +242,19 @@ If they get into Rudjan
 
   "Please," Melna pleaded to hae, "Let me have this. Him and I are bound with Liffa."
 
-  Thi pressed it tightly against hae chest, not with intention to protect it from Melna, but to savor it as the last totem of memory thi had with Kipnu. Thi would only give it to someone thi trusted, and would certainly never let it leave hae sight.
+  Thi pressed it tightly against hae chest, not in a protective manner, but taking time to cherish the memories of the man who saved hae from drowning.
 
-  "Okay," thi said, and lifted the pendant from hae neck and placed it over Melna's.
+  "Okay," thi said, and lifted the pendant from hae neck to place it over Melna's.
 
-  "Thank you, Linyu. Regardless of where Kipnu is, I know he must trust you a lot to give this to you."
+  "Thank you, Linyu. Wherever Kipnu is, I know he must trust you a lot to have given this to you."
 
-  "" <!-- TOOD -->
+  "I Hope," thi said, hoping for a lot of things. <!-- TOOD -->
 
-  Pomri butted in, "Perhaps we should be going. The train doesn't wait."
+  They held each other in silence, acknowledging their unique connection and the mystery of how it came to be, when Pomri butted in, "Žah-Melna, perhaps we should be on our way."
+
+  Melna paused and then inhaled to rise, and said "Yes. Let's get going."
+
+  And with her hand around Linyu's shoulder, they kept moving toward the conduit and the train station in the Northern quarter.
 
   <!-- At the conduit -->
 
