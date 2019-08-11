@@ -104,17 +104,19 @@ He whimpered a little, a suspicious complaint for a freezing saffa.
 
 "Laen-Laen, what's wrong?"
 
-He shifted his legs a little to reveal a little kaln dressed in strange kelp clothing curled at his belly.
+He shifted his legs a little to reveal a kaln dressed in strange kelp clothing curled into a ball at Laen-Laen's belly.
 
-"Oh my goodness," she exclaimed, reaching for hae, "Are you ok?"
+"Oh my goodness," she exclaimed, reaching for hae hand, "Are you ok?"
 
-Thi looked back at Mel with a vacant stare through glowing blue eyes and then scurried away, wanting to run but too exhausted to do so. Melna was startled by hae eyes, but settled herself.
+Thi stirred and looked up toward Melna's voice, showing hae eyes flecked with glowing blue spots and a sort of dark haze. By the time Melna had realized the pattern was not a reflection of Ulu, the kaln was scurrying away from Melna and the saffa. But to her surprise thi didn't run away. As she looked closer, thi saw hae face overwhelemed with confusion and bewilderment.
 
 "It's ok. I'm here to help," she comforted.
 
-With a hook-and-wrap motion, Mel gently placed her hands under the hae arms and propped hae upright on Laen-Laen's chest. In the dark, she could see two hand-shaped bruises around hae neck. Her eyes lingered on them, then turned to a strange device around hae left ear. Laen-Laen sniffed and licked the kaln's head, but thi stayed unmoving,
+In the dark, she could see two hand-shaped bruises around hae neck. Her eyes lingered on them, then turned to a strange device around hae left ear. Laen-Laen moved closer to sniff and lick the kaln's head, but thi stayed unmoving.
 
 "I am Melna," she said deliberately. Her hand rose to clasp haes. Thi flinched at first, and softened.
+
+"What is your name?" she asked gently.
 
 The kaln could only muster a whisper through hae raspy voice, so Melna bent down closer to hear.
 
