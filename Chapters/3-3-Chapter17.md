@@ -120,13 +120,15 @@ If they get into Rudjan
 
   "I'll have six of those and whatever fish you suggest."
 
-  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was the size of hae hand. "Do you want it cooked?"
+  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was a bit larger than the size of hae hand. 
+  
+  "Do you want it cooked?"
 
-  "Yes, please."
+  "Yes, please," she replied.
 
   The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. From a clay pot, thi also pulled out six small balls of dough and set them on a counter. With methodical and skillful hands, she rolled them out on a small round table using the round handle of a short boat paddle, and then used the smooth flat blade to move the bread to the hot pipe as well.
 
-  "That will be 90," thi said, wiping hae hands on hae apron.
+  "90 please," thi said, wiping hae hands on hae apron.
 
   Melna hesitated and then, recalling that she was no longer within Heiko, rummaged in her bag for two 50 coins and handed them over.
 
@@ -136,19 +138,27 @@ If they get into Rudjan
 
   Melna's curiosity made her ask more, "You all seem to be doing well even with the Obscura looming over Ara."
 
-  "Yes. Well, when the vegetation dies off, the fish seem to bite at anything. Even if it's in a net."
+  "Yes. Well, when the vegetation is scarce, the fish seem to bite at anything. Even if it's in a net."
 
-  "Aren't you afraid that your fish will be next to die?"
+  "But surely, your fish will be next to die. What will you do then?"
 
   Thi moved to turn over the fish and bread on the pipe.
 
-  "Well, yes. But what can I do about that? It is not easy to dry fish with a dim Ara. They rot too quickly. And we have enough grain from Heiko to keep us going until Holragi figures out what's going on."
+  "Then I'll catch bigger fish"
+
+  "And when those die?"
+
+  "Well, I suppose the Tilmarim would do."
+
+  Melna was getting irritated. "I suppose that I'm asking a question of nuance. Where is your line? Between blindly trusting an unkeepable promise and seeking survival on your own terms?"
+
+  "We have enough grain from Heiko to keep us going until Holragi figures out what's going on."
 
   "But what will you do if you run out of food before then?"
 
-  "We must have faith. We would have killed each other in fear already if we didn't have faith."
+  "We won't," thi said coldly. 
 
-  "I see," said Melna.
+  "I see," Melna replied
 
   Thi went back to the pipe and pulled three long pieces of kelp from a barrel nearby to wrap the fish and bread. Hae gestures were quick and confident, as if hae mind were taking a rest and letting hae hands do all the thinking for a time.
 
@@ -160,7 +170,7 @@ If they get into Rudjan
 
   "The people here," she addressed Pomri. "They're blissfully ignorant of their impending doom. It's like they aren't prepared at all."
 
-  Pomri replied in a serious tone, "I think you have us wrong, Melna. We know exactly what happens when starvation sets in. Our city was founded on it in a way. But we survived be helping one another. Nothing good comes from panic."
+  Pomri disagreed with her, "I think you have us wrong, Melna. We know exactly what happens when starvation sets in. Our city was founded on it in a way. But we survived be helping one another. Nothing good comes from panic."
 
   "But the founders of Rudjan at least had alternate plans if things didn't go so well, didn't they?"
 
