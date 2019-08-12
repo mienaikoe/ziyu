@@ -166,3 +166,8 @@
           - Readers would hate their own species for kicking the can down the road on similar problems.
         - Deliver the message in the next book
           - This would be like mass effect
+
+- Option 4: Great Filter
+  - The obscura know that immortality is the great filter upon which civilization falls
+    - The obscura found it (how?) and are trying to kill it
+      - They don't know it's volcanically active
