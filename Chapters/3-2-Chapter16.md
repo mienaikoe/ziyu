@@ -107,13 +107,13 @@
 
   "Looks like you've made some friends," she said.
 
-  The maman immediately dropped the steel bar and tugged on the man's arm and they dashed away from the station as fast as they could.
+  The maman tugged on the man's arm and they dashed away from the station as fast as they could.
 
   "You're woefully unprepared," said Pomri.
 
-  "And you're woefully late," Mel responded. Pomri made no argument.
+  Melna was furious. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
 
-  "Who's this kaln?" she asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
+  Pomri suspended her disagreement and aimed her tongue elsewhere. "Who's this kaln?" she asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
 
   "This is Linyu."
 
