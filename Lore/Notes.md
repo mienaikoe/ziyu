@@ -167,10 +167,20 @@
         - Deliver the message in the next book
           - This would be like mass effect
 
-- Option 4: Great Filter
+- Option 4: Kanosin = Great Filter
   - The obscura know that immortality is the great filter upon which civilization falls
     - The obscura found it (how?) and are trying to kill it
       - They don't know it's volcanically active
   - The mitochondria are the bringers of life, the immortochondria are bringers of death
   - mitochondria were an invention by a that was sent across the galaxy to create sentient life
   - immortochondria were meant to immortalize that life, but it turned out to be a great filter because every society had an imbalance that was exacerbated by the presence of immortochondria.
+  - immortochondria:
+    - like mitochondria
+      - mito = thread
+      - chondria = grain
+    - They provide oxygen in the absence of oxygen
+    - Pangum evolved to use radio waves from ziyu trees to regulate heartbeat
+      - These together mean that Pangum are virtually immortal with 
+    - ambrosia, panacea
+      - 
+    - diatoms are visible from space, and are photosynthetic
