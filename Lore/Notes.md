@@ -118,16 +118,27 @@
 
 
 
-### Part 3
+### Part 3 (Melna)
 
 - War as a catalyst for social reform
+- Traveling speaker stories
+  - Melna recruits people to her cause, and doesn't tell her plan to Pomri
+  - By speaking to people, she gains support against Holragi and Shaki.
+  - By searching for clues, she learns more about Linyu. Including something the reader doesn't know.
 
-- Lin should notice Mel's pendant without Mel bringing it up as a change of subject
 
 
 
-### Part 4
 
+### Part 4 (Linyu)
+
+- Ethnic displacement stories (Exodus,Trail of Tears)
+
+- After Linyu and Pomri go back to Heiko, they receive a message from Mel that tells them to migrate Ara-ward.
+  - Pomri knows better and doesn't abide by the demand.
+  - Explosions go off in the distance in the light, while Heikoans cower in fear at them, and Pomri is forced to lead. 
+  - She leads them to battle, recruiting help from Rudjan.
+  
 - Oberth Effect
   - The Oberth effect is strongest at a point in orbit known as the periapsis, where the gravitational potential is lowest, and the speed is highest. This is because firing a rocket engine at high speed causes a greater change in kinetic energy than when fired at lower speed. Because the vehicle remains near periapsis only for a short time, for the Oberth maneuver to be most effective the vehicle must be able to generate as much impulse as possible in the shortest possible time.
 

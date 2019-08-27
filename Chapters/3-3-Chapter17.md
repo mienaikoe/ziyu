@@ -264,10 +264,25 @@ If they get into Rudjan
 
   Melna paused and then inhaled to rise, and said "Yes. Let's get going."
 
-  And with her hand around Linyu's shoulder, they kept moving toward the conduit and the train station in the Northern quarter.
+  And with her hand around Linyu's shoulder, they kept moving away from merchants at the gate and toward the Northern quarter.
+
+  ********
 
   <!-- At the conduit -->
 
+  Melna took a glance at the colors in the sky from behind the nest of wires leading to the conduit. It was nearly time for the train to arrive. 
+  
+  "We must be prompt", she told them. "I will go to the conduit alone while you two head on to the train station and secure a spot for me."
+  
+  Linyu looked back with worried eyes, but Melna reassured hae, "I won't be long. Save me a seat near the window."
+  
+  "Come on," said Pomri. She pulled hae up onto her shoulders with ease, and made her way toward the station before thi could object.
+
+  She lingered there watching them but for a moment, then with a swift turn Melna began trotting toward the conduit tower with her mind focused on Thimlu and the strange dots in the sky.
+
+  The door slammed open just before she could reach for it and a large man with a disheveled look appeard out of it. His face held no expression, but the thickness and sweat on his ears told another story. Without looking, he walked straight toward Melna and paid her no mind as he shoved his way past her. She looked back at him, trying to gather why the man was in such a state, and found nothing of note but a boot of the same reed cloth that Linyu had worn. She considered the smarter option of maintaining her current path, but ultimately decided the dumb option of chasing after him.
+
+  "Hey! You!" she called to him, but he didn't respond, but kept walking quickly through the people on the islet. She started to run after him onto a pier toward the shipping district, but he seemed to move through the people without causing a stir. 
 
 
 
@@ -276,6 +291,11 @@ If they get into Rudjan
   "Ramne. Who is Ramne?"
 
   "I've heard of him," Pomri chimed in. "He used to be some nobody in the Rudjan guard who thought he was smarter than the rest of us. Never got promoted, so he just left us one day without a trace."
+
+
+  Fajro captures Melna
+
+  Linyu and Pomri don't make it on the train, and disappear effectively.
 
    -->
 

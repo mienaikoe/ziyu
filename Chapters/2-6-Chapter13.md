@@ -126,7 +126,7 @@ Setting:
 
   "It's alright," he said, oblivious to the tension in the room. "She's with us."
 
-  She shrugged him off and snapped at Ginnu, "Get the fuck away from my kaln."
+  She ignored him and snapped at Ginnu, "Get the fuck away from my kaln."
 
 	Ginnu's face was unchanged as she walked closer to them and the ladder. When she got close enough, Setre swiftly grabbed her wrists and held them behind her back.
 

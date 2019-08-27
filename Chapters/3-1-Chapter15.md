@@ -16,7 +16,7 @@
 
 "Senator Melna, I think you should see something."
 
-Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark at a telescope plate pointed toward the horizon. His eyes were exhausted but transfixed on the plate before him, as he carefully adjusted a dial on the lens output and made room for Melna.
+Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescope pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
 "What should I be looking for, Thimlu?" Melna asked.
 
@@ -34,11 +34,11 @@ She did as the observer instructed, closing her eyes for longer than she had the
 
 "Spacecraft. It looks like Holragi has their rail working."
 
-Flushed with anger, she rose from the plate and closed her eyes, facing into the darkest corner of the room.
+Flushed with anger, she rose from the plate and closed her eyes, facing the darkest corner of the room.
 
 "How large are they? Can they fit a person?" She asked the darkness.
 
-The observer answered her, "I can't tell at this distance, but judging by the frequency of these five launches, I think they're testing the rail in anticipation of something."
+The observer answered her, "I can't tell at this distance, but judging by the frequency of these launches, I think they're testing the rail in anticipation of something."
 
 Melna remained silent.
 
@@ -66,17 +66,17 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "Perhaps you're right. But we have no other option."
 
-Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. There is much that they are hiding."
+Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. They are hiding something."
 
 "Your pleading will be met with hostility, Melna."
 
 "Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
 
-"There is much to lose and very little to gain by bothering them," she said. "Look. Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
+"There is much to lose and very little to gain by bothering them," she said. "Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
 
-"And what if the obstruction decides to disperse one day? We'll all be roasted alive."
+"And what if the obstruction decides to disperse one day? We'll all be roasted alive out there."
 
-"And we will have starved to death long before that happens. We can only do that which is within our power to do."
+"And we will have starved to death long before that happens if we stay here. We can only do what is within our power."
 
 Melna sighed, letting her internal frustration simmer down and settle.
 
