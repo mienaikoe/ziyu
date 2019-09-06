@@ -77,21 +77,24 @@
   - Lissa says that Casra wanted to die along - terminal illness.
     - This was her last stand against me.
   -PROBLEM:
-    - people have to die at Ulukoma for Ramne to gain power by his secret
-    - and for Lissa to show humanity, and then remorse.
-    - ***Ramne controls who dies and who lives.***
-      - Penyi lives because she makes a good slave?
-      - Lissa kills haeself and Ramne resurrects hae out of spite (Lissa redemption arc)
-      - Casra is not resurrected because Ramne let that ship sail long ago
-      - Setre escapes
+    - People have to die at Ulukoma:
+      - for Ramne to gain power by his secret. Ramne hates Casra because thi also knows the secret of Kanosin and wants to kill her so he can control the market of immortality. Ramne doesn't know that Linyu is also really keen on Kanosin's secret.
+      - Lissa needs to show humanity, and then remorse in the light of mass deaths. Thi can tell a story of when Ramne almost died (or actually died) and Casra brought him back.
+    - ***Ramne & Linyu control who dies and who lives.***
+      - Ginnu lives because she makes a good slave for Ramne. He secretly actually likes her, but would never admit it.
+      - Lissa kills haeself and Ramne resurrects hae out of spite (Lissa redemption arc?)
+      - Casra is killed in the same way that Ramne was resurrected, except thi doesn't have kanosin in hae blood to keep hae alive from the blue light. Linyu would have been much too late to save hae.
+      - Ramne strangles Linyu to death after thi falls from the tree.
+      - Setre and Penyi send asphyxiation victims and Linyu into the ocean as a burial.
+      - It takes a while for them to be resucitated, but when they do, Setre is shocked.
 
 - Days should be depicted as being longer than 3 earth days (amounts of Ma'To and La'To might have to be adjusted as well)
 
 - "We know truth not only by reason but also by heart" <- what?
 
-- Embalming in salt - salt graves
-
 - Make it clear Lissa has died before
+
+-
 
 
 #### Hidden ending of part 2:
@@ -136,9 +139,9 @@
 
 - After Linyu and Pomri go back to Heiko, they receive a message from Mel that tells them to migrate Ara-ward.
   - Pomri knows better and doesn't abide by the demand.
-  - Explosions go off in the distance in the light, while Heikoans cower in fear at them, and Pomri is forced to lead. 
+  - Explosions go off in the distance in the light, while Heikoans cower in fear at them, and Pomri is forced to lead.
   - She leads them to battle, recruiting help from Rudjan.
-  
+
 - Oberth Effect
   - The Oberth effect is strongest at a point in orbit known as the periapsis, where the gravitational potential is lowest, and the speed is highest. This is because firing a rocket engine at high speed causes a greater change in kinetic energy than when fired at lower speed. Because the vehicle remains near periapsis only for a short time, for the Oberth maneuver to be most effective the vehicle must be able to generate as much impulse as possible in the shortest possible time.
 
@@ -178,20 +181,30 @@
         - Deliver the message in the next book
           - This would be like mass effect
 
-- Option 4: Kanosin = Great Filter
+- Option 4: Kanosin vs The Great Filter
   - The obscura know that immortality is the great filter upon which civilization falls
     - The obscura found it (how?) and are trying to kill it
       - They don't know it's volcanically active
   - The mitochondria are the bringers of life, the immortochondria are bringers of death
-  - mitochondria were an invention by a that was sent across the galaxy to create sentient life
-  - immortochondria were meant to immortalize that life, but it turned out to be a great filter because every society had an imbalance that was exacerbated by the presence of immortochondria.
+  - mitochondria were sent across the galaxy to create sentient life
+  - immortochondria turned out to be a great filter because every society had an imbalance that was exacerbated by the presence of immortochondria.
   - immortochondria:
     - like mitochondria
       - mito = thread
       - chondria = grain
     - They provide oxygen in the absence of oxygen
-    - Pangum evolved to use radio waves from ziyu trees to regulate heartbeat
-      - These together mean that Pangum are virtually immortal with 
+    - Immortochondria evolved to use blue light from kanosin weed as energy.
+      - This is why they're often found together
+      - The hallucinations of Kanosin are actually from immortochondria
+    - Radio signals from Ziyu trees are for regulation of growth and water distribution.
+      - Immortochondria use this to create small electrical signals in cells.
+        - Those high on kanosin might be lightly twitching to this beat.
+        - Trees use these signals to lightly constrict and dilate to push liquid from the roots.
+      - The absence of a radio signal in animals does not sustain their heartbeats, so they end up dying.
+      - Pangum had been putting the trees in their fields because they somehow helped the plants to grow
+      - These together mean that Pangum are virtually immortal if they are near a ziyu within a few days after death.
     - ambrosia, panacea
-      - 
+      -
     - diatoms are visible from space, and are photosynthetic
+
+- Option 5: immortochondria

@@ -16,7 +16,7 @@
 
 "Senator Melna, I think you should see something."
 
-Melna stopped her work abruptly and left the incandescent light of her desklamp to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescope pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
+Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescope pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
 "What should I be looking for, Thimlu?" Melna asked.
 
@@ -218,19 +218,40 @@ She decided to be deliberate. Another prying question might push the kaln to lea
 
 "I promise that I won't ask any more questions. And I won't steal your ear device. I just have some water for you here by the door."
 
-Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the beauty of Liffa's robes clothing Linyu's shoulders.
+Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the texture of Liffa's robes clothing Linyu's shoulders.
 
-"You know, my spouse... Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. That was more of the other one's job."
+"You know, my spouse... Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. The other one was always better at it."
 
 Linyu whispered, "Liffa".
 
-"Yes. That's hae name."
+"Yes... That's hae name..."
 
-Shifting away from the door, thi slid it back and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger.
+Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi removed a pendant from hae own neck to show her.
 
-"Mel-na," Linyu whispered under hae breath, as thi moved closer to comfort her. Hae hand clutched hers, and they both held on tight, as if a great force was pulling them apart.
+"Mel-na?," Linyu whispered under hae tear-filled breath. Melna's hand clutched the pendant and felt the many scratches and warpings that had battered it, and she knew that he would not be coming back.
 
-Mel fell asleep still crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. But Linyu lay awake, unsure of how to tell her about Kip, but certain that anyone he trusted with his life could be trusted with hae own.
+Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kip. Love. You."
+
+It was enough for Melna to know how much Kipnu must have trusted hae.
+
+She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holragi's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
+
+Mel fell asleep crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. Linyu lay awake next to her, thinking about how it must have been for the three of them to live there, how lonely Melna must be feeling now, and how thi felt a bond with her that thi struggled to describe. It was a kind of trust that thi had never experienced before: blind but unwavering in spite of it. But thi knew that Kipnu trusted her with his own life and that made trusting her far easier.
+
+Before thi went to sleep, thi interlocked hae hands with Melna's and mouthed to her a silent resolution.
+
+"To save Ara. To save you. I swear to follow you until the end."
+
+Thi held a moment of mental silence to internalize the promise, and then rolled back over to find a comfortable position. *Tomorrow will be the beginning of our paths back home*.
+
+
+<!--
+and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger.
+-->
+
+
+
+
 
 
 
