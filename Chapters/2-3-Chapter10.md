@@ -97,7 +97,7 @@ He hesitated. "Yea, of course."
 
 Thi became curious. "Tell me about them," thi said.
 
-"Liffa was... is... everything good in my life. To the rest of Heiko thi is a farmer, but they don't see hae like we do. Liffa holds us together, but there's this cloud of self-doubt that hangs above hae always. I want to tell hae thi is enough, that anyone as patient and willful as thi is deserves the whole world. But as we both know, anxiety doesn't pick up on affirmations."
+"Liffa was... is... everything good in my life. To the rest of Heiko thi is just a farmer, but they don't see hae like we do. Liffa holds us together, but there's this cloud of self-doubt that hangs above hae always. She doesn't pick up on affirmations."
 
 "And your woman?"
 
@@ -105,7 +105,7 @@ Thi became curious. "Tell me about them," thi said.
 
 "Why is that the first word you choose to describe her?"
 
-"Well, it's all she does lately. Half of her day is spent in Shaki, so I don't see her as often."
+"It's all she does lately. Half of her day is spent in Shaki, so I don't see her as often."
 
 "Do you trust her?"
 
@@ -115,15 +115,15 @@ Thi became curious. "Tell me about them," thi said.
 
 He paused to acknowledge a sudden rush of concern for them.
 
-Thi observed and surmised. "They are far," thi said.
+Thi observed and surmised. "They are far from you," thi said.
 
-"Very."
+"Very. Liffa is... going to be sent into space soon."
 
 "Do you trust them to go on without you?"
 
 "What?"
 
-"The people who come here leave behind lives full of relationships. They invent worries to keep themselves company with the ones they left behind, thinking themselves irreplaceable. But then they return to find that the hole they left had been filled; the personas they were building had vanished, and some of them can't handle it. All of them placed their faith in the lives they built, rather than the people who filled them. So... do you trust them to do what's best for themselves, and not necessarily what's best for you?"
+"The people who come here leave behind lives full of relationships. They invent new worries to keep themselves company with the people they left behind. They think they are irreplaceable to their loved ones. But then they leave this place and return to find that the hole they left had been filled by someone or something else; the personas they were building before had vanished, and some can't handle knowing this. They placed their faith in the lives they had left behind, rather than the lives they were living. So... do you trust them to do what's best for themselves, and not necessarily what's best for you?"
 
 He was aghast at imagining what he was saying. He stammered, "We're bonded, we do what's best for each other."
 

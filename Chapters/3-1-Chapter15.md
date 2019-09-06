@@ -186,9 +186,7 @@ Linyu paused for a moment to interpret the strangeness of what Melna had just sa
 
 *What is this thing?*
 
-She faintly heard some noise coming from it, and put it up to her ear. It was just static at first, but she listened closer and could faintly hear a voice saying "Altitu- **** -bing. Speed 27- ****.  -tation stable". She was confused at what she was hearing but listened to it more.
-
-"**** -entation now."
+She faintly heard some noise coming from it, and put it up to her ear. It was just static, but she found herself continuing to listen.
 
 Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and hae own wet clothes in hae hands. Thi knew where the listener had gone, and carried a look of disappointment. Thi felt for her hands and then ripped it from her hands and hid it in hae robes.
 
