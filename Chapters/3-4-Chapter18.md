@@ -1,5 +1,35 @@
-<!--
+## Chapter 18
 
+She already knew that something was amiss at the train station. The winds had slowed to a standstill, and the city held its voice in punctuation of the silence that pervaded there. The few occupants who were there seemed to be dodging each other, keeping their heads down in fear that some spirit might curse them if they accidentally stared too long. She quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *They must have seen something. What happened?*
+
+She surmised that they must have gotten worried after she took so long and gone to the conduit looking for her, so she headed that way. Even if they weren't there, she still might get a lead on what the man meant by Heiko being rubble. As she left, she couldn't shake the feeling that something had happened to Pomri and Linyu, but she affirmed to herself that her course of action was the best option to take at the moment. She retraced her steps down the pathway toward the conduit building, recalling her run in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
+
+"Pomri? Linyu?" she called, but there was no answer. At the operator desk sat a maman, tall and exhausted, speaking into the microphone. Thi glanced at her and quickly said, "Rudjan conduit requesting delay," and then shuffled from the desk to approach her.
+
+<!--
+  Melna comes back to find Linyu and Pomri and ask questions
+
+  If Melna Finds them: 
+    - Asks questions, finds answers to her questions
+    - Melna knows that Linyu has a gift, Knows about Radio, has hope to speak with Liffa.
+    - If captured by Fajro, would be found with Pomri and Linyu
+      - Would Fajro care about the others?
+        - Would Fajro just kill them?
+  
+  If Melna doesn't find them:
+    - Melna would go to the conduit for answers
+      - Would find Radio and put 2 and 2 together
+      - Would ask about Heiko and get a reveal about a plot against her and Heiko
+    - If captured by Fajro, the others could get away, or one of them could be bartered for
+      - But then he'd just kill them. Is Pomri an expendable character?
+        - Does Linyu need help?
+          - With Antikan, could be healed. 
+            - Needs to get back to Casra's old home/practice in Rudjan
+    - Why are they gone?
+      - Fajro captures Pomri, Linyu hides
+-->
+
+<!--
   "Ramne. Who is Ramne?"
 
   "I've heard of him," Pomri chimed in. "He used to be some nobody in the Rudjan guard who thought he was smarter than the rest of us. Never got promoted, so he just left us one day without a trace."
@@ -30,9 +60,7 @@
 
   "Together," thi whispered. Pomri smiled at hae courage.
 
--->
 
-## Chapter 18
 
 "The train here is shut down too," Pomri said with disappointment.
 
@@ -87,8 +115,5 @@ But instead of an answer Linyu held hae hand up to hae ear, telling her to keep 
 She listened closer and then heard an unmistakeable voice of the maman who woke up early to sit under a tree. Who dressed her before she went to Shaki and gave her a kiss on the forehead even when thi was unhappy with her.
 
 "Liffa! You're alive!"
-
-
-
-
+-->
 

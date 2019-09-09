@@ -58,7 +58,7 @@ Setting:
 
 	"What do you do for him?"
 
-	"I sell the goods. I know the streets of Yansha like the skin on my knees."
+	"I sell the goods. I know the streets of Shaki like the skin on my knees."
 
 	"Does he pay you well?"
 

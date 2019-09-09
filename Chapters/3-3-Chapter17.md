@@ -36,7 +36,7 @@ If they get into Rudjan
 ## Chapter 17
 
 <!-- Gate -->
-  One gatekeeper stood vigil at the end of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Yanshan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
+  One gatekeeper stood vigil at the end of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Rudjan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
 
   "Well look who it is," she scoffed as the group approached her, "The traitor and the liar. Quite the band of thieves you make."
 
@@ -100,7 +100,7 @@ If they get into Rudjan
 
 <!-- Merchant's Quarter -->
 
-  The city opened upon a wide pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society. Beyond the pier lie a small island upon which a great stone tower was built. She paused to take in the view of the golden city she had only been to but a few times. The red twilight of this place had always complimented the lanterns, but somehow the dimming of Ara seemed to paint everything with a little bit life.
+  The city opened upon a wide pier of a bustling market full of merchants on small ships. Their bows curled into large arcs and narrowed to a pillar to hold bobbing brass oil lanterns at their ends. To Melna they looked like some sort of firebreathing spirits of the sea, come to join with Rudjanese society. Beyond the pier, an island of tall trees and lush grasses supported a great wooden tower that must have been built in the beginning, but had clear signs of repair over the years. Perhaps the entire city had been replaced over generations of maintainers, but there was no one person who knew. She paused to take in the view of the golden city she had only been to but a few times. The red twilight of this place had always complimented the lanterns, but somehow the dimming of Ara seemed to paint everything with a little bit life.
 
   "Hey Linyu, have some of this," yelled Pomri from the side of the pier. She had already bought some grilled shellfish on a stick to eat and handed Linyu a kebab of hae own. Thi showed none of hae usual reluctance to take it.
 
@@ -292,7 +292,7 @@ If they get into Rudjan
 
   Melna could barely make out the whispers of a response, but the boat seemed empty as far as she could tell. She watched him untie the boat from the dock and step in near the back. Without a pause, a rough shipping bag in the boat begin to move and out of it emerged a pair of glowing blue eyes. Melna felt a deluge of questions and fears and frustrations wash over her, but resolved to stay focused as long as she could. A woman came out of the bag and showed a terrible healing gash on the right side of her head. Melna was sure would have killed a normal person, but somehow she was alive and well.
 
-  "Those idiots. He said the whole place will be rubble before they know what hit 'em."
+  "Those idiots. He said the whole place will be rubble before they can even think of escaping."
 
   *What?!*
   
@@ -300,7 +300,7 @@ If they get into Rudjan
 
   "Yes," she said in a broken whisper.
 
-  They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just seen.
+  They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just heard.
 
   "I need to talk to Linyu," she said to herself, trying to remain calm.
 

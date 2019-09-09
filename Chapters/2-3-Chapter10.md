@@ -57,7 +57,7 @@ Linyu handed Kip a square wooden bowl of some sort of fish stew, and he eagerly 
 
 In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
-"I spent three ma'to here. My journey here began like most people here - a slave and a kanosin addict. The stuff is produced here by slave labor and then smugglers bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was a Kanosin addict, I was a doctor - one of the best in Shaki harbor. I would often see addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I underestimated the importance of an external motivator and I was unable to pull out of it."
+"I spent three ma'to here. My journey here began like most people here - a slave and a kanosin addict. The stuff is produced here by slave labor and then smugglers bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was a Kanosin addict, I was a doctor - one of the best in Rudjan. I would often see addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I underestimated the importance of an external motivator and I was unable to pull out of it."
 
 "You were the cause of your own suffering."
 
@@ -67,7 +67,7 @@ Thi gently leaned into Linyu who reciprocated the gesture.
 
 "I owe my life to hae," thi said.
 
-"Many mothers choose the pipe. You did the right thing."
+"Many would have chosen Kanosin. You did the right thing."
 
 "That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Lissa arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Lissa started forming a band of thugs, I knew that I could never win."
 
@@ -222,9 +222,9 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 "When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the Shadestead reformed, but now it's gone back to being a cesspool of addiction."
 
-"We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, this is who I am now."
+"We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
 
-"And Ramne?"
+"I understand. And Ramne?"
 
 "He became a dealer. Shipped off to Yansha long before his sentence. Probably bribes."
 
