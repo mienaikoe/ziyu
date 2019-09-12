@@ -1,10 +1,43 @@
 ## Chapter 18
 
-She already knew that something was amiss at the train station. The winds had slowed to a standstill, and the city held its voice in punctuation of the silence that pervaded there. The few occupants who were there seemed to be dodging each other, keeping their heads down in fear that some spirit might curse them if they accidentally stared too long. She quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *They must have seen something. What happened?*
+She already knew that something was amiss at the train station. The winds had slowed to a standstill, and the elevated rails that hung over the square held their voice in punctuation of the silence that pervaded there. The few of its occupants seemed to be dodging each others' glances, fearful of some spirit that might curse them if they accidentally stared too long. She quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *They must have seen something. What happened?*
 
-She surmised that they must have gotten worried after she took so long and gone to the conduit looking for her, so she headed that way. Even if they weren't there, she still might get a lead on what the man meant by Heiko being rubble. As she left, she couldn't shake the feeling that something had happened to Pomri and Linyu, but she affirmed to herself that her course of action was the best option to take at the moment. She retraced her steps down the pathway toward the conduit building, recalling her run in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
+She concluded that Pomri must have gotten worried after she took so long and gone to the conduit looking for her, so she headed that way. Even if they weren't there, she still might get a lead on what the man meant by Heiko being rubble. As she left, she couldn't shake the feeling that something had happened to Pomri and Linyu, but she affirmed to herself that her course of action was the best option to take at the moment. She retraced her steps down the pathway toward the conduit building, recalling her run in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
-"Pomri? Linyu?" she called, but there was no answer. At the operator desk sat a maman, tall and exhausted, speaking into the microphone. Thi glanced at her and quickly said, "Rudjan conduit requesting delay," and then shuffled from the desk to approach her.
+"Pomri?" she called, but there was no answer. At the operator desk sat a maman, tall and exhausted, speaking quietly into the microphone. Thi glanced at her and quickly murmured, "Rudjan conduit requesting delay," and then shuffled from the desk to approach her.
+
+"You can't be here. Please leave."
+
+"What do you mean? The conduit is a public utility."
+
+"Rudjan conduit is closed indefinitely under order from the senate."
+
+"I am a senator. There is no such order."
+
+"You have to leave now!" thi yelled, pushing her out. Melna spun hae hands off of her arm and moved further into the room, holding her hand out to talk.
+
+She chose her words carefully, "You seem agitated. Like you know something you don't want to say." Thi didn't say a word.
+
+Melna glanced at the chair thi had come from. "Have a seat," she said. "I'd like to tell you a bit about my people." She took the seat across from hae.
+
+"Have you ever been to Heiko, žah...?"
+
+Thi didn't respond.
+
+"Žah-Rudja, then."
+
+"Well, Žah-Rudja um Rudjan, if you ever visited us, you would know that we have a communal way of life. We take care of each other, regardless of how different we are. And we extend that warmth to visitors from far away."
+
+"Lies. You hoard your food and shroud your knowledge."
+
+"Do you believe everything you hear from that speaker of yours?"
+
+"Oh don't I. Every one of you lot comes to within our walls n' take things what suit your fancies."
+
+"And our debts are paid in full by the people."
+
+""
+
 
 <!--
   Melna comes back to find Linyu and Pomri and ask questions
