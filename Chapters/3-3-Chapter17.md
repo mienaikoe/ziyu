@@ -164,9 +164,15 @@ If they get into Rudjan
 
   "Your food is ready," thi said.
 
-  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, taking in the sounds and ignoring Pomri who was trying to make small talk.
+  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, fiddling with a length of brass wire and ignoring Pomri who was trying to make small talk.
 
-  "Bread?," she butted in, lighting up Linyu's face. She handed them both a cake and then leaned against a wall near Linyu to eat her fish.
+  "What's thi doing," Melna asked.
+
+  "I don't know. A seller had some seaweed hanging on it, and then Linyu felt it and got all excited. I was getting hungry anyway so I just bought both."
+
+  "I see", she said, perplexed.
+  
+  She turned to Linyu and announced, "Bread?" lighting up Linyu's face. Thi immediately put away the piece of wire and she handed them both a circle of bread each. She opened the wrapped fish and leaned against a wall near Linyu to eat.
 
   "The people here," she addressed Pomri. "They're blissfully ignorant of their impending doom. It's like they aren't prepared at all."
 
@@ -180,32 +186,20 @@ If they get into Rudjan
 
   "We bow to no one, Melna. Not even to a senator."
 
-  Pomri and Melna finished their last morsels of lunch while Linyu had stopped about halfway through the bread.
+  Pomri and Melna finished their last morsels of lunch while Linyu had stopped about halfway through the bread to resume hae twisting of the wire.
 
-  "Here. You can put the bread back so you can eat the rest later," she said to Linyu.
+  Melna paused to help hae pack up the bread. "Here. You can put the bread back so you can eat the rest later," she said to Linyu.
 
   Thi said, "Okay," hae throat struggling a little less than before.
 
   Melna trimmed Linyu's bread at the biting edge and then put it back into its kelp package.
 
-  "We're headed to the trains toward Shaki, but first I have to stop by the conduit, ok?"
-
-  She took hae hand and traced the path they would take on hae palm.
-
-  "Just hold tightly to my hand, and I won't let you run into anything."
-
-  "Okay," thi said.
-
-  Melna led the way while Pomri took the rear to keep a sharper eye for trouble. They passed over a bridge to the first island, upon which a public garden was built full of trees that grew high above the nearby buildings.
-
 <!-- Talking about Ulukoma -->
 
-  "Have you been to a conduit before?" Melna asked along the path.
+  "Have you been to Rudjan before?" Melna asked.
 
-  "Before," thi said with a longing tone.
-
-  "Before what?"
-
+  "Before," thi said with a longing tone, stopping hae fiddling with the wire.
+  
   Thi hesitated and looked away, but Melna didn't relent this time.
 
   "Linyu. I know that whatever happened to you must be difficult to remember, but if..." she hesitated to push her own troubles out of her mind. "If your parents or any of your family are out there, they must be worried looking for you."
@@ -222,7 +216,7 @@ If they get into Rudjan
 
   "The ocean? Were you on a ship?"
 
-  Thi didn't respond, looking confused and agitated.
+  Thi shook hae head, looking confused and agitated.
 
   "Do you remember how you got here?"
 
@@ -246,11 +240,11 @@ If they get into Rudjan
 
   "Your mother – he's with your mother?"
 
-  Thi looked sternly at her nose, staring at Melna's nose with those blank eyes illuminating her face like a lantern on the end of a boat, searching for figures in the darkness.
+  Thi looked sternly at her nose, staring at it with those blank eyes illuminating her face like a lantern on the end of a boat, searching for figures in the darkness.
 
   "I. Don't. Know."
 
-  "Please," Melna pleaded to hae, "Let me have this. Him and I are bound with Liffa."
+  She looked back down at the pendant resting on her fingers "Please," Melna pleaded to hae, "Let me have this. Him and I are bound with Liffa."
 
   Thi pressed it tightly against hae chest, not in a protective manner, but taking time to cherish the memories of the man who saved hae from drowning.
 
@@ -262,9 +256,13 @@ If they get into Rudjan
 
   They held each other in silence, acknowledging their unique connection and the mystery of how it came to be, when Pomri butted in, "Žah-Melna, perhaps we should be on our way."
 
-  Melna paused and then inhaled to rise, and said "Yes. Let's get going."
+  Melna nodded and reassured Linyu, "Just hold tightly to my hand, and I won't let you run into anything."
 
-  And with her hand around Linyu's shoulder, they kept moving away from merchants at the gate and toward the Northern quarter.
+  "Okay," thi said.
+
+  There was a pause and then she inhaled to rise and said "Let's get going."
+
+  Melna led the way while Pomri took the rear to keep a sharp eye for trouble. They passed over a bridge to the first island, upon which a public garden was built full of trees that grew high above the nearby buildings. With her hand around Linyu's shoulder, they kept moving away from merchants at the gate and toward the Northern quarter.
 
   ********
 

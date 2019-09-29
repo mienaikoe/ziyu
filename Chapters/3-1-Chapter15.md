@@ -46,7 +46,7 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine their shape and size. Wire your findings to me at the senate before dinner. I'm calling for a debate in the evening."
+"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Jes is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
 
 "We shall keep a constant eye."
 
@@ -238,11 +238,11 @@ She held onto hae tightly, as if a great force was pulling them apart, and cried
 
 Mel fell asleep crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. Linyu lay awake next to her, thinking about how it must have been for the three of them to live there, how lonely Melna must be feeling now, and how thi felt a bond with her that thi struggled to describe. It was a kind of trust that thi had never experienced before: blind but unwavering in spite of it. But thi knew that Kipnu trusted her with his own life and that made trusting her far easier.
 
-Before thi went to sleep, thi interlocked hae hands with Melna's and mouthed to her a silent resolution.
+Before sleep, thi interlocked hae hands with Melna's and mouthed to her a silent resolution.
 
 "To save Ara. To save you. I swear to follow you until the end."
 
-Thi held a moment of mental silence to internalize the promise, and then rolled back over to find a comfortable position. *Tomorrow will be the beginning of our paths back home*.
+Thi held a moment of mental silence to internalize the promise, and then rolled back over, thinking about tomorrow.
 
 
 <!--

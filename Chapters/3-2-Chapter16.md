@@ -41,7 +41,7 @@
 
   She was perplexed. "Why? Because you're... alone. And I have no clue where your parents are... And you can't scream for help."
 
-  "Am. Fine," thi said with conviction. Mel's preplexion was renewed. Such an independent child could surely not have come from Heiko, the land of community. *But then how did thi get here?*, she thought.
+  "Am. Fine," thi said with conviction. Mel's preplexion was renewed. Such an independent child could surely not have come from Heiko. *But then how did thi get here?*, she thought.
 
   "Well, we're going on a big trip today so let's eat up to prepare," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
 
