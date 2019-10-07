@@ -16,7 +16,7 @@
 
 "Senator Melna, I think you should see something."
 
-Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescope pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
+Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescopic projector pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
 "What should I be looking for, Thimlu?" Melna asked.
 
@@ -104,7 +104,7 @@ He whimpered a little, a suspicious complaint for a freezing saffa.
 
 "Laen-Laen, what's wrong?"
 
-He shifted his legs a little to reveal a kaln dressed in strange kelp clothing curled into a ball at Laen-Laen's belly.
+He shifted his legs a little to reveal a maman, aged somewhere between a child and an adult, dressed in strange kelp clothing and curled into a ball at Laen-Laen's belly.
 
 "Oh my goodness," she exclaimed, reaching for hae hand, "Are you ok?"
 
@@ -132,23 +132,19 @@ Mel filled the kitchen mantle with kindling from the garden and pressed her hot 
 
 At first Linyu hesitated, staying still with the cup next to hae eyes, Mel holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it  and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
 
-"Have you always been blind, Linyu?"
-
-Thi fidgeted nervously and whispered, "...No"
-
-"You also have a lot of swelling here. What happened?"
+"You have a lot of swelling here. What happened?"
 
 "F-Fire," Linyu whispered.
 
-"Oh," she said, surprised to hear a lie. "You should know that I'm a great listener. It's literally my job to listen to people all day. If you ever want to tell me what really happened, you can say so."
+"Oh," she said, surprised to hear a lie. "You should know that I'm a great listener. My job is to listen to people talk all day. If you ever want to tell me what really happened, you can say so."
 
 After a moment of thought, Linyu whispered again, "Fire."
 
 There were a million questions hiding in Melna's mind, but her lips were blocking them for fear of overwhelming the child.
 
-"Was it in the city? I didn't hear of any fire."
+"Do you know how you got to Heiko, Linyu?"
 
-Linyu stared into the distance, hae eyes unmoving, untelling.
+Thi fidgeted nervously and stared into the distance, hae eyes unmoving, untelling.
 
 "Why don't you get a little rest, little one. We'll talk more in the morning."
 
@@ -182,13 +178,13 @@ Mel glanced around the room and found the large cushion to the left of the door 
 
 Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
-Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on the ground near hae and then feeling hae way back to the washroom. Hesitantly, Melna moved her gaze to the trinket. It was wooden with intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
+Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on the ground near hae and then feeling hae way back to the washroom. Hesitantly, Melna moved her gaze to the trinket. It was wooden with metal rod sticking out and intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
 
 *What is this thing?*
 
-She faintly heard some noise coming from it, and put it up to her ear. It was just static, but she found herself continuing to listen.
+She faintly heard some noise coming from it, and hesitantly put it up to her ear. The sound was static at first, but she continued to listen closer as the observers taught her to do with the projectors at the observatory, and through the static she began to make out the tones and rhythms of a voice.
 
-Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and hae own wet clothes in hae hands. Thi knew where the listener had gone, and carried a look of disappointment. Thi felt for her hands and then ripped it from her hands and hid it in hae robes.
+Linyu startled her from a trance-like fixation, standing in front of her with Liffa's robes and hae own wet clothes in hae hands. Thi knew where the listener had gone, and carried a look of consternation. Thi fervidly felt for Melna's hands amidst her confusion and pulled the listener from them, taking no pause to hide it away in hae damp, dirty clothes.
 
 She responded, "I'm sorry, I should have asked first."
 
@@ -202,7 +198,7 @@ Thi nodded hesistantly, and clutched to it tighter.
 
 Linyu stared into the void of reality between hae and Melna with eyes like dams holding back a flood of doubt.
 
-"I'm sorry, we don't have to talk about that right now," Melna said, but Linyu had already turned away and started stumbling back into the washroom. A thump rang across the room as Linyu slammed the door behind hae and sat against it to block its movement. She picked up the half-empty water glass from the table in the great room and and reassumed her post at the door. Melna didn't try to open the door or talk to hae – when Liffa's mother had died, she consoled hae through the same thing and learned how important it was to hold a space for grief. It shook her to imagine feeling such a heavy loss while recovering from the brink of death; such that she had forgotten all of her own stresses and focused on the well-being of this one kaln.
+"I'm sorry, we don't have to talk about that right now," Melna said, but Linyu had already turned away and started stumbling back into the washroom. A thump rang across the room as Linyu slammed the door behind hae and sat against it to block its movement. She picked up the half-emptied water glass from the table in the great room and and reassumed her post at the door. Melna didn't try to open the door or talk to hae – when Liffa's mother had died, she consoled hae through the same thing and learned how important it was to hold a space for grief. It shook her to imagine feeling such a heavy loss while recovering from the brink of death; such that she had forgotten all of her own stresses and focused on the well-being of this one kaln.
 
 "Linyu, may I come in?"
 
@@ -214,9 +210,9 @@ After a long stillness there came a shuffling and then a knocking against the do
 
 Slightly relieved, she responded, "Okay. I'll stay then."
 
-She decided to be deliberate. Another prying question might push the kaln to leave, and it had become far too cold for anyone to be outside for the night.
+She decided to be deliberate. Another prying question might push Linyu to leave, and it had become far too cold for anyone to be outside for the night.
 
-"I promise that I won't ask any more questions. And I won't steal your ear device. I just have some water for you here by the door."
+"I promise that I won't ask any more questions. And I won't steal your device. I just have some water for you here by the door."
 
 Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the texture of Liffa's robes clothing Linyu's shoulders.
 
@@ -224,15 +220,13 @@ Thi slowly creaked the door open just enough to listen for Melna and reach for t
 
 Linyu whispered, "Liffa".
 
-"Yes... That's hae name..."
+"Yes... That's hae name... how did you..."
 
-Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi removed a pendant from hae own neck to show her.
+Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi reached into hae shirt and pulled out Kipnu's binding pendant. A golden yellow reflection stared back at Melna through the mirror polish she grew to recognize. It was scratched, but only lightly.
 
-"Mel-na?," Linyu whispered under hae tear-filled breath. Melna's hand clutched the pendant and felt the many scratches and warpings that had battered it, and she knew that he would not be coming back.
+"Mel.na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many scratches and warpings that had battered it, and she sensed that he would not be coming back.
 
 Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kip. Love. You."
-
-It was enough for Melna to know how much Kipnu must have trusted hae.
 
 She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holragi's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
 

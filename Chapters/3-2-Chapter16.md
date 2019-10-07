@@ -21,29 +21,55 @@
 
   "Linyu?" She called loudly, suddenly remembering hae. "Linyu?!"
 
-  She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. There was no sign of hae listener and Liffa's robes were still in the washroom. *Thi left. But there's still so much I don't know about hae.*
+  She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. Liffa's robes had been left in the washroom and there was no other sign of Linyu.
 
-  With some hesitation, she decided to carry on with her day and look for Linyu later. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled an oiled wood canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
+  With little time to spare that day, she resolved to carry on with her day and have Jes, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
 
-  She approached the stable, calling, "Laen-Laen," and he made three short whoops to wake up.
+  She approached the stable, calling, "Laen-Laen," but she heard nothing. She checked the stable and Laen-Laen was gone.
 
-  "You awake yet?" she asked him as she entered the stable. Nestled between Laen-Laen's stretching legs was Linyu, just barely awake.
+  She panicked and called again, louder and further than before, "Laen-Laen!"
+  
+  There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's ziyu tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
+
+  "Why are you all the way out here, Linyu?" She asked before seeing Linyu curled up between Linyu's stretching legs and beginning to awaken. The wooden listener was still on hae ear.
 
   "Linyu, what are you doing out here?"
 
-  Thi started to talk but remembered the pain as only a whisper emerged. Thi cleared hae throat gently and tried again.
+  Thi started to talk but remembered the pain in hae throat as only a whisper emerged. Thi cleared it gently and tried again.
 
-  "Warm," thi said with a scratch of a voice, holding hae hand against Laen-Laen's belly.
+  "Tree," thi said with only the scratch of a voice, holding haeself up against the ground.
 
   "I was so worried where you had gone."
 
-  "Why?"
+  "Why?" thi asked, and surprised her.
 
-  She was perplexed. "Why? Because you're... alone. And I have no clue where your parents are... And you can't scream for help."
+  "Why? Because you're... alone. And I have no clue where your parents are... And you can't call for help."
 
-  "Am. Fine," thi said with conviction. Mel's preplexion was renewed. Such an independent child could surely not have come from Heiko. *But then how did thi get here?*, she thought.
+  "Am. Fine," thi said with conviction. Melna's preplexion was renewed. Such an independent child could surely not have come from Heiko. *But then how did thi get here?*, she thought.
 
-  "Well, we're going on a big trip today so let's eat up to prepare," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
+  "Well, anyway, I need to take Laen on a big trip to Shaki today."
+
+  "Shaki?"
+
+  "Yes. It's quite far and there are a few things I must attend to there, so I might not be back for a while. I know someone in the city who can look after you while I'm gone."
+
+  "With. You," thi said.
+
+  "You want to go with me?"
+
+  Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
+
+  "No. It's much too dangerous. It's better if you stay here with Jes."
+  
+  Thi stood up now and approached her. "With. You," thi insisted.
+
+  She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
+  
+  "I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a senator from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
+
+  Thi nodded back.
+  
+  "Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
 
   "You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.
 
@@ -53,13 +79,13 @@
 
   "Here you are," she said, tossing two of the largest ones to him. He chomped down on them, splashing droplets of a sweet white liquid in a circle around his mouth, and the sweet aroma of fresh pohua and not-so-fresh saffa breath filled their noses. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light.
 
-  "Our grain stores are practically empty from ration sharing. I guess we'll have to get something to eat in town," she told a disappointed Linyu.
+  "Our grain stores are practically empty from ration sharing. I guess we'll have to get something to eat in town," she told a disappointed Linyu. The quicker we ride out there, the quicker we get to eat.
 
-  She fetched the thick linen riding cloth from the stable and wrapped securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
+  She led them to the stable where she fetched a thick linen riding cloth and wrapped securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
 
-  With a firm grab of his neck hair, she hopped onto his back and settled herself in.
+  "Here," she said to Linyu, stooping to fetch a small mycoleather travel bag. "Keep this with you. It's waterproof and keeps its shape well so it's great for storing food.
 
-  Holding her arms out to Linyu, she said, "Come on, I'll pull you up," and with a pull she lifted hae up to sit in front of her.
+  With a firm grab of his neck hair, she hopped onto Laen's back and settled herself in. Then, holding her arms out to Linyu, she said, "Come on, I'll pull you up," and with a firm grip she lifted hae up to sit in front of her.
 
   "Alright, Laen-Laen. Let's take a steady trip to the station."
 
@@ -167,7 +193,7 @@
 
   Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear; the things she heard, and the things she might be missing.
 
-  "Hey Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck and the craftwork of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother, and she didn't want to take that away.
+  "Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck and the craftwork of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother, and she didn't want to take that away.
 
   "It's.. It's nothing. Never mind," she said.
 

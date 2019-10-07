@@ -164,13 +164,13 @@ If they get into Rudjan
 
   "Your food is ready," thi said.
 
-  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, fiddling with a length of brass wire and ignoring Pomri who was trying to make small talk.
+  Melna accepted the three small packages carefully, surprised by their weight. She paused, thinking to say something else, but settled on a simple "goodbye" and departed to rejoin with the others. Upon her return she noticed Linyu standing in a corner, fiddling with a length of thin copper wire with a small glass bulb at the end and ignoring Pomri who was trying to make small talk.
 
-  "What's thi doing," Melna asked.
+  "What is thi making?" Melna asked.
 
   "I don't know. A seller had some seaweed hanging on it, and then Linyu felt it and got all excited. I was getting hungry anyway so I just bought both."
 
-  "I see", she said, perplexed.
+  "I see", she said, curious but patient.
   
   She turned to Linyu and announced, "Bread?" lighting up Linyu's face. Thi immediately put away the piece of wire and she handed them both a circle of bread each. She opened the wrapped fish and leaned against a wall near Linyu to eat.
 
@@ -188,15 +188,15 @@ If they get into Rudjan
 
   Pomri and Melna finished their last morsels of lunch while Linyu had stopped about halfway through the bread to resume hae twisting of the wire.
 
-  Melna paused to help hae pack up the bread. "Here. You can put the bread back so you can eat the rest later," she said to Linyu.
+  Melna paused her lunch to help Linyu pack up the remaining bread. "Here. You can put the bread back so you can eat the rest later," she said to Linyu.
 
   Thi said, "Okay," hae throat struggling a little less than before.
 
-  Melna trimmed Linyu's bread at the biting edge and then put it back into its kelp package.
+  Melna trimmed Linyu's bread at the biting edge and put it back into its kelp package, nestling it snugly in Linyu's travel bag.
 
 <!-- Talking about Ulukoma -->
 
-  "Have you been to Rudjan before?" Melna asked.
+  "Have you ever been to Rudjan?" Melna asked hae while closing the bag.
 
   "Before," thi said with a longing tone, stopping hae fiddling with the wire.
   
@@ -210,47 +210,31 @@ If they get into Rudjan
 
   "Home."
 
-  "Where is home?"
+  "Ulukoma?"
 
-  "...Ulu."
-
-  "The ocean? Were you on a ship?"
-
-  Thi shook hae head, looking confused and agitated.
+  Thi nodded.
 
   "Do you remember how you got here?"
 
-  "I...No," thi said, realizing the peculiarity of hae situation.
+  "I...No," thi said, realizing again the peculiarity of hae situation.
 
   "Okay. Let's work backward then. What is the last thing you do remember?"
 
-  "Fire... nana... Kipnu."
+  "Fire... nahn... Kipnu."
 
-  Melna stopped in her tracks, aghast at hearing his name. "Kipnu? Were you in Ulukoma?"
+  "Is he ok?" She asked, recalling his pendant amidst the flurry of events of the previous night. "Do you know where he is?"
 
-  Thi reached into hae shirt and pulled out Kipnu's binding pendant, which Melna bent down to see for herself. A golden yellow reflection stared back at her through the mirror polish she grew to recognize. It was scratched, but only lightly.
+  "With. Mom," thi tried to speak, but hae voice trembled and came out as a whisper.
 
-  *What happened to you, Kip? How did a kaln find your pendant and then bring it all the way back here?*
-
-  "Is... is he ok?" She asked. "Do you know where he is?"
-
-  Thi fought with haeself to stay calm.
-
-  "Mom," thi tried to speak, but hae voice trembled and came out as a whisper.
-
-  "Your mother – he's with your mother?"
+  "He's with your mother?"
 
   Thi looked sternly at her nose, staring at it with those blank eyes illuminating her face like a lantern on the end of a boat, searching for figures in the darkness.
 
   "I. Don't. Know."
 
-  She looked back down at the pendant resting on her fingers "Please," Melna pleaded to hae, "Let me have this. Him and I are bound with Liffa."
-
-  Thi pressed it tightly against hae chest, not in a protective manner, but taking time to cherish the memories of the man who saved hae from drowning.
-
-  "Okay," thi said, and lifted the pendant from hae neck to place it over Melna's.
-
-  "Thank you, Linyu. Wherever Kipnu is, I know he must trust you a lot to have given this to you."
+  The protrusion of the pendant under Linyu's shirt drew Melna's eye, and brought a flush to her cheeks and a tear to her left eye.
+  
+  "Wherever Kipnu is, he must be kicking up a storm with your mother."
 
   "I Hope," thi said, hoping for a lot of things. <!-- TOOD -->
 
@@ -282,7 +266,9 @@ If they get into Rudjan
   
   With a loud and quick huff he took off without looking, barrelling straight into Melna and paying her no mind as he kept his path. She looked back at him, incredulous, and said, "Hey, mind yourself!"
 
-  But there was no response in either eye or stride. She quickly measured her options and decided to follow him out of suspicion that there was more to this man than a bad day. She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats on his left side. Melna immediately took a position hiding behind a large wooden column as she looked on. 
+  But there was no response in either eye or stride. She quickly measured her options and decided that she had just enough time to follow him to at least the center of the city. She could always get word from the observatory from Shaki, and she was suspicious that there was something he had just heard that she might find interesting.
+  
+  She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats on his left side. Melna immediately took a position hiding behind a large wooden column as she looked on. 
   
   "The magistrate hasn't seen them in Shaki either," he said as he approached a boat. *Was he speaking to someone?*
   
@@ -300,6 +286,6 @@ If they get into Rudjan
 
   They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just heard.
 
-  "I need to talk to Linyu," she said to herself, trying to remain calm.
+  "This trip was doomed to fail. Holragi never wanted to negotiate," she said to herself, trying to remain calm.
 
   "I need to talk to Linyu."
