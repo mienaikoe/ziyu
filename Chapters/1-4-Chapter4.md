@@ -12,7 +12,7 @@
 
   I quickly put away my roll and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of ultraviolet across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it just looked like my skin was striped in a brownish color. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
 
-  The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Thina, Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central," and we fell into a tighter line against the wall.
+  The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central," and we fell into a tighter line against the wall.
 
   "Excuse me, would you help a cripple?"
 

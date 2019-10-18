@@ -67,7 +67,9 @@
 - Depict Lissa as a dream-goddess to Kipnu on the come-down from Kanosin
   - Especially good with Lissa's Non-Dying Lore
 
-- Talk about Linyu a bit more - make it clear there's a problem even though Linyu doesn't die.
+- Talk about Linyu a bit more - make it clear that Ramne gets a hold of Linyu
+
+- Maybe Kipnu discovers the resurrection use of kanosin and keeps the reader in the dark?
 
 - Be a bit more clear on Lissa's destiny.
   - Ramne might hint to Kip that he can't die in the darkness.

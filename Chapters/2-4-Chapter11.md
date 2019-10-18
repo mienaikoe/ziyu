@@ -34,7 +34,7 @@
 
   Kip was surprised, "What are we doing now?"
 
-  "You wanted to learn about the coils right? If we're to change anything in the Shadestead, you're going to have to learn how to use them."
+  "You wanted to learn about these coils right? If we're to change anything in the Shadestead, you're going to have to learn how to use them."
 
   "I don't follow," he said, perplexed.
 
@@ -42,19 +42,25 @@
 
   The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel... What ire does your day bring? Will you take me back?*
 
-  Linyu emerged with a small circular trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a another smaller coil with a large bead in the middle of it. It smaller than he imagined - not the huge metal monstrosities he had imagined them to be. Thi handed the listener to Kip and then went to hae mother to spread the plants all around the tree.
+  Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a big flap of metal hiding another smaller coil and cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand - not the huge metal monstrosities he had imagined them to be.
+  
+  Thi handed the listener to Kip and told him, "This is my newest one. Don't go and break it." 
+  
+  Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
 
-  "That must be where the lines-"
+  "That must be where the blue lines-"
 
   "Yep," Linyu butted in. He seemed amused that he could predict this foreigner's thoughts.
 
-  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced a wooden box slightly large than their torsos, with a crank on the side.
+  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced a wooden box slightly larger than their own bodies, with a crank handle on the side.
 
-  "What's that crank for?" he asked.
+  "What's that handle for?" he asked.
 
-  "To wake up the milta that lives inside," Linyu joked. Kip took whatever humor he could find in this dark place.
+  "To wake up the miltas that power it," Linyu joked, but Kip didn't get it.
+  
+  "That was a joke," thi said again. Kipnu chuckled but still was looking for an answer.
 
-  Casra answered him seriously, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
+  Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
 
   Kip was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
 
