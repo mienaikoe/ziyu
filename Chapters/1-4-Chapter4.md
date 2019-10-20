@@ -102,7 +102,7 @@
 
   ```
     To:   Dr. Melna Colyun, Senator to Heiko
-    From: Dr. Yanel Rinmet, Observer at Heiko Observatory
+    From: Dr. Thimlu Rinmet, Observer at Heiko Observatory
 
     I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. It is difficult to estimate size, but it is covering the entire span of view we have with Ara, and likely more. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are automatically correcting themselves to be evenly-spaced.
 
@@ -111,7 +111,7 @@
     If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
 ```
 
-  "What?!" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need.* I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
+  "What is this??" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. *Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?* It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. *I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need.* I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
 
   "You look like you've seen something you regret," said the man, startling me.
 

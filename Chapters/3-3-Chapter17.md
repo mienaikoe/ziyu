@@ -36,13 +36,13 @@ If they get into Rudjan
 ## Chapter 17
 
 <!-- Gate -->
-  One gatekeeper stood vigil at the end of the bridge, bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck from the sides and an etching of the Rudjan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
+  One gatekeeper stood vigil at a row of three ornate black steel gates mounted in the wall of Rudjan. She was bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck and an etching of the Rudjan symbol of a ship on the broad front plate. The skeletal features of her face showed that she was of an older age than most keepers would have been but clearly still fit for her duties.
 
-  "Well look who it is," she scoffed as the group approached her, "The traitor and the liar. Quite the band of thieves you make."
+  "Well look who it is," she scoffed as the group approached her, "The traitor and her band of thieves."
 
   Pomri responded, "Such a warm welcome, Bavle."
 
-  "Oh, pardon my manners," she said facetiously, "Perhaps you'd like to be thrown across the rails first."
+  "Oh, pardon my manners," she said facetiously, "Perhaps you'd like to be thrown off the bridge first."
 
   "Perhaps you'd like this spear down your throat."
 
@@ -50,7 +50,7 @@ If they get into Rudjan
 
   But Bavle continued, "So tell me why I should let you bastards through."
 
-  A lull in the conversation formed while Melna watched their eyes turn in her direction and stuttered to begin, "W-we are on our way to a senate session. We would like to pass."
+  A lull in the conversation formed while Melna watched their eyes turn toward her. Realizing they were waiting for her, she stuttered to begin, "W-we are on our way to a senate session. We would like to pass."
 
   "No," said the guard.
 
@@ -58,45 +58,51 @@ If they get into Rudjan
 
   "Well you haven't told me the password."
 
-  Melna paused, trying to understand such a ridiculous requirement. *A password? Since when was there a password to enter Rudjan?*. She thought and thought for an awkward moment that had long overstayed its welcome, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then all out laughing from the two.
+  Melna paused, trying to understand such a ridiculous requirement. *A password? Since when was there a password to enter Rudjan?*. She thought deeply for a long and awkward moment, pondering what the password could be, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then boisterous laughing from the two.
 
-  "I didn't think she'd fall for that!" yelled Pomri. "A password?! Really, Melna?"
+  Pomri exclaimed, "A password?! Really, Melna?"
 
   Bavle joined her, "Is your senator honestly so dull?"
 
-  Melna was unamused at being the brunt of a joke, not to mention the waste of precious time, but she took it in stride.
+  Melna was unamused at being the brunt of a joke, not to mention the waste of precious time, but she took whatever humor they could afford.
 
-  "Ok, very funny," she said. "We have a train to catch, so please let us be on our way."
+  "Very funny," she said. A glare shot from Melna's eyes toward the still-laughing Pomri, and she quieted down, dismounting from her saffa and helping Linyu off of Laen.
 
-  A glare shot from Melna's eyes toward the still-laughing Pomri, and she quieted down, dismounting from her saffa and helping Linyu off of Laen.
+  "We have a train to catch," said Melna, "so please let us be on our way."
 
   Bavle approached the saffa while she continued with her friend, "Oh I've missed your damn face, Pomri. Come back when Ara is back from the dead."
 
   "I will. Just gotta save the world first," she responded.
 
-  "Just another day for you," she said with a voice almost motherly. "Your saffa will have to stay here, as the city really can't handle such large animals. They'll be safe on these wetlands as long as they're well trained. And I assume since you made it this far, that won't be an issue?"
+  "Just another day for you," she said with a voice almost motherly. "Well, the docks aren't big enough for saffas so you'll have to leave them here. They'll be safe on these wetlands as long as they're well trained. And I assume since you made it this far, that won't be an issue?"
 
   Melna said, "Yes, of course," remembering to herself how fussy Laen-Laen could get if he wasn't well fed.
 
   "Laen," Linyu whispered to him, keeping a tight hold on his front leg.
 
-  Melna held her patience for hae. "He'll be fine here. This place is where saffas come from."
+  Melna held her patience for hae. "He'll be fine here. This wetland is full of saffas and tasty things. This is where saffas come from, after all."
 
   Linyu moved hae hands to Laen-Laen's neck, and scratched him gently, much to Laen's chagrin, while Melna faced him and said her own kind of goodbye.
 
   "Hey Laen. We might be gone for a while. You should be safe with the other saffa out here. Make some friends, ok?"
 
-  He whooped low, hearing the uncertainty in her tone, but understanding that there were some things that Pangum had to do that weren't so fun. She nuzzled him despite his fishy breath and then reached out to Linyu to draw hae away. Pomri finished her own quiet goodbye to Giam and then led the two to Bavle, who took them down a ramp to a small group of other saffa perched just outside the gate.
+  He whooped low, hearing the uncertainty in her tone, but understanding that there were some things she had to do that weren't so fun. She nuzzled him despite his fishy breath and then reached out to Linyu to draw hae away. Pomri finished her own quiet goodbye to Giam and then led the two down a ramp to a small group of other saffa perched just outside the gate.
 
   "Love you," Linyu whispered to the air which still brought Laen's scent to hae nose.
 
-  Bavle returned to the Ulu post of the gate and with a few effortless flicks of the finger, she unlocked and opened a thick steel door in the stone just the size of two people.
+  They returned to the center gate and knealt down in front of a small hole in the ground. She produced a short sword and a brass scabbard decorated with peculiar nodules and lightly thrust it into the hole. With a loud hiss, the gate began to open before them.
 
   "You three keep a watchful eye," she warned them. "All sorts of trouble has been brewing lately."
 
   "Thank you for letting us know. We'll be vigilant," said Melna. Her curious eye pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
 
-  Pomri rose an arm to Bavle, who hooked her own around it. They stood staring at each other for a moment in solidarity and then loosened their stances to let each other go. Following behind Pomri, Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle in wonder about her face, her story, or whether thi could trust her. But Melna peered into hae blue eyes like flames in the twilight, scratched a bit at hae back and said, "She'll be ok."
+  Melna expressed her concern, "Bavle, will you be–" 
+  
+  "Shush," she said. "My place is to protect this gate. Neither fear of death nor promise of reward can take me from it."
+
+  "I see," said Melna.
+
+  Pomri approached and rose her left arm to Bavle, who hooked her own around it. They stood staring at each other for a moment in solidarity and then loosened their stances to let each other go. Following behind Pomri, Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle in wonder about her face, her story, or whether thi could trust her. But Melna peered into hae blue eyes like flames in the twilight, scratched a bit at hae back and said, "She'll be ok."
 
 <!-- Merchant's Quarter -->
 

@@ -203,7 +203,7 @@
 *************
 
 
-  Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city hanging above it like the root of a tree sprawling across a forest. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
+  Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed its remaining light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city that hung above it. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
 
   "Linyu, do you know much about Rudjan?"
 

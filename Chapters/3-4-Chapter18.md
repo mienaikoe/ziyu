@@ -46,20 +46,26 @@ She leaned forward and placed her hands on the desk, subtly slipping her elbow o
 
 He smiled back at her and said, "I don't know what you're talking about."
 
-She stood up and gathered herself, glancing quickly at the room and took a step from behind the desk.
+She stood up and gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step from behind the desk.
 
-When she was next to him, she turned her head and said, "You *will* regret this."
+When she was next to him, she turned her head and said, "You *will* regret this day."
 
-"I would quicker forget it than spare it my time," he chuckled quietly.
+"I would quicker forget you," he chuckled quietly.
 
-She quickly moved to the door and jolted it open it to leave, turning to take one last look at the room before closing the door behind her. What he didn't know is that she had traced the rails of the conduit and discovered one that reached the ceiling but did not emerge from the roof. And in her pocket was a brand new device made specifically to listen to it. She held the coil up to her ear as she ran back toward the entrance to ride back home.
+She quickly moved to the door and jolted it open it to leave, turning to take one last look at the room before closing the door behind her. What he didn't know is that she had traced the rails of the conduit and discovered one that reached the ceiling but did not emerge from the roof. And in her pocket was a brand new device made specifically to listen to it. She held the coil up to her ear as she made her way through the crowds back to the gate where she had entered.
 
-"Holragi Conduit, this is Rudjan Conduit."
+"It's Tunbi."
 
-She could hear him loud and clear.
+She could hear him clearly through the device.
 
-"Melna knows about our plan. We need to mobilize at once."
+"Heiko knows. We need to move fast."
 
-"Understood. We sail at sundown."
+An unfamiliar voice spoke in response, "All units, begin the blockade. Let's push those hoarders into the dark."
 
-"Fuck. This," she thought aloud.
+A pool of anger welled up within her, but she contained it within her awareness to make room for the urgency she felt for her people. Wherever Linyu had gone, she was confident Pomri would keep hae safe. Heiko needed her.
+
+With a sort of graceful agility, her fervid limbs slipped her through the crowds of hungry Rudjanese filling the merchant docks and to the row of gates they had entered through.
+
+She called to her from the inside, "Bavle...," but there was no response nor sign of a person.
+
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. She recounted what Bavle said about her duty as gatekeeper, and felt her muscles tense as a shadow of dread washed over her. The entire city had become an elaborate trap.

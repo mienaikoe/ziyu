@@ -18,7 +18,7 @@
 
 Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescopic projector pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
-"What should I be looking for, Thimlu?" Melna asked.
+"Okay Thimlu, lead the way," Melna asked.
 
 "Look for a line of small dots rising up from the horizon."
 
