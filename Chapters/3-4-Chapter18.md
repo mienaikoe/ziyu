@@ -1,10 +1,46 @@
 ## Chapter 18
 
-She already knew that something was amiss at the train station. The winds had slowed to a standstill, and the elevated rails that hung over the square held their voice in punctuation of the silence that pervaded there. The few of its occupants seemed to be dodging each others' glances, fearful of some spirit that might curse them if they accidentally stared too long. She quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *They must have seen something. What happened?*
+She knew that something was amiss at the train station when the crowds she expected to be waiting for the train were nowhere to be found. The steel pylons of the elevated line hung over the square and cast their endless lines of shadow upon it. The few occupants who dared remain there glanced around cautiously, as if wary for some all powerful demon who whisks trains and passengers in and out of existence.
 
-From the corner of her eye, she spotted a copper coil just like the one Linyu was fiddling with, sitting in a corner of two walls. Attempting not to look suspicious, she picked it up and looked it over. The coil was now hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. She memorized its appearance and hid it in her coat sleeve, looking around and imagining why Linyu might have left it here.
+After much searching, she quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *What happened here?*
 
-She looked around one last time and concluded that Pomri must have gotten worried after she took so long and gone to the conduit looking for her. Even if they weren't there, she still might get a lead on what the man meant by Heiko being rubble. As she left, she couldn't shake the feeling that something had happened to Pomri and Linyu, but she affirmed to herself that her course of action was the best option to take at the moment. She retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
+From the corner of her eye, she spotted a little boy against a wall in a shaded corner staring at her. From the crevasse of his cloak he summoned her with a slight gesture of his hand, catching Melna off guard. But his gaze did not move, and she had no other leads to go on, so she approached him slowly, checking every corner and vantage point in the area.
+
+"You are looking for someone?" he asked.
+
+"Yes. A woman and a kaln. Have you seen them?"
+
+"What is your name?"
+
+"My name? Why do you ask?"
+
+He remained silent, staring at her with the eyes of a child who had internalized the folly of trust. 
+
+Melna stood confidently and said, "I am Melna um Heiko. Now please tell me if you know where they've gone or I shall be on my-"
+
+"Pomri was captured and taken to Shaki aboard a private train."
+
+"Who took her? Where is Linyu?"
+
+"Linyu is in a safe place. There was no time for hae to say goodbye. As for Pomri, I couldn't see who took her but I'm sure it's Holragi."
+
+"How... Who are you anywa-?"
+
+"Linyu left this for you."
+
+He lifted his hand from his coat and produced a copper coil just like the one Linyu was fiddling with. It had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. With a gentle grasp, she lifted it from his hands and hid it in her coat sleeve, wondering why Linyu had left this for her.
+
+"Left this for me?" she asked, bewildered, "But why?"
+
+"The wind speaks," he said mysteriously. "You must listen."
+
+He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it. 
+
+*Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often looked like this, but this didn't appear to be a motor. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you, Linyu?*
+
+She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me. Our home cannot be destroyed.* Yet there was a looming dread hanging in her mind that something terrible would happen to Pomri.
+
+She retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
 "Pomri?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured, "Rudjan conduit requesting delay," and then shuffled from the desk to approach her.
 
@@ -68,4 +104,4 @@ With a sort of graceful agility, her fervid limbs slipped her through the crowds
 
 She called to her from the inside, "Bavle...," but there was no response nor sign of a person.
 
-"Bavle!" she called again, making sure to be heard. But no one was there to hear her. She recounted what Bavle said about her duty as gatekeeper, and felt her muscles tense as a shadow of dread washed over her. The entire city had become an elaborate trap.
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. She recounted what Bavle said about her duty as gatekeeper, and felt her muscles tense as a shadow of dread washed over her. The entire city had become an elaborate trap and she was in the middle.

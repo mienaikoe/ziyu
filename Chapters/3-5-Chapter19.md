@@ -24,6 +24,9 @@
       - They don't have a navy. But they do have a fearless fighting force.
       - Setre could steal a boat from Rudjan with Linyu's help (going back to what she does best for the greater good)
 
+
+- infighting as Linyu despises Setre for using Melna as a diversion to save Heiko
+
 - Melna hides
   - Overhears talk about capturing Pomri
     - They didn't find Linyu, but Linyu can't see without antikan
