@@ -36,7 +36,7 @@ He lifted his hand from his coat and produced a copper coil just like the one Li
 
 He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it. 
 
-*Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often looked like this, but this didn't appear to be a motor. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you, Linyu?*
+*Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you, Linyu?*
 
 She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me. She would never forgive me for choosing her over Heiko.* Yet there was a looming dread hanging in her mind, battering her with guilty thoughts that maybe this was all preventable. Maybe if she had never been hell-bent on pleading her case to the senate. If she were a better leader, a better wife. She stopped when a solitary tear leapt out of her eyes.
 
