@@ -14,7 +14,7 @@ From the corner of her eye, she spotted a little boy against a wall in a shaded 
 
 "My name? Why do you ask?"
 
-He remained silent, staring at her with the eyes of a child who had internalized the folly of trust. 
+He remained silent, staring at her with the eyes of a child who had internalized the folly of trust.
 
 Melna stood confidently and said, "I am Melna um Heiko. Now please tell me if you know where they've gone or I shall be on my-"
 
@@ -24,7 +24,17 @@ Melna stood confidently and said, "I am Melna um Heiko. Now please tell me if yo
 
 "Linyu is in a safe place. There was no time for hae to say goodbye. As for Pomri, I couldn't see who took her but I'm sure it's Holragi."
 
-"How... Who are you anywa-?"
+"No. How could..."
+
+Her despair overtook her, and she grasped for the boy's shoulder as she lowered herself to cry.
+
+"I'm so sorry, Pomri", she said into the darkness. "I led you into a trap."
+
+The boy took her hand in his own and spoke to her.
+
+"Regrets do not mend the wound," he said, " But actions can ease the pain."
+
+They paused like this for a moment before he pulled something metal out of a pocket in his coat.
 
 "Linyu left this for you."
 
@@ -34,13 +44,13 @@ He lifted his hand from his coat and produced a copper coil just like the one Li
 
 "The wind speaks," he said mysteriously. "You must listen."
 
-He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it. 
+He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it.
 
-*Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you, Linyu?*
+*Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you?*
 
-She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me. She would never forgive me for choosing her over Heiko.* Yet there was a looming dread hanging in her mind, battering her with guilty thoughts that maybe this was all preventable. Maybe if she had never been hell-bent on pleading her case to the senate. If she were a better leader, a better wife. She stopped when a solitary tear leapt out of her eyes.
+She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me.* Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holragi such power; could have fought for Liffa to stay here. She stopped herself when a solitary tear leapt out of her eyes.
 
-She told herself, "Tears do not build a house," and then returned to reality.
+"I will find you when this is over," she swore to Pomri, "You will be safe again."
 
 She retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
@@ -54,7 +64,7 @@ She retraced her steps down the pathway toward the conduit building, recalling h
 
 "I am a senator. There is no such order."
 
-"You leave now!" he yelled, pushing her out. Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her hand hovered over the switch for the conduit and the man stopped in his tracks. 
+"You leave now!" he yelled, pushing her out. Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her hand hovered over the switch for the conduit and the man stopped in his tracks.
 
 She tried to calm him down, "You seem agitated. Like you know something you don't want to say." He didn't say a word, but held his apprehensive stance.
 
@@ -72,7 +82,7 @@ He didn't respond.
 
 "What a sad person you are constructing such fantasies in your head. Everybody knows what you're trying to do and you'll never get away with it."
 
-"Whatever it is you think we're trying to do, Holragi has far worse in store." 
+"Whatever it is you think we're trying to do, Holragi has far worse in store."
 
 "They will save us from the obscura–"
 
