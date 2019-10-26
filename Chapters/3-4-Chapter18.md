@@ -68,7 +68,7 @@ She retraced her steps down the pathway toward the conduit building, recalling h
 
 She held one hand out and said, "You seem agitated. Do you have some things to tell the rest of us?"
 
-"Step away from that switch!"
+"Step away from the desk!"
 
 "Ooh so you *do* know what's happening to Holragi. Or maybe you know where they took my assistant."
 
