@@ -50,57 +50,77 @@ He backed away and she shouted, "Wait!" but he was much too difficult to find in
 
 She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me.* Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holragi such power; could have fought for Liffa to stay here. She stopped herself when a solitary tear leapt out of her eyes.
 
-"I will find you when this is over," she swore to Pomri, "You will be safe again."
+"I will find you when this is over," she swore to Pomri, "and you will have a home to come back to. I promise."
 
 She retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
-"Pomri?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured, "Rudjan conduit requesting delay," and then shuffled from the desk to approach her.
+"Hello?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured something quiet into the microphone and then shuffled from the desk to approach her.
 
 "You can't be here. Please leave."
 
-"What do you mean? The conduit is a public utility."
+"The conduit is a public utility."
 
-"Rudjan conduit is closed indefinitely under order from the senate."
+"Rudjan conduit is closed under order from the senate."
 
 "I am a senator. There is no such order."
 
 "You leave now!" he yelled, pushing her out. Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her hand hovered over the switch for the conduit and the man stopped in his tracks.
 
-She tried to calm him down, "You seem agitated. Like you know something you don't want to say." He didn't say a word, but held his apprehensive stance.
+She held one hand out and said, "You seem agitated. Do you have some things to tell the rest of us?"
 
-Melna glanced at the chair across the table. "Have a seat," she said. "I'd like to talk for a moment."
+"Step away from that switch!"
 
-"Have you ever been to Heiko, žah...?" She began.
+"Ooh so you *do* know what's happening to Holragi. Or maybe you know where they took my assistant."
+
+He didn't say a word, but held his apprehensive stance. Melna glanced at the space across the table, her hand still at the ready.
+
+"Have a seat," she said. "I'd like to talk."
+
+He looked around for help or dignity, both of which he had found himself in a great debt, then kicked a stool out from underneath the table and reluctantly sat down.
+
+She began, "Have you ever been to Heiko, žah...?"
 
 He didn't respond.
 
 "Operator, then. Well, operator, what do you know about Heiko?"
 
-"You hoard food and shroud your knowledge in lies. Your maman told the whole senate."
+"You hoard food and lie to the world. Liffa told the senate."
 
-"Is that what they're saying on the conduit these days? Now tell me. What do they say in the more secretive channels."
+"Is that what the operators are saying on the conduit these days? Now tell me. What do you talk about in the more secretive channels."
 
-"What a sad person you are constructing such fantasies in your head. Everybody knows what you're trying to do and you'll never get away with it."
+He donned a fake smile and said, "I have no clue what you're talking about."
 
-"Whatever it is you think we're trying to do, Holragi has far worse in store."
+Melna was quickly becoming impatient with him. She moved from her spot and around the table to lift him up and pin him against the table, his head not far from the button to the microphone.
 
-"They will save us from the obscura–"
+But his confidence didn't wane. He spoke in a hurried tone, "You and your people are all criminals. Everybody knows it. You'll never succeed as long as Holragi is in power."
 
-"But at what cost?"
+"Holragi, eh? Did their operator tell you about how their sociopath scientist kidnapped my maman?"
 
-She leaned forward and placed her hands on the desk, subtly slipping her elbow onto the conduit switch.
+"Scum like you don't deserve to die as heroically as Liffa. But the blood of Holragi flows stronger in hae veins."
 
-"In Heiko, we value community above all else. We take care of each other, regardless of how different we are. And we extend that warmth to everyone we meet. But I want you to remember this most of all: we know when we have been betrayed. We may run but we will rebuild. And those who reveled in our suffering will be the first to answer for their crimes."
+She leaned forward and stared close into his eyes on the desk, moving her free hand to the table.
 
-He smiled back at her and said, "I don't know what you're talking about."
+"You know nothing about Liffa."
 
-She stood up and gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step from behind the desk.
+"Yes, I imagine it will be fitting, dying with all hae secrets amongst the remnants of her false home."
 
-When she was next to him, she turned her head and said, "You *will* regret this day."
+"Stop it!"
+
+"It's a shame you'll never be able to say goodbye."
+
+She maintained her scowl tirelessly, her entire frontal lobe holding back from slamming his head against the table repeatedly until she felt better, but she knew this wasn't the time. She committed his words to the parts of her memory that were padded and padlocked and armored against the hardest truths, then simply lifted her hands from the switch of the microphone, making sure the operator saw her.
+
+Her hands released his shirt and he slipped to the floor, still in shock. She spoke quietly, "Heiko is a warm place," she said quietly, "Full of beautiful places and generous people. But I want you to remember this. We know when we have been betrayed. We may suffer but we will rebuild. And those who rejoiced in our suffering will be the first to fall upon our swords."
+
+He was still contemplating the microphone; if she had really broadcast so much to the conduit. The silence on the line was unbreaking and told him nothing. She gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step toward the door as he lifted himself from the floor.
+
+When he had stood up, she turned her head and said, "You *will* regret this day."
 
 "I would quicker forget you," he chuckled quietly.
 
-She quickly moved to the door and jolted it open it to leave, turning to take one last look at the room before closing the door behind her. What he didn't know is that she had traced the rails of the conduit and discovered one that reached the ceiling but did not emerge from the roof. And in her pocket was a brand new device made specifically to listen to it. She held the coil up to her ear as she made her way through the crowds back to the gate where she had entered.
+The floorboards creaked loudly under her feet as she quickly moved to the door and jolted it open it to leave, turning to take one last look at the operator and his room before closing the door behind her.
+
+What he didn't know is that she had traced the rails of the conduit and discovered one that reached the ceiling but did not emerge from the roof. And in her pocket a new friend had made her a brand new device made specifically to listen to it. She held the coil up to her ear as she made her way through the crowds back to the gate where she had entered.
 
 "It's Tunbi."
 
