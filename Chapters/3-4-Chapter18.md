@@ -160,14 +160,14 @@ A voice spoke in anger, "Did you find her?"
 
 "Yes, žah."
 
-"The blockade begins at apoapsis. Your ships will not be late."
+"The blockade begins at apoapsis. Your armies will not be late."
 
 "We will be ready."
 
-The voices left and from the static a pool of rage welled up within her. But she handled it with the finesse of a senator. To let that passion burn its course would be a waste of a life. Instead she would let it burn slowly, fueling her planning late into night, filling the hearts of the people around her. It was her own personal Ara, giving her the means to its end.
+The voices stopped and she remembered how she had heard that voice: Fajro. A pool of rage welled up within her from the static that remained on the line, but she handled it with the finesse of a senator. To let that passion burn uncontrollably would be to waste it. Instead she let it burn slowly, fueling her planning, crafting her speech, filling the hearts of her people. Passion was her own personal Ara, giving her the means to its own end.
 
-With a sort of graceful agility, her fervid limbs slipped her through the crowds of Rudjanese fishers, shipwrights, and merchants. The hungry and the envious filled the merchant docks but did not slow her charge toward the row of gates they had entered through.
+Her fervid limbs slipped through the crowds of Rudjanese who remained blissfully ignorant and powerless to the greater changes happening around them. They were hungry and they were envious; nothing would stop them from filling the docks of the merchant's quarter with their demands. She felt a false disdain for them but did not let it slow her charge toward the gates to Heiko. She was cautious as she approached the mostly empty gate, but did not see any signs of a trap.
 
 She called to her from the inside, "Bavle...," but there was no response nor sign of anyone.
 
-"Bavle!" she called again, making sure to be heard. But no one was there to hear her. *Neither fear of death nor promise of reward*, she recalled Bavle saying. The entire city had become an elaborate trap and she was in the middle of it all.
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. *Neither fear of death nor promise of reward*, she recalled Bavle saying, and a wave of dread washed over her. The entire city had become an elaborate trap and she was in the middle of it all.

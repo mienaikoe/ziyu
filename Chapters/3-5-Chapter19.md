@@ -1,10 +1,9 @@
 ## Chapter 19
 
 <!--
-
 - Holragi wants to use Melna and Liffa as bargaining chips against each other when negotiating with Liffa about communicating with the obscura.
   - If Heiko is blockaded, there needs to be some external force to help them
-    - Ulukoma? 
+    - Ulukoma?
       - Setre knows about Holragi's plan to destroy Heiko
       - They would have to plan to help Heiko already.
         - That's what planting Linyu was about
@@ -18,7 +17,7 @@
         - They would have to sneak out secretly. How?
           - Kanosin+Antikan = no breathing for a long time. Swim out in the darkness to a ship only visible underwater (kanosin blue)
             - How does Heiko acquire Kanosin+Antikan?
-              - Casra's stash in Shaki Harbor. Linyu+Setre fetch it 
+              - Casra's stash in Shaki Harbor. Linyu+Setre fetch it
                 - then arrive in Heiko (during a blockade?!)
                 - then smuggle it into Heiko, taking on a disguise.
       - They don't have a navy. But they do have a fearless fighting force.
@@ -41,11 +40,20 @@
     - Linyu can route Heikoans to Ulukoma
       - If Linyu uncovers that they're now immortal
 
-- Linyu/Pomri encounter Setre who fills them in about Ulukoma 
+- Linyu/Pomri encounter Setre who fills them in about Ulukoma
   - and the invulnerability of Kanosin
     - They would still want to go to Shaki to tell the world about Holragi's betrayal.
 -->
 
+  "Woop?" cried Laen from the left-most gate.
+
+  "Laen-Laen!" Melna responded with joy. She hurried over to him and asked, "Are you ok? Do you know where Bavle is?"
+
+  He appeared in a good state but shook his head in denial and worry for Bavle. Melna comforted him with a gentle scratch on his forehead.
+
+  "It's ok. She's strong," she said. "I need to get out. Let me find a way."
+
+  She scaled the gates and walls with her eyes, looking for footholds and niches to climb, but the gate had been eroded by the wind over countless sa'tova to a smooth face, impossible to climb.
 
 
 
@@ -125,7 +133,7 @@ Thi pointed to the listener in hae ear.
 
 Thi began to cry but held hae wits together while trying to find a way to explain.
 
-Melna pressed for simpler answers. 
+Melna pressed for simpler answers.
 
 "is it a weapon, some new material?"
 
