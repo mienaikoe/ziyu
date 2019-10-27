@@ -96,8 +96,8 @@ If they get into Rudjan
 
   "Thank you for letting us know. We'll be vigilant," said Melna. Her curious eye pulled her focus toward the woman's clothes, catching a glimpse of a healing wound on her chest.
 
-  Melna expressed her concern, "Bavle, will you be–" 
-  
+  Melna expressed her concern, "Bavle, will you be–"
+
   "Shush," she said. "My place is to protect this gate. Neither fear of death nor promise of reward can take me from it."
 
   "I see," said Melna.
@@ -126,8 +126,8 @@ If they get into Rudjan
 
   "I'll have six of those and whatever fish you suggest."
 
-  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was a bit larger than the size of hae hand. 
-  
+  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was a bit larger than the size of hae hand.
+
   "Do you want it cooked?"
 
   "Yes, please," she replied.
@@ -162,7 +162,7 @@ If they get into Rudjan
 
   "But what will you do if you run out of food before then?"
 
-  "We won't," thi said coldly. 
+  "We won't," thi said coldly.
 
   "I see," Melna replied
 
@@ -177,7 +177,7 @@ If they get into Rudjan
   "I don't know. A seller had some seaweed hanging on it, and then Linyu felt it and got all excited. I was getting hungry anyway so I just bought both."
 
   "I see", she said, curious but patient.
-  
+
   She turned to Linyu and announced, "Bread?" lighting up Linyu's face. Thi immediately put away the piece of wire and she handed them both a circle of bread each. She opened the wrapped fish and leaned against a wall near Linyu to eat.
 
   "The people here," she addressed Pomri. "They're blissfully ignorant of their impending doom. It's like they aren't prepared at all."
@@ -205,7 +205,7 @@ If they get into Rudjan
   "Have you ever been to Rudjan?" Melna asked hae while closing the bag.
 
   "Before," thi said with a longing tone, stopping hae fiddling with the wire.
-  
+
   Thi hesitated and looked away, but Melna didn't relent this time.
 
   "Linyu. I know that whatever happened to you must be difficult to remember, but if..." she hesitated to push her own troubles out of her mind. "If your parents or any of your family are out there, they must be worried looking for you."
@@ -239,7 +239,7 @@ If they get into Rudjan
   "I. Don't. Know."
 
   The protrusion of the pendant under Linyu's shirt drew Melna's eye, and brought a flush to her cheeks and a tear to her left eye.
-  
+
   "Wherever Kipnu is, he must be kicking up a storm with your mother."
 
   "I Hope," thi said, hoping for a lot of things. <!-- TOOD -->
@@ -258,26 +258,26 @@ If they get into Rudjan
 
   <!-- At the conduit -->
 
-  Melna took a glance at the colors in the sky from behind the nest of wires leading to the conduit. It was nearly time for the train to arrive. 
-  
+  Melna took a glance at the colors in the sky from behind the nest of wires leading to the conduit. It was nearly time for the train to arrive.
+
   "We must be prompt", she told them. "I will go to the conduit alone while you two head on to the train station and secure a spot for me."
-  
+
   Linyu looked back with worried eyes, but Melna reassured hae, "I won't be long. Save me a seat near the window."
-  
+
   "Come on," said Pomri. She pulled hae up onto her shoulders with ease, and made her way toward the station before thi could object.
 
   She lingered there watching them but for a moment, then with a swift turn Melna began trotting toward the conduit tower with her mind focused on Thimlu and the strange dots in the sky.
 
-  The door flung open just before she could reach for it and a large man with disheveled robes appeared in the doorway. His face held no expression as he glanced in the direction of the train station, but the sweat on his neck and ears told a story of frustration. Melna noticed that his boots were peculiar. A thickly wound and thickly-grown kelp fabric covered his feet. It wasn't an exact match to Linyu's dusty shirt, but it bore a resemblance she couldn't ignore. 
-  
+  The door flung open just before she could reach for it and a large man with disheveled robes appeared in the doorway. His face held no expression as he glanced in the direction of the train station, but the sweat on his neck and ears told a story of frustration. Melna noticed that his boots were peculiar. A thickly wound and thickly-grown kelp fabric covered his feet. It wasn't an exact match to Linyu's dusty shirt, but it bore a resemblance she couldn't ignore.
+
   With a loud and quick huff he took off without looking, barrelling straight into Melna and paying her no mind as he kept his path. She looked back at him, incredulous, and said, "Hey, mind yourself!"
 
   But there was no response in either eye or stride. She quickly measured her options and decided that she had just enough time to follow him to at least the center of the city. She could always get word from the observatory from Shaki, and she was suspicious that there was something he had just heard that she might find interesting.
-  
-  She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats on his left side. Melna immediately took a position hiding behind a large wooden column as she looked on. 
-  
+
+  She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats on his left side. Melna immediately took a position hiding behind a large wooden column as she looked on.
+
   "The magistrate hasn't seen them in Shaki either," he said as he approached a boat. *Was he speaking to someone?*
-  
+
   "They must have gone to Heiko, it's the only place left."
 
   Melna could barely make out the whispers of a response, but the boat seemed empty as far as she could tell. She watched him untie the boat from the dock and step in near the back. Without a pause, a rough shipping bag in the boat begin to move and out of it emerged a pair of glowing blue eyes. Melna felt a deluge of questions and fears and frustrations wash over her, but resolved to stay focused as long as she could. A woman came out of the bag and showed a terrible healing gash on the right side of her head. Melna was sure would have killed a normal person, but somehow she was alive and well.
@@ -285,13 +285,13 @@ If they get into Rudjan
   "Those idiots. He said the whole place will be rubble before they can even think of escaping."
 
   *What?!*
-  
+
   "Ginnu, hurry up. We need to move," he barked.
 
   "Yes," she said in a broken whisper.
 
   They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just heard.
 
-  "This trip was doomed to fail. Holragi never wanted to negotiate," she said to herself, trying to remain calm.
+  "This trip was doomed to fail. Holragi would never reveal their intensinos," she said to herself, trying to remain calm.
 
   "I need to talk to Linyu."

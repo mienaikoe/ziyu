@@ -48,11 +48,13 @@ He backed away and she shouted, "Wait!" but he was much too difficult to find in
 
 *Who was he? And Pomri, captured? How could that happen? Was she protecting Linyu?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you?*
 
-She turned around and looked backward into the city, at the patches of tall buildings haphazardly placed amongst a watery foreground, and decided to suspend her worries about Pomri and refocus on Heiko. *Pomri is capable. She'll be alright without me.* Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holragi such power; could have fought for Liffa to stay here. She stopped herself when a solitary tear leapt out of her eyes.
+She looked down the elevated line in the direction of Shaki, and with her mind she reached out through the massive rails of steel that took Pomri away. *Pomri is capable. She'll be alright without me*, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holragi such power; could have fought for Liffa to stay here. She stopped herself when a solitary tear leapt out of her eyes.
 
 "I will find you when this is over," she swore to Pomri, "and you will have a home to come back to. I promise."
 
-She retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
+She turned and bowed as a parting gesture and looked back toward Rudjan with all its patches of wooden buildings haphazardly placed amongst the watery foreground, and surrendered all of her worries in order to focus. *They're invading Heiko but they also kidnapped a Heikoan on their way to Shaki. I need to figure out what they're planning. And keep a low profile.* She loosened her black shawl and raised it above her head to form a makeshift hood, and tightened it again around her neck. With a quick glance and a first step she headed back to the conduit to get some answers.
+
+Her feet retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
 "Hello?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured something quiet into the microphone and then shuffled from the desk to approach her.
 
@@ -62,11 +64,11 @@ She retraced her steps down the pathway toward the conduit building, recalling h
 
 "Rudjan conduit is closed under order from the senate."
 
-"I am a senator. There is no such order."
+She lowered her hood and said, "I am a senator. There is no such order."
 
-"You leave now!" he yelled, pushing her out. Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her hand hovered over the switch for the conduit and the man stopped in his tracks.
+"You leave now!" he yelled, realizing who she was. He ran over to her to push her toward the door, but Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her other hand hovered over the switch for the conduit, stopping the man in his tracks.
 
-She held one hand out and said, "You seem agitated. Do you have some things to tell the rest of us?"
+She said, "You seem agitated. Do you have some things to tell the rest of us?"
 
 "Step away from the desk!"
 
@@ -122,18 +124,50 @@ The floorboards creaked loudly under her feet as she quickly moved to the door a
 
 What he didn't know is that she had traced the rails of the conduit and discovered one that reached the ceiling but did not emerge from the roof. And in her pocket a new friend had made her a brand new device made specifically to listen to it. She held the coil up to her ear as she made her way through the crowds back to the gate where she had entered.
 
-"It's Tunbi."
+"It's Tunbe."
 
-She could hear him clearly through the device.
+She could hear him as clearly as if he were standing right next to her.
 
 "Heiko knows. We need to move fast."
 
-An unfamiliar voice spoke in response, "All units, begin the blockade. Let's push those hoarders into the dark."
+A voice spoke in anger, "Did you find her?"
 
-A pool of anger welled up within her, but she contained it within her awareness to make room for the urgency she felt for her people. Wherever Linyu had gone, she was confident Pomri would keep hae safe. Heiko needed her.
+*This voice... it sounds familiar.*
 
-With a sort of graceful agility, her fervid limbs slipped her through the crowds of hungry Rudjanese filling the merchant docks and to the row of gates they had entered through.
+"...Yea," said Tunbe, hesitantly.
 
-She called to her from the inside, "Bavle...," but there was no response nor sign of a person.
+"And you let her escape?"
 
-"Bavle!" she called again, making sure to be heard. But no one was there to hear her. She recounted what Bavle said about her duty as gatekeeper, and felt her muscles tense as a shadow of dread washed over her. The entire city had become an elaborate trap and she was in the middle.
+"I.. it-"
+
+"You *do* want to be risen, don't you?"
+
+*Risen?*
+
+"Y-Yes, žah."
+
+"Good. Then find her and bring her to my ship once you arrive."
+
+"It shall be done."
+
+*I need to hurry.* She began to run toward the entrance, but kept listening.
+
+"Žah, I've also heard word about a kaln who can hear our radio and knows about the risen. Thi escaped from Ulukoma through the chaos."
+
+*Linyu?*
+
+"No one would take some kaln in kelp clothing seriously. Focus on your duty."
+
+"Yes, žah."
+
+"The blockade begins at apoapsis. Your ships will not be late."
+
+"We will be ready."
+
+The voices left and from the static a pool of rage welled up within her. But she handled it with the finesse of a senator. To let that passion burn its course would be a waste of a life. Instead she would let it burn slowly, fueling her planning late into night, filling the hearts of the people around her. It was her own personal Ara, giving her the means to its end.
+
+With a sort of graceful agility, her fervid limbs slipped her through the crowds of Rudjanese fishers, shipwrights, and merchants. The hungry and the envious filled the merchant docks but did not slow her charge toward the row of gates they had entered through.
+
+She called to her from the inside, "Bavle...," but there was no response nor sign of anyone.
+
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. *Neither fear of death nor promise of reward*, she recalled Bavle saying. The entire city had become an elaborate trap and she was in the middle of it all.

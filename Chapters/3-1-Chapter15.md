@@ -82,7 +82,7 @@ Melna sighed, letting her internal frustration simmer down and settle.
 
 "Ask me tomorrow. I have to go home."
 
-Pomri threw her hands up in disappointment as Melna reached for a thick felted black cloak and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
+Pomri threw her hands up in disappointment as Melna reached for a thick felted black shawl and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
 
 Melna turned back to her and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
 

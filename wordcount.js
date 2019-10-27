@@ -1,4 +1,5 @@
 const fs = require('fs');
+const path = require('path');
 const wordcount = require('wordcount');
 
 const COMMENT_REGEX = /<!--[\S\s]*?-->/g;
@@ -6,7 +7,7 @@ const COMMENT_REGEX = /<!--[\S\s]*?-->/g;
 var total = 0;
 
 function countWords( filename ){
-  var file = fs.readFileSync("Chapters/" + filename, "utf8");
+  var file = fs.readFileSync( path.join("Chapters", filename), "utf8");
   file = file.replace(COMMENT_REGEX,"");
   var count = wordcount(file);
   total += count;
@@ -18,7 +19,7 @@ function countWords( filename ){
 }
 
 
-fs.readdir("./Chapters", function(err, items) {
+fs.readdir( path.join(".", "Chapters"), function(err, items) {
   for( let ix in items ){
     let item = items[ix];
     countWords(item);
