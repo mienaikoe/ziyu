@@ -3,7 +3,9 @@
 ## Chapter 8
 
 
-The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and bent nails. Kip was used to bikes and trains: the vehicles of the land, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved punishment if he thought about it long enough. The captain was a tall, muscular woman by the name of Zaenta, or at least that's what he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of them seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a maman child, with clear signs of withdraw. *These people need medical help. Ulu will only make them worse.*
+The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and rusted nails. despite its mostly ramshackle shape, its risers were strong and held tightly against the power rails, likely out of fear of the sails snapping in an eager wind. Kip was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough. 
+
+The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of the exiles seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a child, with clear signs of withdraw. *These people need medical help. Ulu will only make them worse.*
 
 After a few va'ma, they came near to a large island with tall trees and a bright bonfire roaring quite a way from the shore. The dimness of the sky made it feel like the end of the day, but they hadn't gone far. They could still see the outskirts of Shaki from across the sea. Kip's escort unchained his arms and shoved him to get in a line along the side of the boat with the others. The boat was still quite a ways from shore, and Kip couldn't tell what they were lining up for until he felt another stiff push behind him and the cold water hit like needles in his skin. He quickly surfaced and saw others fall in after him, some of them struggling to stay afloat. But he didn't have the strength to help them - he had to swim.
 
@@ -63,7 +65,7 @@ He asked her, "So, Casra, how did you wind up here?"
 
 "I'd prefer to ask you first."
 
-"Well. I pinned a guy against a wall who wanted to send my spouse to space."
+"Well. I pinned a guy against a wall who wanted to send my jund to space."
 
 Casra laughed until thi noticed that Kip wasn't.
 

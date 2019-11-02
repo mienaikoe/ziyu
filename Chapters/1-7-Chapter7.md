@@ -107,7 +107,7 @@ He finished jotting his notes and then turned the page for the next question.
 
 "So why was it delivered to you?"
 
-"It was intended for Melna, my wife."
+"It was intended for Melna, my jundwoman."
 
 "Melna, as in the senator?"
 
@@ -219,7 +219,7 @@ He had a convincing argument, but I remembered what Mel said about him.
 
 "I don't trust you. You could do anything with me and get away with it," I said.
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko senator's spouse, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
+"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko senator's jund, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
 
 Kip added his opinion, "It does sound like a good deal, Lif. One La'To on the frontlines of civilization is much better than whatever you would get in Ulu."
 

@@ -94,23 +94,23 @@ He donned a fake smile and said, "I have no clue what you're talking about."
 
 Melna was quickly becoming impatient with him. She moved from her spot and around the table to lift him up and pin him against the table, his head not far from the button to the microphone.
 
-But his confidence didn't wane. He spoke in a hurried tone, "You and your people are all criminals. Everybody knows it. You'll never succeed as long as Holragi is in power."
+He spoke between breaths with unwavering conviction, "You and your people. You're all criminals. Everybody knows it. You'll never succeed as long as Holragi is in power."
 
-"Holragi, eh? Did their operator tell you about how their sociopath scientist kidnapped my maman?"
+"Holragi, eh? Did their operator tell you about how their sociopath scientist kidnapped my jundmaman?"
 
-"Scum like you don't deserve to die as heroically as Liffa. But the blood of Holragi flows stronger in hae veins."
+"Scum like you don't deserve to die as heroes. But the blood of Holragi flows stronger in hae veins."
 
 She leaned forward and stared close into his eyes on the desk, moving her free hand to the table.
 
 "You know nothing about Liffa."
 
-"Yes, I imagine it will be fitting, dying with all hae secrets amongst the remnants of her false home."
+He laughed menacingly in her face, "I imagine it will be fitting, dying with all hae secrets amongst the remnants of her false home."
 
 "Stop it!"
 
 "It's a shame you'll never be able to say goodbye."
 
-She maintained her scowl tirelessly, her entire frontal lobe holding back from slamming his head against the table repeatedly until she felt better, but she knew this wasn't the time. She committed his words to the parts of her memory that were padded and padlocked and armored against the hardest truths, then simply lifted her hands from the switch of the microphone, making sure the operator saw her.
+She maintained her scowl, her entire frontal lobe holding back from slamming his head against the table repeatedly until she felt better, but she knew this wasn't the time. She committed his words to the parts of her memory that were padded and padlocked and armored against the hardest truths, then simply lifted her hands from the switch of the microphone, making sure the operator saw her.
 
 Her hands released his shirt and he slipped to the floor, still in shock. She spoke quietly, "Heiko is a warm place," she said quietly, "Full of beautiful places and generous people. But I want you to remember this. We know when we have been betrayed. We may suffer but we will rebuild. And those who rejoiced in our suffering will be the first to fall upon our swords."
 

@@ -9,7 +9,7 @@ ch13
   - Setre plans the attack with Kip, tells them where the armory is so they can steal weapons.
   - Linyu suggests using radio to synchronize movements
   - Linyu teaches the people radio
-  - Linyu and Ramne's woman, Ginnu, become closer
+  - Linyu and Ramne's jundwoman, Ginnu, become closer
   - Setre takes the antidote back to the Shadestead to heal the slaves who still follow Setre
 - Armed with listeners, they surround the Shadestead
   - Kip hears strange signals from Holragi on the radio
@@ -34,7 +34,7 @@ Setting:
 
   "Ginnu. Ginnu um Holragi."
 
-  "Ginnu. You're the one bound to Ramne?"
+  "Ginnu. You're the one joined to Ramne?"
 
   "We're... partners."
 
@@ -190,7 +190,7 @@ Setting:
 
 	"Thank you," she whispered to him through tearful eyes. If this was all an act, she was quite convincing.
 
-	Setre was drawing a map on the ground with some charcoal and a lantern, too engrossed to greet Kip as he came back in.
+	Setre was drawing a map on the ground with some charcoal and a lantern, too engrossed to greet Kipnu as he came back in.
 
 	"What was that about, Setre?"
 
@@ -332,4 +332,4 @@ Setting:
 
 	Ginnu looked intently toward him without a trace of the doubt she had before. She asked, "How is this possible?"
 
-	Kip told her, "The wind speaks. And Ulu listens."
+	Kip told her, "The wind speaks. And we listen."

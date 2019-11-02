@@ -46,13 +46,13 @@
 
   He began again, "so what's taking you to the capital?"
 
-  I froze a bit, stuttering, but said "My wife works there. Just bringing her something."
+  I froze a bit, stuttering, but said "My jundwoman works there. Just bringing her something."
 
-  "Ahh. Surprising your wife. I bet she'll be excited," he said.
+  "Ahh. Surprising your jundwoman. I bet she'll be excited," he said.
 
   "Heh. Yea. I hope she receives it well."
 
-  "A good wife would be happy that you thought to brighten her day like that."
+  "A good jundwoman would be happy that you thought to brighten her day like that."
 
   "Well we haven't been too happy with each other lately, so I hope you're right."
 

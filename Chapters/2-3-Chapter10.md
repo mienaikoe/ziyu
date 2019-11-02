@@ -61,7 +61,7 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
 "You were the cause of your own suffering."
 
-"Yes. I lost my spouses and my kaln, and I was sent here as punishment. About a ma'to after, my ex-spouses decided that they didn't want any reminders of the bond we shared, so they sent Lin to live with me. I... had just a glimpse of consciousness when I saw Lin for the first time in so long. I felt immense shame for who I had become. There was only one choice for me: sober up and be the mother I couldn't be before. There were many days when I felt the feverish hand of death upon me, but Lin watched over me, kept me hydrated, kept me accountable."
+"Yes. I lost my junds and my kaln, and I was sent here as punishment. About a ma'to after, my ex-junds decided that they didn't want any reminders of the bond we shared, so they sent Lin to live with me. I... had just a glimpse of consciousness when I saw Lin for the first time in so long. I felt immense shame for who I had become. There was only one choice for me: sober up and be the mother I couldn't be before. There were many days when I felt the feverish hand of death upon me, but Lin watched over me, kept me hydrated, kept me accountable."
 
 Thi gently leaned into Linyu who reciprocated the gesture.
 
@@ -179,7 +179,7 @@ Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi
 
 "And you know this... how?"
 
-"My wife is the senator for Heiko. The observers at Heiko found some anomalous objects in space that have been blocking Ara and are growing in number. They predict an ice age in 60 days."
+"My jundwoman is the senator for Heiko. The observers at Heiko found some anomalous objects in space that have been blocking Ara and are growing in number. They predict an ice age in 60 days."
 
 "WHAT?!"
 

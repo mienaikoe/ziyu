@@ -63,7 +63,7 @@
 
   "And what good would that be? Why save a people that throws away its own kin like trash for an addiction they can't control. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're an addict'? For me, I'd rather all under Ara freeze to death. Ulukoma will forge a new path in the dark."
 
-	"And you would leave your husband and wife to die too?"
+	"And you would leave your binded to die too?"
 
 	Casra cast her sights to the ground, and then looked up in a solemn gaze.
 
