@@ -136,7 +136,7 @@ If they get into Rudjan
 
   "90 please," thi said, wiping hae hands on hae apron.
 
-  Melna hesitated and then, recalling that she was no longer within Heiko, rummaged in her bag for two 50 coins and handed them over.
+  Melna hesitated, and then, recalling that she was no longer within Heiko, rummaged in her bag for two small glass spheres and handed them over.
 
   "Keep the extra," she said.
 

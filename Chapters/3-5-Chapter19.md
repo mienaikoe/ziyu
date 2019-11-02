@@ -53,7 +53,97 @@
 
   "It's ok. She's strong," she said. "I need to get out. Let me find a way."
 
-  She scaled the gates and walls with her eyes, looking for footholds and niches to climb, but the gate had been eroded by the wind over countless sa'tova to a smooth face, impossible to climb.
+  She scaled the gates and walls with her eyes, looking for footholds and niches to climb, but all the stones had been eroded to smooth nodules over countless sa'tova, impossible to climb. The wall continued into a stream, adorning a mask of moss and lichen but just as unclimbable. She squinted along the wall into the distance, searching for an opening, but the line gave to none but the fishing harbor. *Perhaps a boat.*
+
+  "Laen. I'll be right back," she said hurriedly. Laen let out a worried "woo" and watched through the gate as she ran Ulu-ward.
+
+  She stopped just short of the harbor at the first sign of three rudjan officials, and blended in behind a porter waiting for hae merchant with far too many boxes. The officials were customs inspectors by look, patrolling the island that connected the markets to the fishers' quarter. *Usually they stay in the port*.
+
+  One of them was taking her frustration out on an older maman. 
+  
+  "They came right through here. How could you miss them?" She said.
+  
+  "I honestly wasn't looking."
+
+  "A pair of glowing eyes and wounds all over hae body. You don't miss someone like that."
+
+  "All kinds of people come through here, I don't-"
+
+  "This isn't just anyone. Thi could be working with the obscura. You better not be a sympathizer."
+
+  "N-no. I-"
+
+  "Then tell me where they went!"
+  
+  She grasped the maman's hair but her partner pulled her away. 
+  
+  "This is going nowhere," he said, trying to talk calm her down.
+
+  "I can't be the only one who saw it," she argued, "And I don't take any of that kanosin shit."
+
+  "Maybe you did, but you've been searching all day with no leads. It's a dead end."
+
+  He and the other partner turned and started walking toward the customs house while she yelled at their backs, "So we just quit? What if she's one of them?"
+
+  She sulked in disbelief, staring back at them as the maman she tormented lay knealing before her, holding hae head in pain. With a sneer, she took off toward the harbor, perhaps to "search" for more clues. 
+  
+  After the inspectors left, Melna approached the poor maman while the porter gave nary a glance.
+
+  "Hey, are you ok?" She asked, reaching her hand out to the maman. Thi looked up at her with uncertain eyes, but a smile of gratitude.
+
+  "I'll be fine. I'm just a bit shaken."
+
+  "What were they on about back there?" she asked.
+
+  "'Spector thinks she saw a ghost," thi said as if it were a perfectly normal thing.
+
+  "And they harassed a stranger about it?"
+
+  "This is Rudjan; strength is the law. That and money."
+
+  "Where I'm from, people are the law."
+
+  "And where might that be, darling?"
+
+  "I'm from Heiko."
+
+  "Oh I know Heiko. They said your government was keeping secrets, but I don't buy it. What does another few days in the dark buy you? More nuzzles with your loved ones? Far better to die quickly, I say."
+
+  Melna smiled a bit. "You're the first person I've met that believes we are innocent," she said. "Many even from Heiko are unsure."
+
+  "Fear does bring out the worst in people. It's only natural."
+
+  Thi finally was able to stand up with Melna holding hae hand.
+
+  "Thank you... um?"
+
+  "Mel-", she rethought her words, "ka. Melka."
+
+  "Melka. A beautiful name. I'm Shinna," thi told her proudly, "I run a fishing outfit in the fishers' quarter so if you're ever looking for a fresh catch, let me know."
+
+  "Great to meet you, Shinna. Actually, I am looking to get across the wall, back to my home."
+
+  "Oh. I see. Well, smuggling isn't exactly my field of expertise, but I could make an exception."
+
+  "I would be immensely indebted to you."
+
+  "Damn right you would be. I charge extra for you fancy folk." Thi nodded to Melna's listener, which she had forgotten she was still wearing. They shared a smirk and Shinna took her hand to lead her to hae boat.
+
+  The boat was bigger than she had imagined, equipped with one large sail and two very high rail contacts. The hull was adorned with plates of steel that had been recently added.
+
+  "What are those plates on the hull for?" She asked as she boarded.
+
+  "Ice. The ocean is full of it now. Especially near Ulukoma We need something to break up the larger chunks so they don't damage the rest of the boat."
+
+  "I didn't know it was that cold already."
+
+  "These days go by quickly."
+
+  Melna slid her hands along all the ropes and poles that would soon be put to into action, wondering how many of ther crew she still had left.
+
+  
+
+  
 
 
 
