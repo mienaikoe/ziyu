@@ -202,7 +202,7 @@
 
   Melna apologized, "I'm sorry. We are joined, and... I just. Nobody knows what happened to him."
 
-  "I have no memories," she said, beginning to cry, "I only know that I am Ginnu and I woke up yesterday on this ship, in this satchel, naked and blind. I only know Ramne, and now you."
+  "I have no memories," she said, beginning to cry, "I only know that I am Ginnu and I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne then... and now you."
 
   *Ramne. That must be his name.*
 
@@ -250,11 +250,11 @@
 
   She eyed him up and down, and felt a wave of disgust wash over her.
 
-  "Would it pain you to leave a woman alone?"
+  "You must be one of those men who can't take a hint."
 
-  "Well I figured you'd have met my blue-eyed monster by now, and that just bothers me, you know?" He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
+  "Ah I see. You want to cut to the chase so quickly. Well I figured you'd have met my blue-eyed monster by now, and that just bothers me, you know?" He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
 
-  "Caus I rather like keeping that thing a secret."
+  "Caus I rather like keeping it a secret."
 
   "She's a throngia. Just like the rest of us."
 
@@ -262,20 +262,19 @@
 
   He reached for the satchel behind Melna, but she dodged and punched him in the abdomen, which he calmly shrugged off and threw her to the ground. He looked at the satchel again and lifted Ginnu out of it by the hair, holding her face over Melna's like a puppet.
 
-  "I'll let you in on a little secret. This is the face of someone who died. A whole day, no breathing. She bled out after braining herself on a metal floor."
+  "I'll let you in on a little secret. Ginnu used to own this body but then she died caus that fucking idiot sent her into the dark alone. She bled out after braining herself on a metal floor."
 
   Melna could hear Ramne but could only see Ginnu's anguish through her face. She wasn't dead, she was alive.
 
-  He continued to mock them, "This is an affront to life. An abomination! And it deserves to die!"
+  He continued to mock them, "Whatever this is. Is an affront to her life. An abomination! And it deserves to die!"
 
-  She stood back up and away from Ginnu, and he dropped Ginnu on the floor while she began to cry. It became apparent to Melna that all of Ginnu's wounds were likely attempts to murder her, and it sickened her even more. She looked around for a weapon, but it was too dark to see. Kipnu barreled toward her but she dodged his lunge and made a break for the stairs to the upper deck.
+  She stood back up and away from Ginnu, and he dropped Ginnu on the floor while she began to cry. It became apparent to Melna that all of Ginnu's wounds were likely attempts to murder her in her new form, and it sickened her even more. She looked around for a weapon, but it was too dark to see. Kipnu barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck.
 
-  "Shinna!!" She yelled while looking all over for hae. She spotted a crowd of people at the bow and Shinna facing them, hae feet on the gunwale. She sprinted toward hae, but before she could reach hae, thi screamed something unintelligible and was pushed into the sea by the grouped in front of her.
-
-
-  
+  "Shinna!!" She yelled after emerging onto the deck.
 
 
+
+  <!-- She spotted a crowd of people at the bow and Shinna facing them, hae feet on the gunwale. She sprinted toward hae, but before she could reach hae, thi screamed something unintelligible and was pushed into the sea by the grouped in front of her. -->
 
   <!-- Ramne tries to kill Melna, but Ginnu kills him instead, and he kills her in the process. -->
 
