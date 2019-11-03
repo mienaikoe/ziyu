@@ -286,9 +286,9 @@ If they get into Rudjan
 
   *What?!*
 
-  "Ginnu, hurry up. We need to move," he barked.
+  "Hurry up. We need to move," he barked.
 
-  "Yes," she said in a broken whisper.
+  "Yes," she said in a broken whisper and crawled back into her satchel.
 
   They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just heard.
 

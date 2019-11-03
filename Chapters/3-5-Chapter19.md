@@ -180,33 +180,27 @@
 
   She saw a satchel rustling in the corner, and from it a pair of light blue eyes emerged staring at her.
 
-  "Linyu?" she asked, but the voice hesitated.
+  "Linyu?" she asked, and the voice let out a gasp, as if knowing the name. Melna realized they were both afraid of saying anything, but she imagined that hiding yourself in a satchel in the dark was a much more vulnerable state to be in, so she went first.
 
-  Melna realized they were both afraid of saying anything, but suddenly remembered the name that the mysterious man called her, "Ginnu."
+  "My name is Melna. I met a kaln named Linyu last evening with eyes quite similar to yours."
 
-  "How do you know me?" she asked defensively.
+  "This kaln... also has blue eyes?"
 
-  "My name is Melna. I met a kaln named Linyu last evening. Thi mentioned someone named Ginnu with the same blue eyes that you have," she lied.
-
-  "This kaln... has these eyes too?"
-
-  Melna cautiously walked closer to the Ginnu while she crawled out of it. Through the darkness, she could see the outline of Ginnu's unclothed body and the soft rays of Ara landing on her skin. The wrinkles of her skin revealed that she was severely dehydrated, and Melna immediately withdrew her canteen to give her a drink. Ginnu was doubtful at the strange object Melna was handing her, but quickly bowed to desparation when she realized that the object was a canteen, and she took it eagerly.
+  Melna cautiously walked closer to her while she crawled out of her hiding bag. Through the darkness, she could see the outline of the woman's unclothed body and the soft rays of Ara landing on her skin. Her wrinkles revealed that she was severely dehydrated, and Melna immediately withdrew her canteen to give her a drink. The woman was wary of the strange object Melna was handing her, but quickly bowed to desparation when she realized that the object was a canteen, and she took it eagerly.
 
   "Are you from Ulukoma," Melna asked.
   
-  "Yes. Where are y-"
+  "I think so?"
 
   "What happened to Kipnu?"
 
-  Ginnu seemed confused.
+  "Kipnu?" she seemed more confused than before.
 
-  Melna apologized, "I'm sorry. We are joined, and... I just. Nobody knows what happened to him."
+  Melna apologized, "I'm sorry. He is my jundman, and... I just. Nobody knows what happened to him."
 
-  "I have no memories," she said, beginning to cry, "I only know that I am Ginnu and I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne then... and now you."
+  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne who was very angry when I first met him... And now I've met you."
 
-  *Ramne. That must be his name.*
-
-  "Are you injured?" Melna asked, recalling the wound on her head that she saw before.
+  "Are you injured?" Melna asked, recalling the wound on her head.
 
   "Yes, I think it's why I don't have any memories. But it doesn't seem infected or anything."
 
@@ -214,11 +208,11 @@
   
   Melna gently pulled her closer to the light and observed even more bruises and wounds and scars across her whole body.
 
-  "My goodness. How did you get all of these before?" Melna asked as she pressed gently on a few smaller bruises she saw, to see if Ginnu could feel them. She winced uneasily at each one.
+  "My goodness. How did you get all of these?" Melna asked as she pressed gently on a few healing cuts to see if they had gone numb. She winced uneasily at each one.
 
   "I don't know," she said, "But whoever I was, I don't want to be her anymore."
 
-  Melna smiled and said, "I'm glad," but silently she knew that she and Ramne must have been in an abusive relationship. She had to get her away from him.
+  Melna smiled and said, "I'm glad," but silently she knew that she had to get her away from him.
   
   "Come with me to Heiko," Melna asked.
 
@@ -226,17 +220,17 @@
 
   "I think you're in danger."
 
-  "But... there's danger in Heiko."
+  "But... I've heard there's danger in Heiko as well."
 
   "Yes. Terrible danger, but we can escape and-"
 
-  "You can't escape it. The danger is above."
+  "You can't escape it. The danger is from above."
 
   "Above?-"
 
   "Hope I'm not interrupting anything", called Ramne, opening a door to the stowage deck.
   
-  His voice struck fear in Ginnu's heart, and she ran back toward the satchel to hide. Melna stood her ground in front of Ginnu.
+  His voice struck fear in the woman's heart, and she ran back toward the satchel to hide. Melna stood her ground in front of her.
 
   "You look familiar", he said as he got sight of Melna, "Have I run into you before?"
 
@@ -260,131 +254,18 @@
 
   He laughed, "Oh ok. So you don't know what she really is. I guess I came down here for nothing then."
 
-  He reached for the satchel behind Melna, but she dodged and punched him in the abdomen, which he calmly shrugged off and threw her to the ground. He looked at the satchel again and lifted Ginnu out of it by the hair, holding her face over Melna's like a puppet.
+  He reached for the satchel behind Melna, but she dodged and punched him in the abdomen, which he calmly shrugged off and threw her to the ground. He looked at the satchel again and lifted the woman out of it by the hair, holding her face over Melna's like a puppet.
 
   "I'll let you in on a little secret. Ginnu used to own this body but then she died caus that fucking idiot sent her into the dark alone. She bled out after braining herself on a metal floor."
 
-  Melna could hear Ramne but could only see Ginnu's anguish through her face. She wasn't dead, she was alive.
+  Melna could hear Ramne but could only see the woman's anguish through her face. She wasn't dead, she was alive.
 
-  He continued to mock them, "Whatever this is. Is an affront to her life. An abomination! And it deserves to die!"
+  He continued to mock them, "This *thing* is an affront to Ginnu. An abomination to life! I wish I could kill it, but it just won't die!"
 
-  She stood back up and away from Ginnu, and he dropped Ginnu on the floor while she began to cry. It became apparent to Melna that all of Ginnu's wounds were likely attempts to murder her in her new form, and it sickened her even more. She looked around for a weapon, but it was too dark to see. Kipnu barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck.
+  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck.
 
-  "Shinna!!" She yelled after emerging onto the deck.
+  When she emerged into the light, she yelled "Shinna!!" but Shinna was in front of her with a disappointed look on hae face.
 
+  Thi said, "You've brought nothing but yourself, so shall your body become payment."
 
-
-  <!-- She spotted a crowd of people at the bow and Shinna facing them, hae feet on the gunwale. She sprinted toward hae, but before she could reach hae, thi screamed something unintelligible and was pushed into the sea by the grouped in front of her. -->
-
-  <!-- Ramne tries to kill Melna, but Ginnu kills him instead, and he kills her in the process. -->
-
-  
-
-  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<!--
-  "Ramne. Who is Ramne?"
-
-  "I've heard of him," Pomri chimed in. "He used to be some nobody in the Rudjan guard who thought he was smarter than the rest of us. Never got promoted, so he just left us one day without a trace."
-
-
-  Linyu whimpered in fear at his name, drawing Pomri's attention.
-
-  "Eh? What's gotten into you?" she asked.
-
-  Thi was getting ready to jump off of Laen-Laen and run, but Melna had already become aware of hae and leapt back to hae.
-
-  "Hey, Linyu. What's wrong?" asked Melna, holding onto hae arms.
-
-  "Ramne," thi said in a cracked voice, "He..."
-
-  Tears were forming at the corners of hae eyes.
-
-  "What did he do?"
-
-  "Mom," thi said, at the end of hae wit.
-
-
-
-
-  "I take it you're not a boat person. Well, we can't go back now so you're either coming with us or you're on your own again."
-
-  Thi took a moment, feeling angry at the predicament thi was put into. There was nowhere to run, standing outside a massive city barred from entry, and Laen-Laen, who could take hae anywhere if anywhere were safe anymore. Thi placed hae hand on Kip's pendant under hae shirt and closed hae eyes in thought.
-
-  "Together," thi whispered. Pomri smiled at hae courage.
-
-
-
-"The train here is shut down too," Pomri said with disappointment.
-
-"Nevermind that I need to speak with Linyu," said Melna.
-
-"What's gotten into you?" Pomri asked, suspicious.
-
-Melna stooped to Linyu's level and gazed into hae firey blue eyes. She was sure that the woman had them too.
-
-"Do you know a woman named Ginnu and a possibly her partner?" she asked.
-
-Linyu was shocked, "H-How.."
-
-"I need to know, Linyu. Please tell me. Who are they?"
-
-"Kanosin"
-
-"They sell kanosin?"
-
-Thi nodded in confirmation.
-
-"Did you know they are looking for you?"
-
-Hae hands began to tremble and she grasped them in comfort.
-
-"Why are they after you?"
-
-Thi pointed to the listener in hae ear.
-
-"Why is this thing so important? What does it do?"
-
-Thi began to cry but held hae wits together while trying to find a way to explain.
-
-Melna pressed for simpler answers.
-
-"is it a weapon, some new material?"
-
-Thi took the listener off hae ear and gave it to Melna, who hesitantly put it up to her ear.
-
-"I can hear strange static sounds. Where is it coming from?"
-
-Linyu gestured all around, wishing thi had hae transmitter there.
-
-Pomri interjected, "You're wasting your time with this nonsense."
-
-"Wait. I can hear someone talking," she said, still listening intently. She tried to hear the words, but could only hear a few through the noise.
-
-"What are they talking about?" she asked Linyu again.
-
-But instead of an answer Linyu held hae hand up to hae ear, telling her to keep listening.
-
-She listened closer and then heard an unmistakeable voice of the maman who woke up early to sit under a tree. Who dressed her before she went to Shaki and gave her a kiss on the forehead even when thi was unhappy with her.
-
-"Liffa! You're alive!"
-
-
-
-  "Please," Melna sniffled and looked down. "Keep mine with you as well. I do not know what fate lies before me, only that it will be dark and obscured from me. It would bring me peace to know that him and I are together in some small way, living apart from ."
-
-  She pressed it tightly against hae chest, taking time to cherish the memories of the man and maman she loved and to remember the oath of protection which she was desparately trying to keep. Her hands lifted the pendant from her neck and place it over Melna's.
--->
+  Melna's last sight of Shinna was at the top of those stairs, pushing her back down with a face that wore no emotion as she pleaded for hae to help.
