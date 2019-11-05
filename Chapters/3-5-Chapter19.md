@@ -170,7 +170,9 @@
 
   Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round windows, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko. 
 
-  Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness.
+  Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. 
+  
+  Her mind wandered to Kipnu, remembering how fearless he was through all his ordeals and even in the stories that Linyu told her about him. And Liffa who she heard from the furthest reaches of the void, still living breath by breath. She clutched her pendant, and imagined they could share some of their courage through it.
 
   "Who are you?"
   
