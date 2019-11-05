@@ -54,45 +54,45 @@
 
   "Maybe you did, but you've been searching all day with no leads. It's a dead end."
 
-  He and the other partner turned and started walking toward the customs house while she yelled at their backs, "So we just quit? What if she's one of them?"
+  He and the other partner turned and started walking toward the customs house while she yelled at their backs, "Are you quitting? What if thi is one of them?"
 
   She sulked in disbelief, staring back at them as the maman she tormented lay knealing before her, holding hae head in pain. With a sneer, she took off toward the harbor, perhaps to "search" for more clues. 
   
   After the inspectors left, Melna approached the poor maman while the porter gave nary a glance.
 
-  "Hey, are you ok?" She asked, reaching her hand out to the maman. Thi looked up at her with uncertain eyes, but a smile of gratitude.
+  "Hey, are you ok?" She asked, reaching her hand out to the maman's shoulder. Thi looked up at her with uncertain eyes, but a smile of gratitude.
 
   "I'll be fine. I'm just a bit shaken."
 
-  "What were they on about back there?" she asked.
+  "What were they on about back there?" she asked, crouching to see hae closer.
 
-  "'Spector thinks she saw a ghost," thi said as if it were a perfectly normal thing.
+  "'Spector thinks she saw a ghost," thi said as if it were expected.
 
   "And they harassed a stranger about it?"
 
-  "This is Rudjan; strength is the law. That and money."
+  "This is Rudjan; strength and money are the law."
 
-  "Where I come from, the people are the law."
+  "Where I come from, the law is recorded and interpretted by philosophers."
 
   "And where might that be, darling?"
 
-  "I'm from Heiko."
+  She glanced around for anyone who might seize her for what she was about to say and under her breath she uttered, "I am from Heiko."
 
-  "Oh I know Heiko. I go there to sell kelp and restock on our outgoing voyages. They say your government was keeping secrets, but I don't buy it. What does another few days in the dark buy you but more misery? Better to die quickly."
+  The maman was a bit confused but said, "Are you afraid someone will hear you? They say your government was keeping secrets, but I don't buy it. What does another few days in the dark buy you but more misery? Better to die quickly."
 
   Melna smiled a bit. "You're the first person I've met that believes we are innocent," she said. "Many even from Heiko are unsure."
 
   "Ah. Fear does bring out the worst in people."
 
-  Thi finally was able to stand up with Melna help.
+  Thi finally was able to stand up with Melna's help.
 
   "Thank you, darling."
 
   She hesitated and introduced herself, "Mel-", she rethought her words, "ka. Melka."
 
-  "Melka. A beautiful name. I'm Shinna," thi told her proudly, "My ship is at the northernmost dock. We're about to go on a voyage, but come find me if you're ever looking for a fresh catch."
+  "Melka. A beautiful name," thi said. "I'm Shinna.  My ship is at the northernmost dock. We're about to depart, but come find me if you're ever in the area."
 
-  "Great to meet you, Shinna. Actually, I am looking to get back home."
+  "Actually," she said tactfully, "I'm looking for a way back home."
 
   "Oh. I am no smuggler, but perhaps..." thi smiled, and then it sank as she stared off into the sky.
 
@@ -100,7 +100,7 @@
 
   She pleaded to hae, "I would be immensely indebted to you."
 
-  "And your life would be a debt that I could never repay to you."
+  "And you will die before you can repay it."
 
   She leaned in close and took hae hands in her own.
 
@@ -136,23 +136,23 @@
 
   "Crew!", Shinna addressed the crowd of around twenty. The volume of her voice shocked Melna out of her daydream. "This is uh.." Thi leaned toward Melna, trying to remember her name.
 
-  "Mel-", she hinted to hae, "-ba!" thi shouted confidently. "This is Melba."
+  "Mel-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
 
-  "Melba!" They all welcomed her. She was too paranoid about her identity to correct them, but also too amused to mind.
+  "Oy," They all greeted her. She was too paranoid about her identity to correct Shinna, but also too amused to mind.
   
   "She'll be joining us for a short time on today's voyage."
 
-  "You bring us anything?" a maman from the group shouted at her. She flushed red in embarassment, not knowing that she had to bring something.
+  "You bring us anything?" a maman from the group shouted at her. She flushed red in embarassment, not knowing that she would be expected to bring something.
 
   "We've taken in enough freeloaders, Shinna. When do we start getting a cut for our generosity?"
 
-  "That's not how generosity works."
+  "That's not how generosity works," thi responded.
 
-  A younger woman from the group rebuked hae, "Then what's the point? We all need something."
+  A younger woman from the group rebuked hae, "Then what's the point? We all need something to live on."
 
-  Melna glanced at an exapserated Shinna, who was looking for answers as much as she was. She decided to speak.
+  Melna glanced at an exapserated Shinna, who was looking for answers as much as she was.
   
-  "I... have very little with me," she told the group. "But I can ensure an eternal welcome to you all amongst the people of Heiko."
+  Melna offered them a deal. "I... have very little with me. But I can ensure an eternal welcome to all of you amongst the people of Heiko."
 
   "A welcome, eh?" the skeptical woman said. "What sort of promise is that?"
 
@@ -160,15 +160,15 @@
 
   "Sounds empty to me," said the maman.
 
-  Shinna spoke up, "Enough. You'll barely notice her onboard. She'll be in stowage."
+  Shinna spoke up, "Enough. You'll barely notice her. She'll be in stowage."
 
   "With the rest of the garbage," said the woman.
 
-  Shinna didn't respond but led Melna past the crew. She shared a glance with a man who had been sitting in the back. He didn't recognize her, but she could never forget the face of the man who stormed out of the conduit, and of those blue eyes peering from beneath the satchel. She was no longer safe.
+  Shinna didn't respond but led Melna past the crew. She shared a glance with a man who had been sitting in the back. He didn't recognize her, but she could never forget the face of the man who stormed out of the conduit, and of those blue eyes peering from beneath the satchel. She would maintain her vigilance.
 
 *************
 
-  Melna was given a space amongst the tarred crates in stowage. It was dimly lit by a few round windows, but she resolved to endure as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko. 
+  Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round windows, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko. 
 
   Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness.
 
@@ -240,32 +240,36 @@
 
   "Maybe you didn't listen."
 
-  "You know, you seem an awful lot like a man I used to know. He wasn't very good at listening either. I think," he paused to lean on a pillar next to him, "it's just our nature not to listen."
+  "You know, you seem an awful lot like a man I used to know. Thought he was above everyone. Above me." he paused to lean on a pillar next to him and look closer at Melna, "Didn't work out so well for him."
 
   She eyed him up and down, and felt a wave of disgust wash over her.
 
   "You must be one of those men who can't take a hint."
 
-  "Ah I see. You want to cut to the chase so quickly. Well I figured you'd have met my blue-eyed monster by now, and that just bothers me, you know?" He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
+  "Ah I see. You want to cut to the chase. Why am I here? Well I figured you'd have met my blue-eyed monster by now, and well, that bothers me a little bit." He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
 
-  "Caus I rather like keeping it a secret."
+  "Caus I rather like keeping thhat thing a secret."
 
   "She's a throngia. Just like the rest of us."
 
-  He laughed, "Oh ok. So you don't know what she really is. I guess I came down here for nothing then."
+  He laughed, "Sure she looks just like one of us. That's because she used to be."
 
-  He reached for the satchel behind Melna, but she dodged and punched him in the abdomen, which he calmly shrugged off and threw her to the ground. He looked at the satchel again and lifted the woman out of it by the hair, holding her face over Melna's like a puppet.
+  He reached for the satchel behind Melna, but she pushed him away.
+  
+  "Heh. Maybe you're one of them too."
 
-  "I'll let you in on a little secret. Ginnu used to own this body but then she died caus that fucking idiot sent her into the dark alone. She bled out after braining herself on a metal floor."
+  "One of who?"
+  
+  He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the abdomen. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the side, then grabbed the satchel again and lifted the blue-eyed woman out of it by her hair, holding her face over Melna's like a puppet.
+
+  "A woman named Ginnu used to own this body but one day she died caus that fucking idiot sent her into the dark alone. She fell three stories onto a metal floor and brained herself."
 
   Melna could hear Ramne but could only see the woman's anguish through her face. She wasn't dead, she was alive.
 
-  He continued to mock them, "This *thing* is an affront to Ginnu. An abomination to life! I wish I could kill it, but it just won't die!"
+  He continued to mock them, "This *thing* is an affront to Ginnu. An abomination to life! I wish I could kill it, but it *just won't die*!"
 
-  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck.
+  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head
 
-  When she emerged into the light, she yelled "Shinna!!" but Shinna was in front of her with a disappointed look on hae face.
+  ********
 
-  Thi said, "You've brought nothing but yourself, so shall your body become payment."
-
-  Melna's last sight of Shinna was at the top of those stairs, pushing her back down with a face that wore no emotion as she pleaded for hae to help.
+  <!-- intentional lack of period to make it seem like an awkward stop -->

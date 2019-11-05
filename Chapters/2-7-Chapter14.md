@@ -196,7 +196,7 @@
 
 	She didn't answer, unconscious.
 
-	"Welcome to the real Ulukoma, I guess," he said to her unhearing ears. He lifted himself, turning his back, and walked backward the way he came.
+	"Ginnu? Oh fuck," he realized what had happened to her, and instantly lifted himself and ran back the way he came.
 
 	Once Ramne had created enough distance, Kip hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
 
@@ -277,49 +277,41 @@
 	The plunger was hot and he first rubbed it across his small finger while wincing in pain to quickly sanitize, and then wedged it into the space her fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
 	He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kip stopped and jumped off of Ginnu and away from an arm trying to grab him out of the darkness. It was Ramne, by the looks of his markings, pacing toward him.
 
-	"Who're you? How'd you get down here?" Ramne asked.
+	"Who're you and what are you doing with Ginnu?!" Ramne demanded.
 
 	Kip took a defensive stance and held the blade tightly in the light so Ramne could see.
 
-	"I need to help Ginnu," Kip asserted.
+	"I need to help her," Kip asserted.
 
-	"Kip?! Well dammit, I thought you'd never come."
+	"You're that doctor that ran off. The fuck you think you're doing down here?"
 
 	Kip didn't respond, but held his stance and his look of disdain.
 
-	"Oh I get it. You're the hero come to the rescue. Bout time you woke up, man. No heroes here; just kanoheads. Selfish, miserable, fucked-up kanoheads."
+	"Oh I get it. You're the hero come to the rescue. Well you're about a lifetime too late."
 
-	"*You* made them that way. You don't have to keep doing this."
+	"Please, I need to help her."
 
-	He snickered under his gritty breath and took a few steps closer, kicking Ginnu's sprawled lifeless leg out of the way. Kip quickly glanced at her and saw the blood still trickling out of the wound. But he didn't dare budge to look further.
+	He snickered under his gritty breath and took a few steps closer, kicking Ginnu's sprawled lifeless leg out of the way. Kip could see that Ramne was on a bad trip of Kanosin. He quickly glanced at Ginnu and saw the blood still trickling out of the wound, but didn't dare take his eyes off of Ramne.
 
-	Ramne said, "You think I'm any different than anyone else here? You think either of my hearts still cares about right and wrong? If it weren't me out there keeping the world full of Kano, someone else would be doing it. I'd rather be the one reaping the benefits. Doesn't bother me one bit how they come."
+	Ramne said, "She's mine. Mine! But she doesn't give a shit about me. And I don't give a shit about her. You think I'm any different than anyone else here? You think either of my hearts still cares about right and wrong? If it weren't me out there keeping the world full of Kano, someone else would be doing it. I'd rather be the one reaping the benefits."
 
-	"Look, I'm not here to argue about how awful you are. Ginnu needs help or she'll die."
+	"Look, I'm not here to argue. Ginnu needs help or she'll die."
 
-	"She's already dead, Kip. What does she care?"
+	"She's already gone. What the fuck does she care?"
 
 	He glanced at her again to check the veracity of his statement. Blood continued to drip out of the wound.
 
-	Ramne continued, "You think you know what happened here, don't you, Kip. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Set and I tried to save it from burning to the ground."
+	Ramne continued, "You think you know what happened here, don't you, Kip. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Setre and I tried to save it from burning to the ground."
 
 	Ramne leaned over Ginnu, his chest above hers with his palms on his knees. He took a closer look at Kip in the light of his decorated body.
 
-	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can."
+	He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can. And then you die."
 
 	Kip met his gaze with conviction in his eyes. "When Ara fades from the sky and Lissa has killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
 	He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the dark."
 
 	Rising to his right, he turned and stared comfortably into the void as if speaking to an invisible friend.
-
-	"Tell me, Kipnu um Heiko: Why would a magistrate send a doctor to Ulukoma in the midst of a global crisis? Do you really think he values justice over sensibility?"
-
-	"How do you know about that?"
-
-	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power."
-
-	"People like you bring nothing but misery to the world. You make me sick."
 
 	"You know what, Kip, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
 
@@ -502,3 +494,17 @@
 	As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
 
 	The listener spoke again, "Kipnu... Melna... I love you."
+
+
+<!--
+
+	"Tell me, Kipnu um Heiko: Why would a magistrate send a doctor to Ulukoma in the midst of a global crisis? Do you really think he values justice over sensibility?"
+
+	"How do you know about that?"
+
+	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power."
+
+	"People like you bring nothing but misery to the world. You make me sick."
+
+
+-->
