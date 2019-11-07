@@ -160,7 +160,7 @@ A voice spoke in anger, "Did you find her?"
 
 "Yes, žah."
 
-"The blockade begins at apoapsis. Your armies will not be late."
+"The blockade begins at aphelion. You will not be late."
 
 "We will be ready."
 
