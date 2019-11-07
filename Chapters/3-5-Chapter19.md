@@ -30,10 +30,10 @@
 
   She stopped just short at the first sign of three rudjan officials, and blended in behind a porter waiting for hae merchant with far too many boxes. The officials were customs inspectors by look, patrolling the island that connected the markets to the fishers' quarter. *Usually they stay in the port*.
 
-  One of them was taking her frustration out on an older maman. 
-  
+  One of them was taking her frustration out on an older maman.
+
   "They came right through here. How could you miss them?" She said.
-  
+
   "I honestly wasn't looking."
 
   "A pair of glowing eyes and wounds all over hae body. You don't miss someone like that."
@@ -45,9 +45,9 @@
   "N-no. I-"
 
   "Then tell me where they went!"
-  
-  She grasped the maman's hair but her partner pulled her away. 
-  
+
+  She grasped the maman's hair but her partner pulled her away.
+
   "This is going nowhere," he said, trying to talk calm her down.
 
   "I can't be the only one who saw it," she argued, "And I don't take any of that kanosin shit."
@@ -56,8 +56,8 @@
 
   He and the other partner turned and started walking toward the customs house while she yelled at their backs, "Are you quitting? What if thi is one of them?"
 
-  She sulked in disbelief, staring back at them as the maman she tormented lay knealing before her, holding hae head in pain. With a sneer, she took off toward the harbor, perhaps to "search" for more clues. 
-  
+  She sulked in disbelief, staring back at them as the maman she tormented lay knealing before her, holding hae head in pain. With a sneer, she took off toward the harbor, perhaps to "search" for more clues.
+
   After the inspectors left, Melna approached the poor maman while the porter gave nary a glance.
 
   "Hey, are you ok?" She asked, reaching her hand out to the maman's shoulder. Thi looked up at her with uncertain eyes, but a smile of gratitude.
@@ -139,7 +139,7 @@
   "Mel-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
 
   "Oy," They all greeted her. She was too paranoid about her identity to correct Shinna, but also too amused to mind.
-  
+
   "She'll be joining us for a short time on today's voyage."
 
   "You bring us anything?" a maman from the group shouted at her. She flushed red in embarassment, not knowing that she would be expected to bring something.
@@ -151,7 +151,7 @@
   A younger woman from the group rebuked hae, "Then what's the point? We all need something to live on."
 
   Melna glanced at an exapserated Shinna, who was looking for answers as much as she was.
-  
+
   Melna offered them a deal. "I... have very little with me. But I can ensure an eternal welcome to all of you amongst the people of Heiko."
 
   "A welcome, eh?" the skeptical woman said. "What sort of promise is that?"
@@ -168,14 +168,14 @@
 
 *************
 
-  Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round windows, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko. 
+  Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round windows, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko.
 
-  Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. 
-  
-  Her mind wandered to Kipnu, remembering how fearless he was through all his ordeals and even in the stories that Linyu told her about him. And Liffa who she heard from the furthest reaches of the void, still living breath by breath. She clutched her pendant, and imagined they could share some of their courage through it.
+  Her mind wandered to Kipnu, remembering how fearless he was through his sentencing and even in the stories that Linyu told her about him. And Liffa who she heard from the furthest reaches of the void, still living breath by breath. She clutched her pendant, and imagined they could share some of their courage through it.
 
-  "Who are you?"
-  
+  Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. At least, she believed that she was.
+
+  "Who are you?" a quiet voice pierced the silence.
+
   Melna was startled to her feet at the invisible voice. She looked around but saw neither stirring nor looking.
 
   "Who was that?" she asked, still scanning the room.
@@ -191,7 +191,7 @@
   Melna cautiously walked closer to her while she crawled out of her hiding bag. Through the darkness, she could see the outline of the woman's unclothed body and the soft rays of Ara landing on her skin. Her wrinkles revealed that she was severely dehydrated, and Melna immediately withdrew her canteen to give her a drink. The woman was wary of the strange object Melna was handing her, but quickly bowed to desparation when she realized that the object was a canteen, and she took it eagerly.
 
   "Are you from Ulukoma," Melna asked.
-  
+
   "I think so?"
 
   "What happened to Kipnu?"
@@ -207,7 +207,7 @@
   "Yes, I think it's why I don't have any memories. But it doesn't seem infected or anything."
 
   "Here, let me see."
-  
+
   Melna gently pulled her closer to the light and observed even more bruises and wounds and scars across her whole body.
 
   "My goodness. How did you get all of these?" Melna asked as she pressed gently on a few healing cuts to see if they had gone numb. She winced uneasily at each one.
@@ -215,7 +215,7 @@
   "I don't know," she said, "But whoever I was, I don't want to be her anymore."
 
   Melna smiled and said, "I'm glad," but silently she knew that she had to get her away from him.
-  
+
   "Come with me to Heiko," Melna asked.
 
   "What? Why?"
@@ -231,7 +231,7 @@
   "Above?-"
 
   "Hope I'm not interrupting anything", called Ramne, opening a door to the stowage deck.
-  
+
   His voice struck fear in the woman's heart, and she ran back toward the satchel to hide. Melna stood her ground in front of her.
 
   "You look familiar", he said as he got sight of Melna, "Have I run into you before?"
@@ -257,11 +257,11 @@
   He laughed, "Sure she looks just like one of us. That's because she used to be."
 
   He reached for the satchel behind Melna, but she pushed him away.
-  
+
   "Heh. Maybe you're one of them too."
 
   "One of who?"
-  
+
   He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the abdomen. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the side, then grabbed the satchel again and lifted the blue-eyed woman out of it by her hair, holding her face over Melna's like a puppet.
 
   "A woman named Ginnu used to own this body but one day she died caus that fucking idiot sent her into the dark alone. She fell three stories onto a metal floor and brained herself."
@@ -270,7 +270,7 @@
 
   He continued to mock them, "This *thing* is an affront to Ginnu. An abomination to life! I wish I could kill it, but it *just won't die*!"
 
-  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head
+  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head-
 
   ********
 
