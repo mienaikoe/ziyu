@@ -32,11 +32,11 @@ this could be where Ramne threatens to rape, but dies
 
   *"OUT"*
 
-  Her consciousness frothed back into the back of her mind, and opened her eyes wide with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.* 
+  Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.* 
   
   She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. *Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship.*
 
-  Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang up and her eyesight went spotty, but at once she found that she was naked and her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes cleared but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
+  Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang her head up, and at once she found that she was naked and her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes were open wide but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
 
   "You're finally awake," Ramne's unmistakeable voice broke the darkness, and she turned around to face its direction.
 
@@ -84,11 +84,27 @@ this could be where Ramne threatens to rape, but dies
 
   He moved the lamp over her chest.
 
-  "You will know my power."
+  "You will bow to me."
 
   He poured the hot oil onto her chest and it began to boil the water in her hydroderm and singe the flesh as it slid down her abdomen. The pain was unberable and she let out shrieks of pain that turned to agony as the flames consumed the oil. Her skin hissed as the pressure inside burst and bled water but the water couldn't penetrate the oil and stop the fire. Instead it continued boiling and hissing through the oil while Ramne held a sadistic smile on his face.
 
-  Through her writhing, trying get the oil off of her body, she saw a blue flash and then a shuffling of feet. The lantern moved away from her and seemed to cast confusing shadows across the room. Melna was so focused on the fire on her that she barely noticed when the lantern fell and a large fire engulfed a crate on the other side of the room. The oil on her body had been mostly consumed, leaving burn marks all over that she could now see clearly in the brightness.
+  Through her gesticulations trying get the oil off of her body, she saw a flash of firelight and then a shuffling of feet. The lantern moved away from her and seemed to cast confusing shadows across the room. Melna was so focused on her burns that she barely noticed when the lantern fell and a fire engulfed a crate on the other side of the room.
+
+  A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved from not feeling the fire anymore, and saw the massive fire roaring behind two familiar eyes, not blue and reflecting her bare body.
+
+  "We don't have much time," she said as she was untying the binds around Melna's arms. "We need to get out of here."
+
+  Melna's hands were free and she immediately lifted herself up and screamed in pain at the movement of her skin. Smoke from the wooden crate was beginning to fill the air and warn them that they had little time. The woman untied Melna's ankles from the post and helped her to stand up. She glanced back at the fire and didn't see Ramne anywhere, but had no time to ask qustions. Hastily, they climbed the stairs as quickly as they could and opened the door to clear chilly air and the dimmest light of Ara to guide them. Glass lanterns were hung where the crew had staked their claims on the deck, showing them the places they should stay away. Melna looked further toward Ara and saw the shape of the land far into the distance.
+
+  "We could swim but we'll freeze to death," said Melna.
+
+  "It's the only way. There are no rafts."
+  
+    
+
+  
+
+  <!--  -->
 
 
 
