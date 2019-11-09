@@ -1,10 +1,41 @@
 ## Chapter 20
 
-<!-- 
+<!--
 Well uhh.. Melna has a higher price being sold to Fajro so she gets to live for now.
 Rape scene? idk that's a lot.
-
+this could be where Ramne threatens to rape, but dies
  -->
+
+  *Thump.*
+
+  She repeated the same word. *"Go." "Go."*
+
+  *Thump*
+
+  *"Go"*
+
+  A warm breeze brushed her shoulder and exhaled a sigh across her skin. She was
+
+  *Thump*
+
+  somewhere she shouldn't be.
+
+  *"Get out of there! Go!"*
+
+  *Thump*
+
+  *"Melna, you can't hide. I know you're in there."*
+
+  *Where is here?*
+
+  *"Go"*
+
+  *"GO"*
+
+  She was lifted back into consciousness, her eyes open wide with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained feeling, but remained in a paralyzed state. She resolved that downward must be behind her, keeping her back stiff against the damp floor as she searched for the senses that she did still have. 
+
+
+
 
 
 
