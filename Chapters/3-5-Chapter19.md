@@ -168,11 +168,11 @@
 
 *************
 
-  Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round windows, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko.
+  Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round portholes, but she resolved to endure the journey as it would only be for a short time. *A short time*, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko.
 
   Her mind wandered to Kipnu, remembering how fearless he was through his sentencing and even in the stories that Linyu told her about him. And Liffa who she heard from the furthest reaches of the void, still living breath by breath. She clutched her pendant, and imagined they could share some of their courage through it.
 
-  Through the window, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. At least, she believed that she was.
+  Through the porthole, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. At least, she believed that she was.
 
   "Who are you?" a quiet voice pierced the silence.
 
@@ -200,7 +200,7 @@
 
   Melna apologized, "I'm sorry. He is my jundman, and... I just. Nobody knows what happened to him."
 
-  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne who was very angry when I first met him... And now I've met you."
+  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne who was... unhappy when I first met him... And now I've met you."
 
   "Are you injured?" Melna asked, recalling the wound on her head.
 

@@ -8,11 +8,11 @@ this could be where Ramne threatens to rape, but dies
 
   *Thump.*
 
-  She repeated the same word. *"Go." "Go."*
+  She repeated the same word. *"Out." "Out."*
 
   *Thump*
 
-  *"Go"*
+  *"Out"*
 
   A warm breeze brushed her shoulder and exhaled a sigh across her skin. She was
 
@@ -20,7 +20,7 @@ this could be where Ramne threatens to rape, but dies
 
   somewhere she shouldn't be.
 
-  *"Get out of there! Go!"*
+  *"Get out of there! Out!"*
 
   *Thump*
 
@@ -28,11 +28,71 @@ this could be where Ramne threatens to rape, but dies
 
   *Where is here?*
 
-  *"Go"*
+  *"Out"*
 
-  *"GO"*
+  *"OUT"*
 
-  She was lifted back into consciousness, her eyes open wide with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained feeling, but remained in a paralyzed state. She resolved that downward must be behind her, keeping her back stiff against the damp floor as she searched for the senses that she did still have. 
+  Her consciousness frothed back into the back of her mind, and opened her eyes wide with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.* 
+  
+  She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. *Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship.*
+
+  Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang up and her eyesight went spotty, but at once she found that she was naked and her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes cleared but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
+
+  "You're finally awake," Ramne's unmistakeable voice broke the darkness, and she turned around to face its direction.
+
+  He continued, "Had me worried there. I need you alive, you know."
+
+  "Choke on your own dick."
+
+  He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled senator from Heiko. Would have been more gentle when I caught your leg."
+
+  "Maybe your consideration can think to leave me the fuck alone next time."
+
+  "Come now. Traveling alone, stuck in a musty old stow with a dead woman. Girl like you could use some company."
+
+  "Not yours."
+
+  "Oh I know I can be a little rude for people, but where you're going, you'll wish you were back here with me."
+
+  She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the woman. A faint whirring sound of a hot tip being warmed startled her and an oil lamp lit up, showing Ramne's smug face staring at hers. 
+
+  He said, "Holragi is looking for you, you know. And they're promising a hefty reward."
+
+  "What makes you think they'll actually pay it?"
+
+  "They need me. I keep their masses... fed. That launch rail didn't build itself."
+
+  "They keep slaves and you are responsible."
+
+  "Hey, if kanosin is so bad they should stop begging me for more."
+
+  "You know you would be the first to die if they would ever stop."
+
+  "But they won't," he laughed, "They won't, and that's the beauty of it."
+
+  He tilted the lamp over the ground between them and watched the flames crawl down the stream of oil and onto a growing pool on the floor. The flames licked her side with twinges of pain as they inched ever closer, but she tried her best to stay quiet and focus on escaping.
+
+  "The senate. It doesn't have any real power, does it?" he spoke softly. "The people give you the power to choose and you use it to enact the will of whichever merchant has the most power over you."
+
+  He poured out a little more and the flames began to singe her skin a little. She began to let out a whimper but caught herself to avoid giving him the satisfaction.
+
+  "But you don't have merchants in Heiko. No promise of riches can buy your conscious thoughts, only the people of Heiko have that privilege."
+
+  He leaned in closer and pulled Melna's face to look at him in the eye.
+
+  "You don't know my power yet. It goes beyond money, beyond politics. Beyond even the obscura. But as your people become desparate and hungry and lifeless, you will turn to me. As will everyone else on this planet."
+
+  He moved the lamp over her chest.
+
+  "You will know my power."
+
+  He poured the hot oil onto her chest and it began to boil the water in her hydroderm and singe the flesh as it slid down her abdomen. The pain was unberable and she let out shrieks of pain that turned to agony as the flames consumed the oil. Her skin hissed as the pressure inside burst and bled water but the water couldn't penetrate the oil and stop the fire. Instead it continued boiling and hissing through the oil while Ramne held a sadistic smile on his face.
+
+  Through her writhing, trying get the oil off of her body, she saw a blue flash and then a shuffling of feet. The lantern moved away from her and seemed to cast confusing shadows across the room. Melna was so focused on the fire on her that she barely noticed when the lantern fell and a large fire engulfed a crate on the other side of the room. The oil on her body had been mostly consumed, leaving burn marks all over that she could now see clearly in the brightness.
+
+
+
+
 
 
 
