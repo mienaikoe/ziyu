@@ -232,7 +232,7 @@
 
   "Hope I'm not interrupting anything", called Ramne, opening a door to the stowage deck.
 
-  His voice struck fear in the woman's heart, and she ran back toward the satchel to hide. Melna stood her ground in front of her.
+  His voice struck fear in the woman's heart, and she ran back toward the satchel to hide. Melna stood her ground between them.
 
   "You look familiar", he said as he got sight of Melna, "Have I run into you before?"
 

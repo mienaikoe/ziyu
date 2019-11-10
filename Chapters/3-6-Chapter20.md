@@ -26,17 +26,25 @@ this could be where Ramne threatens to rape, but dies
 
   *"Melna, you can't hide. I know you're in there."*
 
-  *Where is here?*
+  There was a mumbling between them. A fight, a bitterness. It showed up in her from time to time when she was in a particularly self-hating mood.
 
-  *"Out"*
+  *"Just leave her. She can't stay in there forever."*
 
-  *"OUT"*
+  *"Did I ask you? Get Out! Melna!"*
+
+  *Who are you?*
+
+  *"Out!"*
+
+  "Who are you?!"
+
+  *"OUT!"*
 
   Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.* 
   
   She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. *Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship.*
 
-  Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang her head up, and at once she found that she was naked and her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes were open wide but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
+  Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang her head up, and quickly found that she was naked save for her pendant. Her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes were open wide but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
 
   "You're finally awake," Ramne's unmistakeable voice broke the darkness, and she turned around to face its direction.
 
@@ -57,6 +65,8 @@ this could be where Ramne threatens to rape, but dies
   She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the woman. A faint whirring sound of a hot tip being warmed startled her and an oil lamp lit up, showing Ramne's smug face staring at hers. 
 
   He said, "Holragi is looking for you, you know. And they're promising a hefty reward."
+
+  *Why are they looking for me?*
 
   "What makes you think they'll actually pay it?"
 
@@ -90,27 +100,29 @@ this could be where Ramne threatens to rape, but dies
 
   Through her gesticulations trying get the oil off of her body, she saw a flash of firelight and then a shuffling of feet. The lantern moved away from her and seemed to cast confusing shadows across the room. Melna was so focused on her burns that she barely noticed when the lantern fell and a fire engulfed a crate on the other side of the room.
 
-  A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved from not feeling the fire anymore, and saw the massive fire roaring behind two familiar eyes, not blue and reflecting her bare body.
+  A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved from not feeling the fire anymore, and saw the massive fire roaring behind two familiar eyes, there were no longer blue.
 
-  "We don't have much time," she said as she was untying the binds around Melna's arms. "We need to get out of here."
+  "You can see," Melna said confusedly.
 
-  Melna's hands were free and she immediately lifted herself up and screamed in pain at the movement of her skin. Smoke from the wooden crate was beginning to fill the air and warn them that they had little time. The woman untied Melna's ankles from the post and helped her to stand up. She glanced back at the fire and didn't see Ramne anywhere, but had no time to ask qustions. Hastily, they climbed the stairs as quickly as they could and opened the door to clear chilly air and the dimmest light of Ara to guide them. Glass lanterns were hung where the crew had staked their claims on the deck, showing them the places they should stay away. Melna looked further toward Ara and saw the shape of the land at a distance she deemed swimmable but only just.
+  "We don't have much time," the woman said as she was untying the binds around Melna's arms. "We need to get out of here before the fire alarms the crew."
+
+  Melna's hands were free and she immediately lifted herself up and screamed in pain at the movement of her skin. Smoke from the wooden crate was beginning to fill the air and warn them that they had little time. The woman untied Melna's ankles from the post and helped her to stand up. She glanced back at the fire and didn't see Ramne anywhere, but had no time to ask qustions. Hastily, they climbed the stairs as quickly as they could and opened the door to clear chilly air and the dimmest light of Ara to guide them. Glass lanterns were hung where the crew had staked their claims on the deck. Melna looked further toward Ara and saw the shape of the land at a distance she deemed swimmable but only just.
 
   "We could swim but we might freeze to death," said Melna.
 
-  "There's no other way," she said.
+  "It's the only way," she said. "There are no boats here."
 
   They snuck quietly to the side of the boat and looked down into the dark water below.
 
   "Do you have the strength?" Melna asked her.
 
-  "I am not afraid to die," she said with conviction as she lifted herself onto the railing, "But I am afraid to live here any longer."
+  "I am not afraid to die," she said with conviction as she lifted herself onto the railing, "I am afraid to stay here."
 
-  Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shinna but thi was too far from them to do anything. Melna at once said "GO!" and the woman jumped into the ocean while Melna faced Shinna.
+  Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shinna but thi was too to stop them. Melna turned to the woman and in a moment, passed the pendant to her and said, "Don't wait for me. Find Laen once you reach land. Now GO!" and the woman jumped into the ocean while Melna faced Shinna.
   
-  "There's no escape. We'll only go after you again," Shinna yelled. Thi was standing a step away from her. Melna looked back to the woman who was yelling at Melna to jump in, but Melna knew that would only be more troublesome for her. Melna called out to her "GO! Find Laen," and she did not waste her time. Melna got off of the railing and turned to face Shinna, who was visibly horrified to see her scars.
+  "There's no escape. We'll only go after you again," Shinna yelled. Thi was standing a step away from her. Melna looked back to the woman, waiting in the water, and she was tempted to jump in after her. But Melna knew that would only be more troublesome for the both of them. She waited until she saw the woman start to swim off toward land and then let herself down off of the railing and turned to face Shinna, who was visibly horrified to see her scars.
 
-  "I thought I could trust you Shinna," Melna said. "Then you left me with a monster like Ramne."
+  "I thought I could trust you Shinna," Melna said. "You were planning to sell me for ransom all along."
 
   Thi hesitated with a half a tear stuck in each eye. "We all need something."
 
@@ -126,26 +138,32 @@ this could be where Ramne threatens to rape, but dies
 
   "I am responsible for the survival of my crew," thi said. "You will be sold to Holragi. That is final."
 
-  Shinna took hae coat off of hae back, tossed it on the ground in front of Melna, and then turned around to help hae crew with the fire. There were three people rushing into the smoke with buckets of salt water reserved specifically for fires. They stopped and waited for a woman and a maman carrying Ramne out of the smoke. He was barely aware of what was happening, turning his head left and right, trying to find his eyesight.
+  Shinna took hae coat off of hae back, tossed it on the ground in front of Melna, and then turned around to help hae crew. Melna quickly took the coat and laid it over her body as she curled up against the railing, looking on at the busy crew before her. Three people rushed into the smoke with buckets of ocean water reserved for fighting fires. They stopped and waited for a woman and a maman carrying Ramne out of the smoke. He was barely aware of what was happening, turning his head left and right, trying to find his eyesight.
 
-  He yelled, "Ginnu. Where is Ginnu."
+  He yelled, "Ginnu. Melna. Where are they?"
 
-  But nobody knew who he was talking about. They simply laid him down against the railing on the side of the ship opposite Melna. Through shifting legs and feet, she could see a giant burn against the right side of his body as if the lantern oil had been splattered over his body.
+  But nobody knew who he was talking about. They laid him down against the railing on the side of the ship opposite Melna. Through shifting legs and feet she could see a giant burn against the right side of his body, as if someone had intentionally splattered the lantern oil had been splattered over his body.
 
-  She couldn't help be laugh.
+  She couldn't help but laugh.
 
+  Shinna came back to Melna and said, "I don't know what you two did down there but you almost set the whole ship ablaze."
+
+  Melna kept her eyes fixed on Ramne, never letting his new disfigured form out of her memory.
+
+  "And who is Ginnu?", thi paused for response but Melna was silent. "Are you hearing me?"
+
+  "A man like that is worth dying to kill", said Melna. "Don't you agree?"
+
+  Shinna looked at Ramne and back at Melna, with a look of frustration on hae face.
+
+  "I have half a mind to kill you both if you weren't so damn lucrative."
   
+  Thi tossed her hands up in exasperation, voicing a "Shp'paahh!", and walked away to return to hae crew.
 
-  <!--  -->
+  Melna kept looking at Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sight of the woman.
 
-
-
-
-
-
-
-
-
+  "Live well, new friend. You've earned it."
+  
 
 
 <!--

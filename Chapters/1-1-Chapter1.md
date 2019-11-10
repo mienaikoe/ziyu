@@ -126,7 +126,7 @@
 
   "...Reasons."
 
-  Thanks Kip.
+  *Thanks Kip.*
 
   I mustered up a response, "Don't want to talk about it right now."
 
@@ -140,7 +140,7 @@
 
   "Have a good day," he chimed. I stayed silent.
 
-  "I'll be back a bit late tonight. Don't wait up for me on dinner."
+  "I'll be back a bit late tonight. Don't wait up for me."
 
   "Late? What for?" I asked.
 
