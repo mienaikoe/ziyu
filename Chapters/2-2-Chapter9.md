@@ -72,9 +72,9 @@ He continued to cough uncontrollably, struggling to regain control of his breath
 
 "Lif...Mel," he called out.
 
-"Shh," Lissa said as thi moved on top of him, "We are all a family in the darkness."
+"Shh," Lissa said as thi moved on top of him, "We are all children of Ulu."
 
-The floor became an ocean of silk and he was sinking deeper into it with every movement. *"All of your fantasies."* He sometimes imagined this. Trimming away all his inhibitions and bathing in a sea of strangers. There was no honor here in this ocean of release. No future and no past. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
+The floor became an ocean of silk and he was sinking deeper into it with every movement. *"All of your fantasies."* Joined people from his home didn't have fantasies like this, or they didn't talk about them. But he knew that he did. How he longed to shut off all of his inhibitions and responsibilities and submit to his body. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
 
 Thi said, "Never forget... I own you."
 
