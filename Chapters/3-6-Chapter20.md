@@ -40,8 +40,8 @@ this could be where Ramne threatens to rape, but dies
 
   *"OUT!"*
 
-  Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.* 
-  
+  Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.*
+
   She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. *Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship.*
 
   Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that woman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang her head up, and quickly found that she was naked save for her pendant. Her arms and legs were loosely tied with a strong kelp to two wooden pillars on either side of her. Her eyes were open wide but still nothing could be seen in that darkness. She looked behind her and saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
@@ -62,7 +62,7 @@ this could be where Ramne threatens to rape, but dies
 
   "Oh I know I can be a little rude for people, but where you're going, you'll wish you were back here with me."
 
-  She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the woman. A faint whirring sound of a hot tip being warmed startled her and an oil lamp lit up, showing Ramne's smug face staring at hers. 
+  She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the woman. A faint whirring sound of a hot tip being warmed startled her and an oil lamp lit up, showing Ramne's smug face staring at hers.
 
   He said, "Holragi is looking for you, you know. And they're promising a hefty reward."
 
@@ -118,8 +118,14 @@ this could be where Ramne threatens to rape, but dies
 
   "I am not afraid to die," she said with conviction as she lifted herself onto the railing, "I am afraid to stay here."
 
-  Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shinna but thi was too to stop them. Melna turned to the woman and in a moment, passed the pendant to her and said, "Don't wait for me. Find Laen once you reach land. Now GO!" and the woman jumped into the ocean while Melna faced Shinna.
-  
+  Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shinna but thi was too to stop them.
+
+  Melna turned to the woman and in a moment, passed her pendant to her and said, "Don't wait for me. Find Laen once you reach land."
+
+  "But you will die here."
+
+  "GO!" said Melna, and she pushed her off the railing, ensuring she had safely surfaced before turning to face Shinna.
+
   "There's no escape. We'll only go after you again," Shinna yelled. Thi was standing a step away from her. Melna looked back to the woman, waiting in the water, and she was tempted to jump in after her. But Melna knew that would only be more troublesome for the both of them. She waited until she saw the woman start to swim off toward land and then let herself down off of the railing and turned to face Shinna, who was visibly horrified to see her scars.
 
   "I thought I could trust you Shinna," Melna said. "You were planning to sell me for ransom all along."
@@ -157,13 +163,13 @@ this could be where Ramne threatens to rape, but dies
   Shinna looked at Ramne and back at Melna, with a look of frustration on hae face.
 
   "I have half a mind to kill you both if you weren't so damn lucrative."
-  
+
   Thi tossed her hands up in exasperation, voicing a "Shp'paahh!", and walked away to return to hae crew.
 
   Melna kept looking at Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sight of the woman.
 
   "Live well, new friend. You've earned it."
-  
+
 
 
 <!--
