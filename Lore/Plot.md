@@ -59,6 +59,33 @@ Is a character that starts out bored with life and has lots of dreams and fantas
     - Nature playing a role in amplifying the final problem
     - The solution to the final problem
 
+  Dec2019 ideas:
+  - Machines under Ulu had fled their home galaxy to search for safety from the Obscura
+  - They dwelled in the darkness, hiding from the imminent threat that the Obscura posed
+    - They didn't count on life forming on the surface
+  - Option A: The obscura are human. The Ulu are machines
+    - A1: They are fleeing from humans who want to destroy them
+      - The humans want their immortality drug
+      - The Ulu use it to grow life that can protect them
+    - A2: The Ulu are scouts for humans to find new habitable planets to colonize
+      - Palinians are not ready for a war with a dyson swarm, but instead broker a peace treaty where humans can live and thrive in the habitable parts of their planet while the palinians thrive in the hot or cold outskirts, causing a racial divide in the future.
+      - The immortal become demigods amongst the people, who rely on them to find a way to save them from the heat and the cold.
+  - Option B: The obscura are machine. The ulu are also machine.
+    - B1: Machine war that Palinan is caught in the middle of.
+      - Machines are serving their human overlords for
+  - Option C: The Ulu are human/progenitor, the obscura are machine
+    - The humans are fleeing from the obscura. Using kanosin to stay immortal.
+    - A sect of humans branched off millions of years ago to live on the surface, tired of living in the darkness. The obscura found them this way - the oxygen and thick air from their terraforming.
+    - Obscura are an AI that invented kanosin while optimizing for reduction in suffering.
+      - Humans took it and abused it to live forever, but human society ended up abusing it to feel superior.
+      - The Obscura are after kanosin because immortality only begets suffering.
+        - They surrender their kanosin to the desert and then the obscura stop. Of course, Ramne kept some.
+        - The immortal become the everliving blind gods of the world.
+
+
+
+
+
   - Part 1
     - How do you place a value on people in a perfect communism?
     - The pitfalls of legalism
