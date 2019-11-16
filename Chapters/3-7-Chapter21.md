@@ -15,7 +15,7 @@ Shinna had stayed near her since the fire, knowing not to trust anyone else of h
 
 "Our people are clever. Somebody will have made a plan by now."
 
-"Cleverness, maybe. But a leader like you is hard to come by."
+"Clever, maybe. But a leader like you is hard to come by."
 
 "What kind of leader would I be if I didn't foster my replacements."
 
@@ -31,6 +31,19 @@ Shinna walked over and took up the top rope, eyeing the quality and length.
 
 "Gently please," Melna said, "The wound is still fresh."
 
-Thi tied it in a knot that only a sailor could know, both ornate in form and function, refraining from speech but hae sluggish, careful movements told of regret. Liffa appeared from Melna's memory, helping her fasten her robes in the windowlight. 
+Thi tied it in a knot that only a sailor could know, both ornate in form and function. Thi was refraining from speech and hae arms moved slowly through the stiff air, hae shame alone weighing them down. Liffa appeared from Melna's memory, helping her fasten her robes in the windowlight. And Kipnu nuzzling her in the doorway. And in a daydream she wished for it all again. To relive that day and tell them that it was okay and they had nothing to worry about. 
+
+"All done," thi said, and Melna turned around to face hae. Shinna's lantern lit both of their faces, hers adorned with strength, and haes filled with awe.
+
+"You're the real deal, aren't you," thi said with quiet reverence.
+
+"Shinna. I do not change when I put on a robe."
+
+"No, žah-Melna," thi insisted. Honorifics surprised her. "The senate robe is meaningless without you to fill it."
+
+Thi placed hae hands behind hae back, spread hae legs slightly, and stood in an old naval posture that Melna didn't quite understand. She looked around awkwardly as the rest of the crew saw Shinna and one-by-one followed hae in the same silent stance. Ramne, still nursing his burns, looked on in ridicule at the display until a maman standing next to him pulled him up by the arm to join. But instead of joining, he yanked his arm back and walked off to the stern of the boat. 
+
+The crew stayed in this state for a pause that felt sufficient to say their peace. Then Shinna shouted, "Oyy," to which the whole crew responded in unison, "Hah!" and resumed what they were doing.
+
 
 
