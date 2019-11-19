@@ -220,7 +220,7 @@ He said, "Alright. That's enough for now. Let's get to business."
 
 Melna was overwhelmed with emotions that took the sum of her willpower to hide, but such willpower would be required to distract the fear of suspicion. She knew what she had to do, but for now she had to wait and plan as she listened to them talk.
 
-Fajro now had both listeners in and spoke to Liffa directly, "Now, you're currently passing by the stable orbit point. Can you describe what you see around you?"
+Fajro now had both listeners in and spoke to Liffa directly, "Now, you're about to pass by the stable orbit point. Can you describe what you see around you?"
 
 
 
@@ -228,20 +228,18 @@ Fajro now had both listeners in and spoke to Liffa directly, "Now, you're curren
 
 
 
-
-<!-- Melna paused on the ladder, feeling that Shinna would likely be in trouble if she didn't do something quickly. She got one foot onto the steel tower and got a strong hold of Shinna's left arm, tugging it to pull her back onto the ladder. Thi stumbled a bit and fell into the gap, but Melna's arm held strong from the tower, and hoisted her onto the ladder again. The crew on hae boat had already begun reeling the ladder back in with hae on it, doing their best to provide counterweight with her so far on the ladder and hae crying, "No! Let me back on that ship! Melna!" -->
-
-
-
-
+<!--
+Melna strikes a deal to speak to her people to tell them to become slaves.
+Instead she tells them to swim straight into the fog over the ocean. Some are killed by people with early guns, but most make it through the fog to Setre's Ships and sail to Ulukoma.
+-->
 
 
 
 
 
-Thi placed hae hands behind hae back, spread hae legs slightly, and stood in an old naval posture that Melna didn't quite understand. She looked around awkwardly as the rest of the crew saw Shinna and one-by-one followed hae in the same silent stance. Ramne, still nursing his burns, looked on in ridicule at the display until a maman standing next to him pulled him up by the arm to join. But instead of joining, he yanked his arm back and walked off to the stern of the boat.
+<!-- Thi placed hae hands behind hae back, spread hae legs slightly, and stood in an old naval posture that Melna didn't quite understand. She looked around awkwardly as the rest of the crew saw Shinna and one-by-one followed hae in the same silent stance. Ramne, still nursing his burns, looked on in ridicule at the display until a maman standing next to him pulled him up by the arm to join. But instead of joining, he yanked his arm back and walked off to the stern of the boat.
 
-The crew stayed in this state for a pause that felt sufficient to say their peace. Then Shinna shouted, "Oyy," to which the whole crew responded in unison, "Hah!" and resumed what they were doing.
+The crew stayed in this state for a pause that felt sufficient to say their peace. Then Shinna shouted, "Oyy," to which the whole crew responded in unison, "Hah!" and resumed what they were doing. -->
 
 
 <!--
