@@ -9,7 +9,7 @@
   - Mel's struggle is anxiety, paranoia, trust
   - Lif asks Mel if she is pregnant (show they've been trying but Mel is keeping a secret from them that she's preventing it somehow)
 
-- Somehow explain how the time system works,
+- Somehow explain how the time system works
 
 - Accentuate the train pipes
 
@@ -33,9 +33,11 @@
 
 ### Part 2
 
-- Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.
+- Make Kip incredulous and fearful of what he saw in his dreams - unable to separate reality from dream, until Casra gives him the antidote.**** < THIS DO THIS
 
-- Kip's supressed desires thing comes out of nowhere. Introduce this earlier in the book.
+- Kip's supressed desires thing comes out of nowhere. Introduce this earlier in the book. Or not at all.
+
+- Kip doesn't need to be raped.
 
 - Kip should be untrusting of Casra at first. Why didn't they tell him what to expect if they had been there?
   - There wasn't time? Kip is worthless unless Lissa knows his worth - Kip is a lure?

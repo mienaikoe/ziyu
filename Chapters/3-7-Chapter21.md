@@ -94,7 +94,7 @@ The newest figure consulted with the speaking shadow, and she said, "Only the se
 
 The two shadows spoke again and she responded, "You have one minute to comply or your boat is sunk."
 
-The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Maybe they had a way to fetch Melna after they sunk the ship. Her words were becoming truer with each passing minute and thi was scared of what that might mean. A man approached her and said, "What are you doing? Send her up!"
+The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Maybe they had a way to fetch Melna after they sunk the ship. Her words were becoming truer with each passing minute and thi was scared of what that might mean. A rather anxious member of the crew approached her and said, "What are you doing? Send her up!"
 
 "Hold on," Shinna said calmly to him, and turned to address the silhouettes once more.
 
@@ -104,9 +104,9 @@ The two spoke once more and said, "No more than you. We will search your person 
 
 Shinna turned to Melna with a smile and whispered, "You see that? That's why they made me captain."
 
-Four of the crew members produced a wooden ladder and cantilevered it up and out to bridge the gap between ships. Shinna secured it and checked hae pockets for any extra weapons thi might have forgotten and proceeded first followed by Melna who was significantly more careful getting down. The lights followed them as they crawled over the ocean on that rickety ladder, and Melna caught a glimpse of slight details of the behemoth. It was indeed plates of steel with strong bolts all across the hull, and few if no portholes on the sides. There was no deck to speak of, just two towers that jutted out of the hull like tall trees searching for light. As she neared the top, Shinna had already arrived on the tower and was talking with the figure in the tower.
+Four of the crew members produced a wooden ladder and cantilevered it up and out to bridge the gap between ships. Shinna secured it and checked hae pockets for any extra weapons thi might have forgotten and proceeded first followed by Melna who was significantly more careful getting down. The lights followed them as they crawled over the ocean on that rickety ladder, and Melna caught a glimpse of slight details of the behemoth. It was indeed plates of steel with strong bolts all across the hull, and few if no portholes on the sides. There was no deck to speak of, just two towers that jutted out of the hull like tall trees searching for light. As she neared the top, Shinna had already arrived on the tower and was being searched by the figure in the tower.
 
-Thi said, "I'm not leaving her here."
+Thi had activated her scrappy old self. "I'm not leaving her here!" she said.
 
 The larger silhouette spoke "You certainly won't be leaving here then," and Melna knew it was Fajro.
 
@@ -114,27 +114,115 @@ Shinna said, "What do you mean?"
 
 And all at once, Fajro reached into his jacket for a strange steel weapon and Melna screamed, "Shinna, run!"
 
-Thi ducked and scrambled for Melna and a great blast cracked the air above them. Melna grasped for Shinna's arm as thi fell off the ladder into the tall gap, and it held strong as she used hae momentum to loft hae back onto the ladder behind her. Melna smelled burnt sulfur and soot as Fajro pointed the smoking hole of it at her head.
+Thi ducked and scrambled for Melna and a great blast cracked the air above them. Melna grasped for Shinna's arm as thi fell off the ladder into the tall gap, and it held strong as she used hae momentum to loft hae back onto the ladder behind her. Melna smelled burnt sulfur and soot as Fajro pointed that smoking rod at her head. Melna moved to the tower and knealed to block Shinna from his line of view. Shinna screamed, "No! Don't go! They'll kill you!", as hae crew had already begun reeling the ladder back in with hae on it. Be she knew her fate. She knew that anyone who tried to save her would not be spared.
 
 "Come, Melna," he said, "We have much to discuss."
 
-Melna moved to the tower and knealed to block Shinna from his line of view.
+Making sure Shinna descended back to the safety of hae ship, Melna stood up and refocused her attention on the Holragi soldiers before her. Fajro smiled as he looked at her the way he would look at a saffa he won from a crooked bet.
 
-"After you," she said to Fajro.
+"You look like you turn a few heads in the senate," . " It's a shame we never worked together."
 
-Shinna screamed, "No! Don't go! They'll kill you!", as hae crew had already begun reeling the ladder back in with hae on it. Melna knew her fate and anyone who tried to save her would become collateral. She watched as Shinna descended back to the safety of hae ship, and then followed Fajro down the long tube into the belly of that terrible beast.
+"Truly a shame," she replied, "I could have turned yours right off."
 
-The inside was lit with stale yellow incandescent bulbs that brought its warmth neither to the dark matte-gray walls nor to the worn pale wood that made the floor. The static on her listener had dulled to a whisper as Fajro led her down a meandering path through the many corridors that she was convinced was meant to scramble her sense of direction. But after much wandering they arrived at a large room with several people sitting at desks of knobs and buttons with wired listeners fastened to both of their ears. She wondered at the utility of the knobs and buttons, but knew that they were likely listening to a much more sophisticated permutation of what was around her own ear.
+His frown took a moment to form, and he abruptly said, "Get in," as he pointed with his cane, and the soldiers beside him pulled her toward the hole in the tower they had come out of. Without protest, she grasped the ladder's rails and descended into the belly of that terrible beast.
 
-"Do you know why you're here, Melna?" Fajro asked her rhetorically, "And why now?" 
+The inside was lit with stale yellow incandescent bulbs that brought its warmth neither to the dark matte-gray walls nor to the worn pale wood that made the floor. The static on her listener had dulled to a whisper as Fajro led her down a meandering path through the many corridors that she was convinced was meant to scramble her sense of direction. But after much wandering they arrived at a large room with several people sitting at desks of knobs and buttons with wired listeners fastened to both of their ears and a protrusion on one side for what seemingly looked like a microphone. She wondered at the utility of the knobs and buttons, but knew that they were likely listening to a much more sophisticated permutation of what was around her own ear.
+
+"Do you know why you're here, Melna?" Fajro asked her rhetorically, "And why now?"
 
 He didn't wait for an answer.
 
-"Your jundsmaman is nearly to the place where we think the obscura are. I wanted you to see this in person. To see first-hand what kind of work you're trying to stifle. The future you envision is no future at all. It is stagnant, slow. Dead. In doing nothing, you submit yourself to the whims of the universe. A universe with infinite possibilities where one will eventually destroy you. My vision is one where we are no longer slaves to the chaos that lurks in the dark. We should own that chaos, transform it into something valuable."
+"Your jundsmaman is nearly at the obscurae. I wanted you to see this in person. To see first-hand what kind of work you're trying to stop. You see, the future you envision is no future at all, you see. It is stagnant, slow. Dead. In doing nothing, we submit ourselves to the universe of infinite possibilities. Possibilities that may ultimately destroy us."
+
+He moved to stare closer to Melna's face. To make sure she was paying attention. But all she could think of was the odor of burnt Heikoan grain on his breath.
+
+"Our vision is one in which we are no longer slaves to the chaos that lurks in the dark. We can own that chaos, transform it into something much greater than it is."
 
 "And kill anyone who stands in your way."
 
-He laughed through his nose as a father might to his child, "Yes. The survival of our species depends on it. And I am certain you will choose to live long enough to see the triumph you almost prevented."
+He laughed through his nose as a father might to his child, "Yes. In fact, the survival of our planet depends on it. And I am certain you will live long enough to see our species triumph."
+
+"So, what's the offer?" she asked in her most diplomatic of voices. She wanted to catch him a little bit off guard.
+
+"Always in a rush, you fresh lawmakers."
+
+"I know stalling when I hear it. You use me to make Liffa do what you want, then what? The sky comes crashing down and you make me watch?"
+
+"Now Melna, what kind of man do you take me for?"
+
+"A conniving bloodbeetle who gets off on watching others suffer."
+
+"Now that's unfair. Surely you of anyone should understand that this dream of a new place is justified by-"
+
+"On and on about your stupid dream. I get it you want to be the one everyone remembers as their heroic savior. But all you'll be remembered as is the man who destroyed a city for his own self-confidence issues," she raised her voice to an increasingly flustered Fajro.
+
+"You're ridiculous."
+
+"The only people you have to remember you are the slaves that built your rail. Do you really think they'll be singing your praises once you're gone?"
+
+"Stop it-"
+
+"They'll be ushering in their new master. Forgetting you quicker than they can salute their new lead-"
+
+"STOP!"
+
+"-er. You'll be dead to them. Replaced by some new woman who promises reform. Long live the Queen!"
+
+"STOP!"
+
+"Long live the Queen!"
+
+He took her by the neck and pinned her against the wall of the radio room to silence her, spitting to her, "You have no idea how sorry you'll be once your people leave you to follow me. You'll be wishing you had died here."
+
+She made the connection despite the spots that were forming in her eyes, and through gasps for air, she managed a smirk.
+
+A radio operator announced, "Žah-Fajro. Liffa is ready," and he angrily took his hand off her, realizing that she was a bit more cunning than he believed. And with a shake of his head and a furious look on his face, he approached the operator and yanked the longer listener from hae ears, sloppily raising the box up to his head and pressing a button on the outer face when he wanted to talk.
+
+"Liffa. That you?"
+
+Melna gasped for air but listened louder.
+
+"Right. We have her here now. I'll put her on real quick."
+
+"Bring her here, dammit! What are you waiting for!"
+
+A soldier forcefully pushed her toward him, and he got in her face to talk at her.
+
+"Now you listen to me. No bullshit. No manifestos. You say one wrong thing and you're done."
+
+She nodded, and he grabbed the other listener off the operator's head, giving the larger one to Melna.
+
+Through a cracked voice she said, "Liffa? Are you there?"
+
+A moment passed and then Liffa leapt out of the speaker, "Melna it's really you! Where are you right now? Why does your voice sound like that?"
+
+"It's a long story. I'll tell you when you get back."
+
+Another moment passed, and Melna started to think it had something to do with the vast distance that Liffa had traveled.
+
+"Oh. Ok..."
+
+They paused, looking for something to say in such circumstances, but Melna knew she couldn't let so much slack, and picked up again, "Say. How's the weather up there?"
+
+Thi giggled a bit, and Melna suddenly felt a pang of longing, "A little bit of Ara, and plenty of Ulu. It's beautiful up here. I hope someday I can paint it for you."
+
+"Yea," she said, "I'd like that."
+
+"Hey Liffa, what about the wind?"
+
+There was a pause on the line as everyone in the room seemed confused, and then Liffa responded, "The wind speaks in Heiko Harbor."
+
+Fajro reached for the listener, but Melna intercepted his hand and said to hae, "I love you Liffa!"
+
+A solider pried her hands from the device and held her back as another picked it up from the floor and gave it to Fajro.
+
+He said, "Alright. That's enough for now. Let's get to business."
+
+Melna was overwhelmed with emotions that took the sum of her willpower to hide, but such willpower would be required to distract the fear of suspicion. She knew what she had to do, but for now she had to wait and plan as she listened to them talk.
+
+Fajro now had both listeners in and spoke to Liffa directly, "Now, you're currently passing by the stable orbit point. Can you describe what you see around you?"
+
+
 
 
 
