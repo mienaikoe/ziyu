@@ -116,23 +116,23 @@ If they get into Rudjan
 
   She approached a row of merchants selling a myriad of items from the sea or the wetlands.
 
-  One called out to her, "Aye aren't you a beauty. A girl like you could use a pearl or two."  
+  One called out to her, "Aye aren't you a beauty. Girl like you could use a pearl or two."  
 
-  If she were just a few Na'to younger, she might have given in to such an idea, yet she knew that she was well old enough not to be called a girl, and just young enough to bask alone in the empty compliment.
+  If she were just a few Na'to younger, she might have taken a second look for a pearl, yet she knew that she was well old enough not to be called a girl, and just young enough to indulge in empty compliments without getting tied down by their real intentions.
 
-  She approached a fisher and asked, "Do you have flatbreads?"
+  She approached a fisher and asked, "Do you have flatbread?"
 
   Thi replied, "Aye. Make 'em fresh too."
 
   "I'll have six of those and whatever fish you suggest."
 
-  "Alright then. Semah it will be. Just caught and extra colorful," thi reached for a red fish that was a bit larger than the size of hae hand.
+  "Alright then. Semah it will be. Fresh and extra colorful," thi reached for a red fish that was a bit larger than the size of hae hand.
 
   "Do you want it cooked?"
 
   "Yes, please," she replied.
 
-  The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. From a clay pot, thi also pulled out six small balls of dough and set them on a counter. With methodical and skillful hands, she rolled them out on a small round table using the round handle of a short boat paddle, and then used the smooth flat blade to move the bread to the hot pipe as well.
+  The merchant set the fish onto a large pipe behind hae that looked to be part of the city itself. Surprisingly, the fish started to sizzle right when they hit the metal. From a clay pot, thi pulled out a large section of dough that she set on a counter and quickly divided into six balls. With methodical and skillful hands, she rolled them out on a small round table using the round handle of a short boat paddle, and then used the smooth flat bladed side to move the bread to the hot pipe as well.
 
   "90 please," thi said, wiping hae hands on hae apron.
 
@@ -156,15 +156,15 @@ If they get into Rudjan
 
   "Well, I suppose the Tilmarim would do."
 
-  Melna was getting irritated. "I suppose that I'm asking a question of nuance. Where is your line? Between blindly trusting an unkeepable promise and seeking survival on your own terms?"
+  Melna was getting irritated. "I suppose that I'm asking something deeper. When do you start to call the shots? When do you stop blindly trusting an unkeepable promise and seek survival on your own terms?"
 
   "We have enough grain from Heiko to keep us going until Holragi figures out what's going on."
 
-  "But what will you do if you run out of food before then?"
+  "And what if they don't?"
 
-  "We won't," thi said coldly.
+  Thi looked around and then leaned in to whisper to her with a sneer, "Holragi has this under control. We must keep faith."
 
-  "I see," Melna replied
+  "I see," Melna replied, shocked at hae determined, almost fearful tone.
 
   Thi went back to the pipe and pulled three long pieces of kelp from a barrel nearby to wrap the fish and bread. Hae gestures were quick and confident, as if hae mind were taking a rest and letting hae hands do all the thinking for a time.
 
