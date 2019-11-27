@@ -132,7 +132,7 @@ She could hear him as clearly as if he were standing right next to her.
 
 A voice spoke in anger, "Did you find her?"
 
-*This voice... it sounds familiar.*
+*This voice... I know this voice.*
 
 "...Yea," said Tunbe, hesitantly.
 
@@ -144,7 +144,7 @@ A voice spoke in anger, "Did you find her?"
 
 *Risen?*
 
-"Y-Yes, žah."
+"Y-Yes, žah," said Tunbe, quivering.
 
 "Good. Then find her and bring her to my ship once you arrive."
 
@@ -160,11 +160,11 @@ A voice spoke in anger, "Did you find her?"
 
 "Yes, žah."
 
-"The blockade begins at aphelion. You will not be late."
+"The plan begins at aphelion. Melna had better be there."
 
-"We will be ready."
+"You have my word."
 
-The voices stopped and she remembered how she had heard that voice: Fajro. A pool of rage welled up within her from the static that remained on the line, but she handled it with the finesse of a senator. To let that passion burn uncontrollably would be to waste it. Instead she let it burn slowly, fueling her planning, crafting her speech, filling the hearts of her people. Passion was her own personal Ara, giving her the means to its own end.
+The voices stopped and a pool of rage welled up within her from the static that remained on the line, but she handled it with the finesse of a leader. To let that passion burn uncontrollably would be to waste it. Instead she let it burn slowly, fueling her planning, crafting her speech, filling the hearts of her people. Passion was her own personal Ara, giving her the means to its own end.
 
 Her fervid limbs slipped through the crowds of Rudjanese who remained blissfully ignorant and powerless to the greater changes happening around them. They were hungry and they were envious; nothing would stop them from filling the docks of the merchant's quarter with their demands. She felt a false disdain for them but did not let it slow her charge toward the gates to Heiko. She was cautious as she approached the mostly empty gate, but did not see any signs of a trap.
 

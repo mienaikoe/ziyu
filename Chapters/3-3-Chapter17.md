@@ -282,7 +282,7 @@ If they get into Rudjan
 
   Melna could barely make out the whispers of a response, but the boat seemed empty as far as she could tell. She watched him untie the boat from the dock and step in near the back. Without a pause, a rough shipping bag in the boat begin to move and out of it emerged a pair of glowing blue eyes. Melna felt a deluge of questions and fears and frustrations wash over her, but resolved to stay focused as long as she could. A woman came out of the bag and showed a terrible healing gash on the right side of her head. Melna was sure would have killed a normal person, but somehow she was alive and well.
 
-  "Those idiots. He said the whole place will be rubble before they can even think of escaping."
+  "Those idiots. He said the whole place will be rubble in a matter of days."
 
   *What?!*
 

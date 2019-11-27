@@ -198,9 +198,9 @@
 
   "Kipnu?" she seemed more confused than before.
 
-  Melna apologized, "I'm sorry. He is my jundman, and... I just. Nobody knows what happened to him."
+  Melna apologized, "I'm sorry. He is my jundman, and... I was... Nobody knows what happened to him."
 
-  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, naked and blind. I met Ramne who was... unhappy when I first met him... And now I've met you."
+  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, blind and bruised. I met Ramne who was... unhappy when I first met him... And now I've met you."
 
   "Are you injured?" Melna asked, recalling the wound on her head.
 
@@ -246,11 +246,11 @@
 
   She eyed him up and down, and felt a wave of disgust wash over her.
 
-  "You must be one of those men who can't take a hint."
+  "Why don't you take your stories somewhere else?"
 
-  "Ah I see. You want to cut to the chase. Why am I here? Well I figured you'd have met my blue-eyed monster by now, and well, that bothers me a little bit." He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
+  "Ah I see. Why am I even here?" he asked disingenuously. "Well I figured you'd have met my litle blue-eyed monster by now, and well, that bothers me a little bit." He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
 
-  "Caus I rather like keeping thhat thing a secret."
+  "Caus I rather like keeping that thing a secret."
 
   "She's a throngia. Just like the rest of us."
 

@@ -38,7 +38,7 @@ Flushed with anger, she rose from the plate and closed her eyes, facing the dark
 
 "How large are they? Can they fit a person?" She asked the darkness.
 
-The observer answered her, "I can't tell at this distance, but judging by the frequency of these launches, I think they're testing the rail in anticipation of something."
+The observer answered her, "I can't tell at this distance, but judging by the speed of the vehicles, I think they're fairly heavy and headed out of Palinan's orbit."
 
 Melna remained silent.
 
@@ -58,7 +58,7 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
-"This goes beyond my relationship with Liffa. This is about Holragi's secrets. All of Palinan is relying on then to lead the way, and still they refuse to share anything."
+"This goes beyond my relationship with Liffa. This is about Holragi's secrets. All of Palinan is relying on them to lead the way, and still they refuse to share anything."
 
 "This is their plan. We must play by their rules."
 

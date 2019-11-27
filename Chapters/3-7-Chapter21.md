@@ -1,6 +1,6 @@
 # Chapter 21
 
-The blockade was unbreakable. A line of ships, five rows wide with a staggered formation hugged the Heiko peninsula and continued onto land for as the darkness would reveal. There must have been nearly a thousand ships from every province, each with a crew hungry for blood and indifferent to reason. Perhaps they wanted someone to blame for the darkness, or a morsel of Heiko's food to be divided amongst them. Or simply the feeling of importance in that desert of fear. Whatever they told themselves to stay the course, they weren't prepared to leave.
+Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan for as long as the eye can see, but you only know that the trees have fallen away when you've been in it for long enough. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She was conditioned to feel more like herself within the arms of those rolling plains and the shorelines abutting them.
 
 A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.
 
@@ -196,13 +196,13 @@ Melna gasped for air but listened louder.
 
 One of the soldiers forcefully pushed her toward him, and he got in her face to talk at her.
 
-"Now you listen to me. No bullshit. No manifestos. Just show catch up to her and you're done."
+"Now, listen. This isn't chitchat time. You get a few conversations, she acknowledges you're here and then you're done. Got it?"
 
 She nodded, and he grabbed the other listener off the operator's head, giving the larger one to Melna.
 
 Through a cracked voice she said, "Liffa? Are you there?"
 
-A moment passed and then Liffa leapt out of the speaker, "Melna it's really you! Where are you right now? Why does your voice sound like that?"
+A moment passed and then Liffa leapt out of the speaker, "Melna. It's really you! Where are you right now? Why does your voice sound like that?"
 
 "It's...a long story. I'll tell you when you get back."
 
@@ -216,56 +216,73 @@ Thi giggled a bit, and Melna suddenly felt a pang of longing, "A little bit of A
 
 "Yea," she said, "I'd like that."
 
-"Hey Liffa, what about the wind?"
+"Hey Liffa," she asked, "What about the wind?"
 
-There was a pause on the line as everyone in the room seemed confused, and then Liffa responded, "The wind speaks to the fog."
+There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and Liffa responded, "The fog listens."
 
-Fajro reached for the listener, but Melna intercepted his hand and said to hae, "Turn off your an-"
+Melna tried to scream, "Liffa, listen, there are bombs behind you on your trajectory," but the operator pried her hands from the device and the lever had been lifted before she could finish. A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
 
-The operator pried her hands from the device as she finished, "tenna!", but the lever had been lifted and her last syllables didn't reach Liffa. A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
+He yelled at Melna, "What did I say?!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work."
 
-He yelled at Melna, "What did I say? No bullshit!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work."
+Melna knew what she had to do, but for now she would wait and plan as she listened to Fajro's side of the conversation.
 
-Melna knew what she had to do, but for now she would wait and plan as she listened on to Liffa.
+He now had both listeners in his ears and spoke to Liffa directly, "She'll be fine. Just work with us and this will all be okay. Now, can you describe what you see around you?"
 
-Fajro now had both listeners in his ears and spoke to Liffa directly, "Now, can you describe what you see around you?"
+<!-- "I can see the obscura in closer detail now. It's a wall of circles that grow outward from the center." -->
 
-"I can see the obscura in closer detail now. It's a wall of circles that grow outward from the center."
+"A-," he paused to find his words, "What kind of wall are you talking about?"
 
-"A wall?"
-
-"Yes. It's hard to tell how far they go."
+<!-- "Yes. It's hard to tell how far they go." -->
 
 "These circles, do they have any width to them?"
 
-"No. They're far, but. They look thin."
+<!-- "No. They're far, but. They look thin." -->
 
 "And what about at the center? Any width there?"
 
-"It looks like a giant... rock at each center? Do you think they're being mined?"
+<!-- "It looks like a giant... rock at each center? Do you suppose that's how they're being constructed?" -->
 
-"There is no doubt in my mind," he said with renewed confidence. "Are they spinning, Liffa?"
+"Constructed? Are there people out there?"
 
-"Spinning?"
+<!-- "No. I haven't seen anything resembling a person." -->
 
-"rotating about the center"
+"Then how..." He was becoming more and more perplexed by what Liffa was describing.
 
-"No, but. Oh wait. That one looks."
+<!-- "Wait, that one looks." -->
 
 "What is it?"
 
-"Fajro... I think this field of circles is wrapping itself around all of Ara"
-
-Everyone in the room held their mouths agape, trying to contemplate the size of what thi was describing. It was impossible. To make something larger than their star would take thousands of generations of skilled laborers, yet here the obscura had done it in just a few days.
+<!-- "Fajro... I think this field of discs is wrapping itself around all of Ara" -->
 
 
 
 
+<!-- THE BELOW IS FOR IF LIFFA REVEALS -->
+
+<!-- Everyone in the room gasped, and some had begun to cry silently. Melna's eyes darted around the room looking for answers.
+
+Fajro was incredulous, and responded to hae impatiently, "Liffa. You're telling me that the obscura is covering all of Ara, not just our line of sight? How is that possible? Who could possibly build something that large in a matter of days?"
+
+Melna tried to contemplate the size of such a thing. It would take thousands of generations of skilled laborers for throngia to build something of that size. Even with Holragi's level of technology, labor was always limited by population. But most important to her was a question that had vexed her from the start. Why would someone do such a thing?
+
+<!-- "I don't know, Fajro." -->
+
+<!-- Fajro took his head into his left hand and cursed at the wind, stale and cold through a vent in the ceiling above him as everyone in the room looked to him for guidance. But Melna was looking at the door, planning her next move. -->
 
 
 
+
+<!-- NOTES -->
 <!--
 Fajro gives Melna a chance to save Liffa and let Heiko die (weapons meant for obscura skip it and hit Heiko), or save Heiko(and the world) by killing Liffa (destroying the obscura). If she saves the world, she must submit her people to slavery. She chooses to kill Liffa (but the silence is a red herring).
+
+Note: Having Liffa reveal that the obscura is an infinite wall would make Fajro desparate. His idea wouldn't work anymore, and he would no longer have a bargaining chip against Melna. Therefore he would see both Liffa and Melna as useless and kill them. It would also lead to the plan being ruined and hopeless, and Fajro being tempted to use the bombs on Heiko instead, since they're useless in the sky.
+
+If Liffa lies instead, and says it's just a big rock in the way, Fajro will be swayed to detonate the bombs in the sky instead of on Heiko. This hinges on the fact that Liffa:
+- knows there are bombs on her Trajectory
+- could have calculated or heard from Setre that Heiko would be where they land.
+  - Setre would have to know trajectories, which her army isn't trained to do.
+  - Jes, Thimlu, or Melna would have to tell hae somehow.
 
 Melna thwarts an attempt to use Liffa as leverage against her. Fajro forces her to speak to her people to tell them to become slaves to Holragi.
 
@@ -276,7 +293,7 @@ Some are killed by ships on the surface with early guns, and Fajro's craft divid
 Melna's last sight is seeing her people safely outrun this giant blockade with a smile on her face.
 -->
 
-<!-- Laen is found wrapped around Melna's body in the epilogue -->
+<!-- Laen is found wrapped around Melna's body in the beginning of Linyu's part -->
 
 
 
