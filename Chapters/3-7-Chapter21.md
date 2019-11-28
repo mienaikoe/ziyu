@@ -226,40 +226,62 @@ He yelled at Melna, "What did I say?!" and then immediately turned back to the m
 
 Melna knew what she had to do, but for now she would wait and plan as she listened to Fajro's side of the conversation.
 
-He now had both listeners in his ears and spoke to Liffa directly, "She'll be fine. Just work with us and this will all be okay. Now, can you describe what you see around you?"
+He now had both listeners in his ears and spoke to Liffa directly, "She'll be fine. Just work with us and she will be okay. Now, can you describe what you see around you?"
 
-<!-- "I can see the obscura in closer detail now. It's a wall of circles that grow outward from the center." -->
+<!-- "Oh. okay. I can see the obscura in closer detail now. It's a wall of tiny circles that grow outward from their centers." -->
 
 "A-," he paused to find his words, "What kind of wall are you talking about?"
 
-<!-- "Yes. It's hard to tell how far they go." -->
+<!-- "I... can't tell. It's too far." -->
 
-"These circles, do they have any width to them?"
+Fajro turned away fom Liffa and spoke at a softer volume, but Melna could still hear him.
 
-<!-- "No. They're far, but. They look thin." -->
+"What do you mean, Liffa?"
 
-"And what about at the center? Any width there?"
+<!-- "I'm not sure how to say this, but the obscura is closer to Ara than they thought." -->
 
-<!-- "It looks like a giant... rock at each center? Do you suppose that's how they're being constructed?" -->
+A group of three people listening in immediately began looking through their papers to try and reckon their prior work with what they were hearing. *Had they miscalculated something?* Fajro walked over to them and unleashed his anger at them in their native language. After a few short outbursts, one of the group asked him something, and he turned back to the listener.
 
-"Constructed? Are there people out there?"
+"Liffa, these circles. Can you tell me any more about them?"
 
-<!-- "No. I haven't seen anything resembling a person." -->
+<!-- "No. They're far, but. They don't look natural" -->
+
+"So you think they were made by something?"
+
+<!-- "No. I haven't seen any evidence that it's being constructed in the traditional sense." -->
 
 "Then how..." He was becoming more and more perplexed by what Liffa was describing.
 
-<!-- "Wait, that one looks." -->
+Everyone in the room had sunken faces, placing all of their hope into this one plan. Some had begun to cry silently. But Melna knew what Liffa was describing. Thimlu had explained it to her once when they were first beginning to see signs of Ara fading. The idea was simple: a machine, miniaturized; made to be far more productive than any other form of life. It was a drawing of his. Charcoal on tree bark. Some strange looking box with four arms and one hole for an eye. It could make more of itself, and the copy could then make more of itself, and it wouldn't stop until it ran out of resources. Melna, believed that such a thing was more of a toy for the mind, a handy knob for an existential crisis. But she never imagined that it could exist and grow to such an immense size.
 
-"What is it?"
+"Are you certain?" he asked, now turned toward the three mathematicians with his back toward the rest of the room. "Getting this wrong could doom the entire planet. I want you to double check your observations."
 
-<!-- "Fajro... I think this field of discs is wrapping itself around all of Ara" -->
+<!-- "I am certain." -->
+
+He paused for her response, and upon receiving it, he yelled, "DAMMIT!"
+
+His listener took flight across the room, crash landing against a thin medical supply box behind the numbers-checkers.
+
+"You three were certain!" He targeted the three people who had rechecked their calculations, tossing their heaping piles of paper and ink onto the floor. "You swore your calculations were correct. That it was no more than the size of the planet."
+
+One of them dared to speak up, "Sir, the calculations are-"
+
+"The calculations? What good is math if you're answering the wrong problem? How thick can you be? You are the best physicists in all of Palinan. And still you failed all of us. This was our one chance to survive. To destroy the obscura and bring back the light."
+
+He had become infused with a kind of unstoppable anger.
+
+"Stand up," he commanded. "Stand Up! Turn around!"
+
+Melna could see
+
+
 
 
 
 
 <!-- THE BELOW IS FOR IF LIFFA REVEALS -->
 
-<!-- Everyone in the room gasped, and some had begun to cry silently. Melna's eyes darted around the room looking for answers.
+<!--
 
 Fajro was incredulous, and responded to hae impatiently, "Liffa. You're telling me that the obscura is covering all of Ara, not just our line of sight? How is that possible? Who could possibly build something that large in a matter of days?"
 
@@ -284,9 +306,17 @@ If Liffa lies instead, and says it's just a big rock in the way, Fajro will be s
   - Setre would have to know trajectories, which her army isn't trained to do.
   - Jes, Thimlu, or Melna would have to tell hae somehow.
 
-Melna thwarts an attempt to use Liffa as leverage against her. Fajro forces her to speak to her people to tell them to become slaves to Holragi.
+Tenets
+- Liffa does not have knowledge of Linyu, Setre.
+- Liffa does not know that bombs are coming.
+- Melna decides their fate
+- Melna values her people above all else, including Liffa.
+  - This means she will choose to detonate in the sky
+  - Fajro will recognize this as useless, and will realize they are powerless against such a powerful foe.
+    - This pivot will lead to him to become sick with ambition. He will coerce Heiko to become slaves by any means.
+    - Melna will be amenable to this because she has no other choice - her army isn't as strong, and they soon won't have homes. She wouldn't leave cards on the table, however. She executes a secret standoff at the pulpit, putting Fajro on the line to delivery on Liffa's mission. Liffa announces to Heiko that a better life awaits them beyond slavery, in the land of darkness. Melna sees Setre's ships barge in and yell's at them to charge into the fog. Fajro charges at her,
 
-She delivers a message on the shoreline with Fajro standing right next to her. She tells them to swim straight into the fog over the ocean and then attempts to use the knife Shinna gave her to subdue Fajro and his soldiers. She wounds Fajro but a soldier wounds her fatally as she bleeds out.
+Melna thwarts an attempt to use Liffa as leverage against her because she knows bombing the obscura would be useless. Fajro forces her to speak to her people to tell them to become slaves to Holragi. She delivers a message on the shoreline with Fajro standing right next to her. She attempts to use the knife Shinna gave her to subdue Fajro and his soldiers. She wounds Fajro but a soldier wounds her fatally as she bleeds out.
 
 Some are killed by ships on the surface with early guns, and Fajro's craft divides into several craft that hunt for Heikoans, but Shinna throws them a line with hae ship and Setre's fleet appear from the fog. Most make it to Setre's ships and sail to Ulukoma.
 
