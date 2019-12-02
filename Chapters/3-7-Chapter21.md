@@ -118,9 +118,11 @@ And all at once, Fajro reached into his jacket for a strange steel weapon and Me
 
 Thi ducked and scrambled for Melna and a great blast cracked the air above them. Melna grasped for Shinna's arm as thi fell off the ladder into the tall gap, and it held strong as she used hae momentum to loft hae back onto the ladder behind her. Melna smelled burnt sulfur and soot as Fajro pointed that smoking rod at her head. Melna moved to the tower and knealed to block Shinna from his line of view. Shinna screamed, "No! Don't go! They'll kill you!", as hae crew had already begun reeling the ladder back in with hae on it. Be she knew her fate. She knew that anyone who tried to save her would not be spared.
 
-"Come, Melna," he said, "We have much to discuss."
+"First time seeing a gun, I take it," he said with an air of arrogance.
 
-Making sure Shinna descended back to the safety of hae ship, Melna stood up and refocused her attention on the Holragi soldiers before her. Fajro smiled as he looked at her the way he would look at a saffa he won from a crooked bet.
+"Come, Melna," he gestured toward the hole he came out of. "We have much to discuss."
+
+She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holragi soldiers before her. Fajro smiled as he looked her up and down. The way he would look at a prize-winning saffa.
 
 "You look like you turn a few heads in the senate," he said, eyeing her up and down. "It's a shame we never worked together."
 
@@ -262,17 +264,17 @@ He paused for her response, and upon receiving it, he yelled, "DAMMIT!"
 
 His listener took flight across the room, crash landing against a thin medical supply box behind the numbers-checkers.
 
-"You three were certain!" He targeted the three people who had rechecked their calculations, tossing their heaping piles of paper and ink onto the floor. "You swore your calculations were correct. That it was no more than the size of the planet."
+"You were certain!" He targeted the three people who had rechecked their calculations, tossing their heaping piles of paper and ink onto the floor. "You swore an oath of truth in your work and in your actions."
 
-One of them dared to speak up, "Sir, the calculations are-"
+One of them dared to speak up, "Sir, we double checked our calcul-"
 
-"The calculations? What good is math if you're answering the wrong problem? How thick can you be? You are the best physicists in all of Palinan. And still you failed all of us. This was our one chance to survive. To destroy the obscura and bring back the light."
+"Worthless. Your math is worthless. Your calculations yielded the wrong answer. You are the best physicists in all of Palinan. And still you failed all of us. This was our one chance to survive. To destroy the obscura and bring back the light."
 
 He had become infused with a kind of unstoppable anger.
 
 "Stand up," he commanded. "Stand Up! Turn around!"
 
-Melna could see
+Melna could see him reach for his
 
 
 
