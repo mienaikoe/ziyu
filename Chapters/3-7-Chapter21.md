@@ -272,13 +272,26 @@ He took his finger off of the listener and yelled across the room, "Kavva, how c
 
 "About 1000 paces, sir," thi said.
 
-He paused to take that in, disregarding Liffa's agitated silence. Under hae breath, thi was cursing as if seeing something genuinely horrifying.
+He paused to take that in, disregarding Liffa's agitated silence. Under hae breath, thi was cursing as if seeing something genuinely horrifying. Melna had never known Liffa to be in such a state, and it shocked her to hear.
 
 He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go. We'll have one more call before you go radio silent at the apogee, ok?
 
 "No. Wait, don't–"
 
-But before thi could finish, Fajro had switched off the room speaker and the room went dead. From the corner of her eye, Melna saw a woman near the kill switch flip another switch and a red light hung for a moment, and began to flash slowly. She knew then that they were prepared to sacrifice Liffa and her heart sank. Between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+But before thi could finish, Fajro had switched off the room speaker and the room went dead. From the corner of her eye, Melna saw a woman near the kill switch flip another switch and a red light hung for a moment, and began to flash slowly. She knew then that they were prepared to sacrifice Liffa and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+
+He put down the listeners and paused for a moment to think, switching his tone suddenly when he was ready to talk.
+
+"Now that I have your attention, Melna. Let's make a deal. We have until dawn to negotiate a deal. I offer you the chance to stop the explosive on Liffa's vehicle and join me in welcoming our hero back home from a glorious victory."
+
+"And in return?" She asked coyly.
+
+"All I ask is your allegiance."
+
+She was shocked. Allegiance? What would allegiance get them?
+
+"What do you have in mind when you say... allegiance?"
+
 
 
 
