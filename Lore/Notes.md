@@ -9,6 +9,8 @@
   - Mel's struggle is anxiety, paranoia, trust
   - Lif asks Mel if she is pregnant (show they've been trying but Mel is keeping a secret from them that she's preventing it somehow)
 
+- *****Ziyu means "speaking wind"******
+
 - Liffa was studying to be a train engineer, but gave up when hae parents died.
 
 - Somehow explain how the time system works
