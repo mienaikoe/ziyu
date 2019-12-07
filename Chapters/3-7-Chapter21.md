@@ -32,7 +32,7 @@ Melna resumed her careful enrobing technique.
 
 "Clever, maybe. But can anyone lead them right now? Someone like you is hard to come by."
 
-"A good leader produces even better ones."
+"A good leader produces better ones to come."
 
 "Doesn't sound like the leaders I know."
 
@@ -292,7 +292,7 @@ He put down the listeners and paused for a moment to think, switching his tone s
 
 "The senate. Heh," he chuckled under his breath and began pacing back and forth. "The senate has no real power. It is a Milta diguised as a Tilmara. It convinces people to stay in line, to stay comfortable, to stay doomed. The senate charter prescribes peace. By any means. By all costs. And do you know why?" he asked rhetorically, "Because war would show everyone how powerless they've really been all this time."
 
-"And you have the real power in Pangum, do you?"
+"And you have the real power in Palinan, do you?"
 
 "Well, frankly," he stopped and lifted his arms as if holding up the universe as evidence. "Yes."
 

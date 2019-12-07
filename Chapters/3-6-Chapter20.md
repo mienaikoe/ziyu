@@ -40,7 +40,7 @@ this could be where Ramne threatens to rape, but dies
 
   *"OUT!"*
 
-  Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents running through her muscles as she slowly regained her sense of touch. She searched for her bearings and discovered that downward must be behind her, keeping her back planted against the damp floor. *I have that at least.*
+  Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch. She searched for her bearings and recognized that downward was behind her, and she kept her back planted against the damp floor. *I have that at least.*
 
   She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. *Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship.*
 
