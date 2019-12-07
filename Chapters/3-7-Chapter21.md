@@ -162,25 +162,21 @@ He laughed through his nose as a father might to his child, "Yes. The survival o
 
 "No, I get it. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoans at the same time. You think that's how people think of you. But you don't know that they all secretly fear you. Wish you were gone. All you'll be remembered as is the man who destroyed a city for his own self-righteousness," she raised her voice to an increasingly flustered Fajro.
 
-"You're being ridiculous. I wouldn't destroy a city."
+"You're being ridiculous. I wouldn't destroy a city. My legacy is written in steel."
 
-"Only the slaves that built your rail, manned your army, did your bidding, will say they knew you. What do you think they'll say about you once you're gone?"
+"Yea? You think steel is all it takes? What do you think the steel will mean to the ones who are left? The slaves that built your rail, manned your army, did your bidding. What kinds of stories do you think they'll tell aboout you? What kind of shadows will lurk within the monstrosities you built out of the steel you value so dearly?"
 
 "You're wasting your breath."
 
-"They'll be too busy ushering in their new master to remember you."
+"No. I think they'll be too busy ushering in their new master to remember you."
 
-"Stop."
+"Are you do-?"
 
-"You'll be dead to them. Replaced by some new woman who promises reform."
+"You'll be dead to them. Replaced by some child of the revolution. Someone who promises to never again allow the atrocities of Fajro to see the light of day."
 
-"You're not listening!"
+"You're not listen–"
 
-"Long live the Queen!"
-
-"STOP!"
-
-"Long live the-"
+"I can hear their cheers washing away the ones you begged them for! Long live the Queen! Long live the-"
 
 He took her by the neck and pinned her against the wall of the radio room to silence her, spitting to her, "You have no idea how sorry you'll be once you are forgotten. Your people will worship the stone that I tread, the air that I breathe. You'll wish you had died here."
 
@@ -226,9 +222,9 @@ Melna tried to scream, "Liffa, I love you!" but the operator had already pried h
 
 He yelled at Melna, "What did I say?!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
-Fajro gestured to a man at the far side of the room, who flipped a mundane switch on his desk.
+Fajro gestured to a man at the far side of the room, who flipped a mundane switch on his desk. A small tube of glass next to the switch flashed orange for a moment and then held its glow, searing its shape into her eyes.
 
-He said to her calmly, "I didn't want to resort to this, Melna, but I'm out of options. That switch ties directly to a timed explosive rigged to Liffa's vehicle. You might consider your words a bit more carefully next time."
+He said to her calmly, "I didn't want to resort to this, Melna, but I'm out of options. That switch was made for people like you. And you don't want to find out what it does if left on for long enough. I urge you, to be more selective with your words from now on."
 
 She stared at the switch intently, trying to weigh the bluff. *They need hae. They wouldn't wait days to send hae up just to throw it all away once she arrived. Then again, they may soon have what they were out to get, and want to use her craft to destroy some of the obscura.*
 
@@ -278,81 +274,33 @@ He pressed on the lever of the listener again and said, "Yea Liffa, you're prett
 
 "No. Wait, don't–"
 
-But before thi could finish, Fajro had switched off the room speaker and the room went dead. From the corner of her eye, Melna saw a woman near the kill switch flip another switch and a red light hung for a moment, and began to flash slowly. She knew then that they were prepared to sacrifice Liffa and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+But before thi could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of shutting it off. She knew then that they were prepared to sacrifice Liffa and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
 
 He put down the listeners and paused for a moment to think, switching his tone suddenly when he was ready to talk.
 
-"Now that I have your attention, Melna. Let's make a deal. We have until dawn to negotiate a deal. I offer you the chance to stop the explosive on Liffa's vehicle and join me in welcoming our hero back home from a glorious victory."
+"Now that I have your attention, Melna. It's time to make a deal. I offer you the chance to save Liffa and join me in welcoming our hero back home from a glorious victory against the obscura."
 
-"And in return?" She asked coyly.
+"What's in it for you?" She asked coyly.
 
-"All I ask is your allegiance."
+"All I ask is your allegiance. An address to the people of Heiko that the senate has chosen me as its leader."
 
-She was shocked. Allegiance? What would allegiance get them?
+"How stupid do you think I am?"
 
-"What do you have in mind when you say... allegiance?"
+"You may doubt me when I say this, but that's all I've wanted from the beginning. The only hope for the future of our people is to unify."
 
+"We are unified under the senate. We keep peace."
 
+"The senate. Heh," he chuckled under his breath and began pacing back and forth. "The senate has no real power. It is a Milta diguised as a Tilmara. It convinces people to stay in line, to stay comfortable, to stay doomed. The senate charter prescribes peace. By any means. By all costs. And do you know why?" he asked rhetorically, "Because war would show everyone how powerless they've really been all this time."
 
+"And you have the real power in Pangum, do you?"
 
+"Well, frankly," he stopped and lifted his arms as if holding up the universe as evidence. "Yes."
 
+She was unamused.
 
+Fajro took one step toward her, letting the light illuminate the creases of his face and the grin that folded them. She looked up at his tall figure, contemplating the choice between leading her people into Fajro's twisted desires, and letting them die fighting him. But she knew her answer even before she had left Shinna's ship.
 
-
-
-<!-- "I'm not sure how to say this, but the obscura is closer to Ara than they thought." -->
-
-A group of three people listening in immediately began looking through their papers to try and reckon their prior work with what they were hearing. *Had they miscalculated something?* Fajro walked over to them and unleashed his anger at them in their native language. After a few short outbursts, one of the group asked him something, and he turned back to the listener.
-
-"Liffa, these circles. Can you tell me any more about them?"
-
-<!-- "No. They're far, but. They don't look natural" -->
-
-"So you think they were made by something?"
-
-<!-- "No. I haven't seen any evidence that it's being constructed in the traditional sense." -->
-
-"Then how..." He was becoming more and more perplexed by what Liffa was describing.
-
-Everyone in the room had sunken faces, placing all of their hope into this one plan. Some had begun to cry silently. But Melna knew what Liffa was describing. Thimlu had explained it to her once when they were first beginning to see signs of Ara fading. The idea was simple: a machine, miniaturized; made to be far more productive than any other form of life. It was a drawing of his. Charcoal on tree bark. Some strange looking box with four arms and one hole for an eye. It could make more of itself, and the copy could then make more of itself, and it wouldn't stop until it ran out of resources. Melna, believed that such a thing was more of a toy for the mind, a handy knob for an existential crisis. But she never imagined that it could exist and grow to such an immense size.
-
-"Are you certain?" he asked, now turned toward the three mathematicians with his back toward the rest of the room. "Getting this wrong could doom the entire planet. I want you to double check your observations."
-
-<!-- "I am certain." -->
-
-He paused for her response, and upon receiving it, he yelled, "DAMMIT!"
-
-His listener took flight across the room, crash landing against a thin medical supply box behind the numbers-checkers.
-
-"You were certain!" He targeted the three people who had rechecked their calculations, tossing their heaping piles of paper and ink onto the floor. "You swore an oath of truth in your work and in your actions."
-
-One of them dared to speak up, "Sir, we double checked our calcul-"
-
-"Worthless. Your math is worthless. Your calculations yielded the wrong answer. You are the best physicists in all of Palinan. And still you failed all of us. This was our one chance to survive. To destroy the obscura and bring back the light."
-
-He had become infused with a kind of unstoppable anger.
-
-"Stand up," he commanded. "Stand Up! Turn around!"
-
-Melna could see him reach for his
-
-
-
-
-
-
-<!-- THE BELOW IS FOR IF LIFFA REVEALS -->
-
-<!--
-
-Fajro was incredulous, and responded to hae impatiently, "Liffa. You're telling me that the obscura is covering all of Ara, not just our line of sight? How is that possible? Who could possibly build something that large in a matter of days?"
-
-Melna tried to contemplate the size of such a thing. It would take thousands of generations of skilled laborers for throngia to build something of that size. Even with Holragi's level of technology, labor was always limited by population. But most important to her was a question that had vexed her from the start. Why would someone do such a thing?
-
-<!-- "I don't know, Fajro." -->
-
-<!-- Fajro took his head into his left hand and cursed at the wind, stale and cold through a vent in the ceiling above him as everyone in the room looked to him for guidance. But Melna was looking at the door, planning her next move. -->
-
+"I'll do it."
 
 
 
