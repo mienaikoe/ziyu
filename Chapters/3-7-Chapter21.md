@@ -290,7 +290,11 @@ He put down the listeners and paused for a moment to think, switching his tone s
 
 "We are unified under the senate. We keep peace."
 
-"The senate. Heh," he chuckled under his breath and began pacing back and forth. "The senate has no real power. It is a Milta diguised as a Tilmara. It convinces people to stay in line, to stay comfortable, to stay doomed. The senate charter prescribes peace. By any means. By all costs. And do you know why?" he asked rhetorically, "Because war would show everyone how powerless they've really been all this time."
+"The senate. Heh," he chuckled under his breath and began pacing back and forth. "The senate has no real power. It is a Milta diguised as a Tilmara. It convinces people to stay in line, to stay comfortable, to stay doomed. Peace is a veil, Melna. It shrouds our eyes to our true potential as a species. War, that's where heroes are made. Where civilization itself is tested."
+
+"War is where civilization goes to die. Innumerable lives are lost and nothing is gained for anyone. The senate maintains peace because the alternative is senseless."
+
+"The senate maintains peace for its senators to keep their jobs. None of them want any real change. They want to appeal to stronger members so the money can continue flowing in. They would never threaten anything. A war would lift the veil; would show the rest of the world how little their senators do for them."
 
 "And you have the real power in Palinan, do you?"
 
