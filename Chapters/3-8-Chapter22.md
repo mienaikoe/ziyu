@@ -50,9 +50,29 @@ She quickly found that she was not alone. Nearly sixty other ships like theirs h
 
 "You really are a stubborn one, Melna. I am a man of my word, and this partnership will be the first of many–"
 
-"Partnership?! This is an invasion."
+"This is an invasion, not a partnership."
 
-"Well, I suppose that's up to you," he said.
+"Well, I suppose that's up to you," he said, turning his head toward the city. He held out his hand toward the timelight tower that hung above the train station square, signalling for Melna to walk in front of him, but she refused.
+
+"I will not deliver a speech of surrender at the place of my oath-taking."
+
+"What better place for them to trust you than to be reminded of your authority."
+
+"A Heiko senator carries duty over authority. My duty today will be to ensure their safety in this process, and they will be looking to me to do that." 
+
+"So let them look up while they do."
+
+"No. My people do not look up or down to anyone. I will hear me at the pier."
+
+He tossed up his hands and said, "Suit yourself," then gestured to two soldiers that were standing by. They turned and ran toward the square, seemingly to spread the new orders.
+
+"But the order remains. I speak first," he commanded. "And Remember. What you say and what you do in the next few moments determines the lives of all Heikoans. And my patience is growing thin."
+
+"Yes. Of course," she said, trying her best to hide her true feelings.
+
+A soldier from their submarine shoved her forward and she began walking across the beach toward the entrance of the grand pier. The sand that had always been kind to tread upon now filled her feet with a cold that traveled along the marrow, stiffening her joints with each cold step.
+
+
 
 
 
