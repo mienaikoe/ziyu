@@ -80,7 +80,7 @@ He tossed up his hands and said, "Suit yourself," then gestured to two soldiers 
 
 "Today, you will change the lives of your people forever. Be sure to choose wisely."
 
-A soldier from their submersible shoved her forward and she began walking across the beach toward the point where the sand met one side of the grand pier. The sand that had always been kind to tread upon now filled her feet with cold, traveling along the marrow and the empty spaces in her shins and stiffening her joints with each cold step. She watched with anger as the people of Heiko's city center were summoned from their homes, sometimes forcefully, and gathered at the mouth of the pier. They were visibly malnourished, relying only on new crops that grew under the light of the obscura and what little stockpiles of dried stone fruits had remained of their last shipment from Yansha. Her face flushed with tiny tears from the pores in her hydroderm, but she stopped herself lest Fajro use it against her.
+A soldier from their submersible shoved her forward and she began walking across the beach toward the point where the sand met one side of the grand pier. The sand that had always been kind to tread upon now filled her feet with cold, traveling along the marrow and the empty spaces in her shins and stiffening her joints with each step. She watched with anger as the people of Heiko's city center were summoned from their homes, sometimes forcefully, and gathered at the mouth of the pier. They were visibly malnourished, relying only on new crops that grew under the light of the obscura and what little stockpiles of dried stone fruits had remained of their last shipment from Yansha. Her face flushed with tiny tears from the pores in her hydroderm, but she stopped herself lest Fajro use it against her.
 
 As she approached the pier, the people were aghast at seeing Melna dressed in robes amongst hostile company. Some of them heckled her, calling her "traitor!" and "coward!". But others could see through to what was really happening, and they cried for her. From the crowd she spotted Thimlu, the astronomer, and Jes, the messenger who put their hands on their chests in solidarity with her. She quickly warmed her face and gave them a nod as if to communicate a secret. They did not know the secret she was speaking of, but had a feeling that things were not as simple as they seemed.
 
@@ -130,7 +130,19 @@ Some in the crowd had become joyful at this news, but most remained skeptical, w
 
 "As part of this effort, our people must unite to construct a weapon larger than we have ever built. In a pledge of service, Heiko has forged a strong alliance with Holragi. To help us all accomplish this herculean effort in time. I'd like to invite Melna who will now speak about this historic alliance."
 
+He passed the microphone listener to Melna who accepted it with a smile of her own.
 
+"Nice try, Fajro," she said to him privately. "But not good enough."
+
+He frowned and decided to stand very close behind her in case she tried anything again. He turned to a soldier and whispered into hae ear, "If she says anything weird. Immediately cut."
+
+Melna began. "Friends. Heikoans. Pangum of Palinan. There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little space we have on this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through this balance, acheive peace. Our enemy now, believes it is far superior to us in every way. We cannot reason with them, for they think themselves the rulers of this corner of the universe. But I want you all to know, that we will not back down from a fight. No matter the circumstances. We will survive this together."
+
+Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him and held her arm out to fend him off.
+
+"Now, I'd like to call up the people who advised me in this long and arduous decision."
+
+She looked to them as she called them by name, "Pomri. Thimlu. Jesse. Linyu."
 
 <!--
 "I'd like to call up the people whose advice helped me make this historic decision."
