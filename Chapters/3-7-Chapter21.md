@@ -196,7 +196,7 @@ One of them shoved her toward him, and he came uncomfortably close to her face t
 
 "Now, listen. This isn't chitchat time. You get a few conversations, she acknowledges you're here and then you're done. Got it?"
 
-She nodded, and Fajro cued to the operator to flip a stiff brass switch. Suddenly a faint static could be heard in the room and she detected the sound of breaths far too loud and tinny to be natural. He gave the larger listener to Melna and waved with a finger for her to commence. 
+She nodded, and Fajro cued to the operator to flip a stiff brass switch. Suddenly a faint static could be heard in the room and she detected the sound of breaths far too loud and tinny to be natural. He gave the larger listener to Melna and waved with a finger for her to commence.
 
 Melna mustered her strength and pushed down a lever to begin talking. Through a cracked voice she heard herself, "Liffa? Are you there?"
 
@@ -214,13 +214,13 @@ Thi giggled a bit, and Melna suddenly felt a pang of longing, "A little bit of A
 
 "Yea," she said, "I'd like that."
 
-"Hey Liffa," she asked, "What about the wind?"
+"Liffa," she asked, "What about the wind?"
 
-There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and Liffa responded, "The fog listens."
+There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and Liffa responded, "I've heard it speaking close to home. From Ulu, beyond the fog of war."
 
-Melna tried to scream, "Liffa, I love you!" but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
+Melna tried to say, "Liffa, I love you," but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
 
-He yelled at Melna, "What did I say?!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
+He yelled at Melna, "What are you two on about?!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
 Fajro gestured to a man at the far side of the room, who flipped a mundane switch on his desk. A small tube of glass next to the switch flashed orange for a moment and then held its glow, searing its shape into her eyes.
 
@@ -260,7 +260,7 @@ Fajro turned away fom Melna and spoke at a softer volume, but Melna could still 
 
 "How thin would you say it is?"
 
-"No. No, you've got it all wrong. This isn't–" 
+"No. No, you've got it all wrong. This isn't–"
 
 "Liffa, could you hold, for one moment."
 

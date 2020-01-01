@@ -264,11 +264,11 @@
 
   He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the abdomen. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the side, then grabbed the satchel again and lifted the blue-eyed woman out of it by her hair, holding her face over Melna's like a puppet.
 
-  "A woman named Ginnu used to own this body but one day she died caus that fucking idiot sent her into the dark alone. She fell three stories onto a metal floor and brained herself."
+  "Let me tell you a story. A woman named Ginnu used to own this body. But one day she died because that fucking idiot sent her into the dark alone. She fell three stories onto a metal floor, and screamed in pain while he tried to save her."
 
   Melna could hear Ramne but could only see the woman's anguish through her face. She wasn't dead, she was alive.
 
-  He continued to mock them, "This *thing* is an affront to Ginnu. An abomination to life! I wish I could kill it, but it *just won't die*!"
+  He continued to mock them, "This *thing* is a demon. An abomination to life! I wish I could kill it, but it *just won't die*!"
 
   Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head-
 
