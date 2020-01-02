@@ -67,7 +67,7 @@ After a moment wrapping up his thoughts, he put his hands on the bench, "Well, s
 *************
 
 
-The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Jes, and of the Throngia who were counting on me. Turning back was not an option.
+The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Žesse, and of the Throngia who were counting on me. Turning back was not an option.
 
 We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
 

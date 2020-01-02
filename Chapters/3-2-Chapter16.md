@@ -1,7 +1,7 @@
 <!--
 
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
-- Melna goes to see Jes, and Linyu is there
+- Melna goes to see Žesse, and Linyu is there
 - Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
 - The two travel to Rudjan and talk on the way.
 - At Rudjan, they meet Ramne and Ginnu
@@ -23,12 +23,12 @@
 
   She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. Liffa's robes had been left in the washroom and there was no other sign of Linyu.
 
-  With little time to spare that day, she resolved to carry on with her day and have Jes, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
+  With little time to spare that day, she resolved to carry on with her day and have Žesse, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
 
   She approached the stable, calling, "Laen-Laen," but she heard nothing. She checked the stable and Laen-Laen was gone.
 
   She panicked and called again, louder and further than before, "Laen-Laen!"
-  
+
   There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's ziyu tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
 
   "Why are you all the way out here, Linyu?" She asked before seeing Linyu curled up between Linyu's stretching legs and beginning to awaken. The wooden listener was still on hae ear.
@@ -59,16 +59,16 @@
 
   Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
 
-  "No. It's much too dangerous. It's better if you stay here with Jes."
-  
+  "No. It's much too dangerous. It's better if you stay here with Žesse."
+
   Thi stood up now and approached her. "With. You," thi insisted.
 
   She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
-  
+
   "I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a senator from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
 
   Thi nodded back.
-  
+
   "Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
 
   "You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.

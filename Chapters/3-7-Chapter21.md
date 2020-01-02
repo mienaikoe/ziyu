@@ -54,7 +54,7 @@ Thi finished fastening the last knot and Melna turned around to see that hae att
 
 "What.. is that thing?" Melna asked hae.
 
-"A metal behemoth. Half overwater, half under."
+"A submersible, but I've never seen one this big. The can just float below the surface to stay invisible."
 
 "What would they need with something like that?"
 
@@ -62,7 +62,7 @@ Thi finished fastening the last knot and Melna turned around to see that hae att
 
 "For what? None of the navies of Palinan have an underwater ship."
 
-Thi interrupted her, calling out to the people on the behemoth again, "Permission to board!"
+Thi interrupted her, calling out to the people on the submersible again, "Permission to board!"
 
 "State your business!" one of the silhouettes spoke. She spoke with authority, "You should be at your posted position by now."
 
@@ -74,7 +74,7 @@ The people on the tower were confused, so they sent someone down the tower and g
 
 "Where have I got to go?" she replied.
 
-Shinna disappeared into stowage, and Melna saw a dark figure emerge from the tower. It was cloaked in something heavy that nearly reached the floor, but Melna couldn't make out anything more about it. Bright white lights from the behemoth came on one-by-one, illuminating Shinna's ship. Shinna appeared from stowage and looked up at the lights, trying to find hae bearings, but caught sight of Melna's figure in the light, and ran to her with something in hae hand. Thi stopped very close to her and reached around her back to push something cold against her right arm.
+Shinna disappeared into stowage, and Melna saw a dark figure emerge from the tower. It was cloaked in something heavy that nearly reached the floor, but Melna couldn't make out anything more about it. Bright white lights from the giant submersible came on one-by-one, illuminating Shinna's ship. Shinna appeared from stowage and looked up at the lights, trying to find hae bearings, but caught sight of Melna's figure in the light, and ran to her with something in hae hand. Thi stopped very close to her and reached around her back to push something cold against her right arm.
 
 "Take it," thi said abruptly.
 
@@ -106,7 +106,7 @@ The two spoke once more and said, "No more than you. We will search your person 
 
 Shinna turned to Melna with a smile and whispered, "You see that? That's why they made me captain."
 
-Four of the crew members produced a wooden ladder and cantilevered it up and out to bridge the gap between ships. Shinna secured it and checked hae pockets for any extra weapons thi might have forgotten and proceeded first followed by Melna who was significantly more careful getting down. The lights followed them as they crawled over the ocean on that rickety ladder, and Melna caught a glimpse of slight details of the behemoth. It was indeed plates of steel with strong bolts all across the hull, and few if no portholes on the sides. There was no deck to speak of, just two towers that jutted out of the hull like tall trees searching for light. As she neared the top, Shinna had already arrived on the tower and was being searched by the figure in the tower.
+Four of the crew members produced a wooden ladder and cantilevered it up and out to bridge the gap between ships. Shinna secured it and checked hae pockets for any extra weapons thi might have forgotten and proceeded first followed by Melna who was significantly more careful getting down. The lights followed them as they crawled over the ocean on that rickety ladder, and Melna caught a glimpse of slight details of the submersible. It was indeed plates of steel with strong bolts all across the hull, and few if no portholes on the sides. There was no deck to speak of, just two towers that jutted out of the hull like tall trees searching for light. As she neared the top, Shinna had already arrived on the tower and was being searched by the figure in the tower.
 
 Thi had activated her scrappy old self. "I'm not leaving her here!" she said.
 
@@ -218,9 +218,9 @@ Thi giggled a bit, and Melna suddenly felt a pang of longing, "A little bit of A
 
 There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and Liffa responded, "I've heard it speaking close to home. From Ulu, beyond the fog of war."
 
-Melna tried to say, "Liffa, I love you," but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
+Melna tried to ask, "The fog of war?" but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. "Liffa!" A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
 
-He yelled at Melna, "What are you two on about?!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
+He yelled at Melna, "I don't know what you're up to, but it ends now!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
 Fajro gestured to a man at the far side of the room, who flipped a mundane switch on his desk. A small tube of glass next to the switch flashed orange for a moment and then held its glow, searing its shape into her eyes.
 
@@ -318,7 +318,7 @@ If Liffa lies instead, and says it's just a big rock in the way, Fajro will be s
 - knows there are bombs on her Trajectory
 - could have calculated or heard from Setre that Heiko would be where they land.
   - Setre would have to know trajectories, which her army isn't trained to do.
-  - Jes, Thimlu, or Melna would have to tell hae somehow.
+  - Žesse, Thimlu, or Melna would have to tell hae somehow.
 
 Tenets
 - Liffa does not have knowledge of Linyu, Setre.
