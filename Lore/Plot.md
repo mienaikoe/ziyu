@@ -178,6 +178,8 @@ Mel, Linyu, and Pomri go to Yansha. Linyu sees Ginnu and Ramne and runs. Pomri a
 - Penyi and Liffa are in intense pain whenever they're near each other. the first bombs go off at L1 and Liffa screams in agony.
 
 
+interlogue: The obscura track the signal of the Ziyu tree. It had seen a sudden significant reduction, and the obscura had to stop it.
+
 
 ### Part 4 I guess? "The
 

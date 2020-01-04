@@ -164,53 +164,32 @@ Fajro whispered loudly to her, "Melna, there is no time for this," But she persi
 
 "Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately rushed into the water as Pomri and the woman subdued soldiers who were trying to hold people back with the aid of a few from the crowd who stayed behind. Three explosions cracked the air and two mamen on the beach fell to the ground, blood and water quickly filling their clothes. A man quickly came to their aid as the rest continued fighting.
 
-Behind her, thunderous horns filled the air as an armada of war boats appeared from the mist and cut through the water toward the outer line of the blockade. The paddlers tossed hooks and ropes and poured into the furthest ships of the blockade, taking them with ease. A handful of Holragi soldiers rushed to their submersibles, returning to protect the bigger ship.
+Behind her, thunderous horns filled the air as an armada of war boats filled to the brim with glowing blue paddlers appeared from the mist and cut through the water toward the outer line of the blockade. They tossed hooks and ropes onto the boats and poured themselves into the furthest ships of the blockade, taking them with ease. A handful of Holragi soldiers on the coast rushed to their submersibles, returning to protect the bigger ship.
 
-"You've doomed us all," Fajro spoke roughly as she pulled him down the pier. Fifty soldiers, all with musket rifles, pointed them at Melna, waiting for clear shot.
-<!--
-"You're always so dramatic, you know that?"
+"You've doomed them all," Fajro spoke roughly as she pulled him down the pier. "We could have had something great." Fifty soldiers, all with hand muskets, pointed them at Melna, waiting for a clear shot.
 
-"The obscura..."
+"We still can," she said, finally relieved of her duties. "But not like this."
 
-"Don't play stupid. We both know food doesn't grow without light. Now, I reckon you have something else up your sleeve."
+She could feel the burn on her skin turning raw and opening up to the blood that had gathered underneath. She winced with each step backward, but pushed it out of her mind.
 
-He laughed, "There are things that are not of this world... things you wouldn't believe."
+"Someday, our successors will do what we couldn't. They will learn to temper their differences. They will understand and overcome the obscura. They will be better than we could be."
 
-"Try me."
+"They will all die," said Fajro. "You heard Liffa... it is... immovable... impenetrable."
 
+"Some people think they can outrun their problems, only to find that they always catches up. The wise try to outlast it. And they never really succeed, do they? The problem becomes a part of who they are."
 
+"You... know a way?"
 
-"Thought you might say that," she said, and then pushed the blade in hard enough to let some water ooze out. Fajro shuddered in fear, and she tried him again.
+"My, how the tables have turned," she smiled, acknowledging how bittersweet this end had become.
 
-"Neither of us are leaving alive."
+"Tell me!" he begged, "I'll bring Liffa back! I'll disperse the blockade! W-Whatever you want."
 
-""
+"No," She responded without pause, "You have forsaken your confidence, and sullied the name of senator. Your secrets end here."
 
+"Wait!"
 
+In a sudden move he pushed her knife away and twisted out of her chokehold, narrowly missing the blade, and tumbled toward the edge of the pier. Melna saw she had become vulnerable, so she ran toward Fajro amidst the gunfire and jumped off the pier, catching his leg on the way down to pull him under the water with her. The water froze and the salt stung against her newly-opened burns and she screamed out in pain as they fell deeper, but still she held on to Fajro's leg as he kicked against her to surface. She felt a tightness in her side, and then a pain that leaked the warmth out of her body into the water. It didn't matter anymore. She had to finish what she had surrendered herself for. She looked around for Fajro above her and tugged hard on his leg, sending him flailing downard and her up to meet him. Her grip released from his leg and took his arm instead, holding it true and letting her other hand lay the blade to rest upon his neck. It was done.
 
-"Some may perish. But Heiko will survive."
+The soldiers were recovering his body when she last saw his lifeless face staring back at her between the volley of light rays wedging their way between the rafters. In the shallows beneath the pier, not fifty paces away, she lay beneath the sand, clinging to the bullet wound in her side and looking out toward the water. Upon the waves, not too far off, the blue lights of the Guardians of Ulukoma darted with urgency in their new found vessels, fetching children and elders and adults, one after the other, from the icy clutches of the water. And the forward ram of Shinna's ship shone brightly as it barreled through the few ships still committed to the blockade.
 
-"We will hunt... every last one of you."
-
-
-
-"Hope, Melna... hope unites us... buys us time... to keep building."
-
-"Lies, Fajro. False hope keeps people working for you. Until they discover that they'll never reap the benefits."
-
-
--->
-
-<!-- holup, we going nuclear? They don't have enough even if it were from an asteroid -->
-<!-- kanosin: she already knows. Why doesn't she control the convo -->
-<!-- this shelter is already built by forebearers, but Holragi wants to control access to it -->
-<!-- There is another shelter in Ulukoma -->
-
-
-
-
-
-<!-- Melna gives a speech. Commands them to run. -->
-<!-- People run, some die, some are captured, most make it to the fog -->
-<!-- Melna dies? Gets a mortal wound, ambiguous if death or not. -->
-<!-- Heiko explodes, empty -->
+Just before she drifted off, she whispered a silent benediction to the people she had never met who shed their fears and risked their lives to save a people they did not know. A great feeling of calm flowed through her veins as her last thought transpired into the wind, speaking to Liffa under the Ziyu tree.
