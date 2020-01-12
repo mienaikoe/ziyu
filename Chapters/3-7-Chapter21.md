@@ -172,11 +172,11 @@ He laughed through his nose as a father might to his child, "Yes. The survival o
 
 "Are you do-?"
 
-"You'll be dead to them. Replaced by some child of the revolution. Someone who promises to never again allow the atrocities of Fajro to see the light of day."
+"You'll be dead to them. Replaced by a child of the revolution. Someone who promises to never again allow your atrocities see the light of day."
 
 "You're not listen–"
 
-"I can hear their cheers washing away the ones you begged them for! Long live the Queen! Long live the-"
+"You'll beg and grovel for their attention, rotting in an underground pris–"
 
 He took her by the neck and pinned her against the wall of the radio room to silence her, spitting to her, "You have no idea how sorry you'll be once you are forgotten. Your people will worship the stone that I tread, the air that I breathe. You'll wish you had died here."
 
@@ -188,93 +188,103 @@ A radio operator announced, "Žah-Fajro. Liffa is ready," and with a shake of hi
 
 Melna gasped for air but listened louder.
 
-"Right. We have her here now. I'll put her on real quick."
+"Right," he said, "We have her here now. I'll put her on real quick."
 
 "Bring her here, dammit!" he barked at the soldiers surrounding Melna. "What are you waiting for!"
 
 One of them shoved her toward him, and he came uncomfortably close to her face to talk at her.
 
-"Now, listen. This isn't chitchat time. You get a few conversations, she acknowledges you're here and then you're done. Got it?"
+"Now, listen. This isn't catch-up time. You get a few conversations, thi acknowledges you're here and then you're done. Got it?"
 
-She nodded, and Fajro cued to the operator to flip a stiff brass switch. Suddenly a faint static could be heard in the room and she detected the sound of breaths far too loud and tinny to be natural. He gave the larger listener to Melna and waved with a finger for her to commence.
+She nodded coldly, and Fajro cued to the operator to flip a stiff brass switch. Suddenly a faint static entered the room, intimate clicking sounds painting the air. He gave the larger listener to Melna and waved with a hand for her to press a lever.
 
-Melna mustered her strength and pushed down a lever to begin talking. Through a cracked voice she heard herself, "Liffa? Are you there?"
+Melna mustered her mental strength, holding the listener in her left hand and shielding the microphone in the other. The lever sank and through a cracked voice she heard herself, "Liffa? Are you there?"
 
-A moment passed and then Liffa leapt into the room, "Melna. It's really you! Where are you right now? Why does your voice sound like that?"
+A moment passed and then my voice leapt into the room, "Melna. It's really you! Where are you? Why does your voice sound like that?"
 
-"It's...a long story. I'll tell you when you get back."
+"It's...a long story," she replied, "I'll tell you when you get back."
 
-Another moment passed, and Melna started to think it had something to do with the vast distance that Liffa had traveled.
+"Oh. Ok...," I replied, parsing her defeated tone. Another moment passed before Melna heard me, and she started to realize that it had something to do with the vast distance that my ship had traveled.
 
-"Oh. Ok..."
+We paused, looking for something to say, but Melna knew she couldn't let the conversation go slack. She picked up again, "How's the weather where you are?"
 
-They paused, looking for something to say in such circumstances, but Melna knew she couldn't let so much slack, and picked up again, "Say. How's the weather up there?"
+I giggled at her joke, then felt a pang of longing for a simpler time. 
 
-Thi giggled a bit, and Melna suddenly felt a pang of longing, "A little bit of Ara, and plenty of Ulu. It's beautiful up here. I hope someday I can paint it for you."
+"Cool and partly obscura-y," I said, covering my pain. "It's rather beautiful up here. I'll paint it for you someday."
 
 "Yea," she said, "I'd like that."
 
+I couldn't speak. Reality had sunk into me and sprouted.
+
 "Liffa," she asked, "What about the wind?"
 
-There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and Liffa responded, "I've heard it speaking close to home. From Ulu, beyond the fog of war."
+There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and I responded, "I've heard it speaking close to home. From beyond the fog of war."
 
 Melna tried to ask, "The fog of war?" but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. "Liffa!" A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
 
 He yelled at Melna, "I don't know what you're up to, but it ends now!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
-Fajro gestured to a man at the far side of the room, who flipped a mundane switch on his desk. A small tube of glass next to the switch flashed orange for a moment and then held its glow, searing its shape into her eyes.
+Fajro gestured to a man at the far side of the room, who approached her with a long, thick swatch of razor jute and placed it around her mouth while Fajro held her arms. She fought against him, but every movement against the mask stung her cheeks. The jute sunk into her mouth as he tightened the mask behind her head. Her cheeks flushed with perspiration but she held her tongue from causing further pain.
 
-He said to her calmly, "I didn't want to resort to this, Melna, but I'm out of options. That switch was made for people like you. And you don't want to find out what it does if left on for long enough. I urge you, to be more selective with your words from now on."
+He said to her calmly, "You disrespect me, Melna. I didn't want to resort to this, but this is the only thing that will keep your schemes in check."
 
-She stared at the switch intently, trying to weigh the bluff. *They need hae. They wouldn't wait days to send hae up just to throw it all away once she arrived. Then again, they may soon have what they were out to get, and want to use her craft to destroy some of the obscura.*
+She stared at him intently, trying to figure out his angle. *He needs me,* she thought. *He wouldn't put all this together and muffle me just to toy with me.*
 
-Fajro regained his stance, holding both listeners to his ears, and spoke to Liffa directly, " Now, if I'm not mistaken, you're about to pass from the front side to the back side of the obscura. Can you describe what you see around you?"
+Fajro regained his stance, keeping Melna in the corner of his eye, and took up the microphone and listener again. 
 
-"Oh. okay. Umm I can see the obscura in closer detail now. It's a wall of tiny circles that grow outward from their centers."
+"Sorry about that, Liffa," he said to me. I was too confused to answer. "Now, if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see around you?"
 
-"A-. Did you say a wall?" he paused to find his words, "What kind of wall are we talking about?"
+"Yes sir... I-I can see the obscura in closer detail now. It... looks a bunch of circles floating in space. They're all growing outward from their centers."
 
-"Massive. I think it might cover a bit more than what I can see right now"
+"Circles?" he paused to find his words, "How big are they?"
 
-"What does it look like it's made out of?"
+"Small. No larger than my own ship. But there are so many. More than I can count."
 
-"I... can't tell."
+"Liffa... how far do they stretch?"
 
-Fajro turned away fom Melna and spoke at a softer volume, but Melna could still hear him just barely.
+I paused, knowing the answer, but attempting to comprehend what I was seeing. "I... can't tell."
 
-"Now, come on, Liffa. You've got to tell us something. Use your eyes."
+Fajro turned away fom Melna and spoke to me at a softer volume so Melna couldn't hear.
 
-"I can't see so well right now."
+"Come on, Liffa. Tell me something more. Use your eyes."
 
-"What, you got blurry vision?"
+"I can't see very far," I told the truth.
 
-"Well... Yes."
+"What is it, you've got blurry vision?"
 
-"Oh... Well that's alright, just tell us what you can see."
+"Yes."
 
-"Well, I'm just about parallel with it now. All I can see is... Huh? It's... wait..."
+"Just tell me what you can see then."
 
-"It's what, Liffa?"
+"Well, I'm just a few thousand paces out now... I think I can see through a few of the cracks in the shapes... wait. No!"
 
-"I've... never seen anything like this."
+"What's wrong?" He sounded legitimately concerned.
 
-"How thin would you say it is?"
+I peered through a crack and saw what I would never have expected. There were reflections from the other side of Ara. The wall covered the entirety of our star. 
 
-"No. No, you've got it all wrong. This isn't–"
+"This wall of shapes. It doesn't end. They're forming a sphere around Ara, and I'm headed straight into it."
+
+"What?!" he said loudly. Melna heard the worry in this word along with the rest of the people listening in. He turned around to see everyone staring, and then went quiet again. 
+
+I continued, worried, "What. What do I do?"
 
 "Liffa, could you hold, for one moment."
 
-He took his finger off of the listener and yelled across the room, "Kavva, how close is she to the obscura"
+He took his finger off of the microphone lever and yelled across the room, "Kavva, how close is thi to the obscura"
 
-"About 1000 paces, sir," thi said.
+"About 720 paces, sir," thi said.
 
-He paused to take that in, disregarding Liffa's agitated silence. Under hae breath, thi was cursing as if seeing something genuinely horrifying. Melna had never known Liffa to be in such a state, and it shocked her to hear.
+He paused to take that in, disregarding my agitated silence. Under hae breath, thi was cursing as if seeing something genuinely horrifying. Melna had never known Liffa to be in such a state, and it shocked her to hear.
 
-He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go. We'll have one more call before you go radio silent at the apogee, ok?
+He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go."
+
+"Wait! What should I do?"
+
+"I'll leave you to my engineer who will take you to the apogee, ok?"
 
 "No. Wait, don't–"
 
-But before thi could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of shutting it off. She knew then that they were prepared to sacrifice Liffa and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+But before I could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of shutting it off. She knew then that they were prepared to sacrifice me and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
 
 He put down the listeners and paused for a moment to think, switching his tone suddenly when he was ready to talk.
 
