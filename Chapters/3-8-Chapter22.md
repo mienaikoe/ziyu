@@ -30,7 +30,7 @@ She paused to look at him closer. She peered into the deep fissures and splotche
 
 He immediately shot her a scowl and said, "You'll learn to keep your mouth shut, woman."
 
-"An ex-senator using illegal narcotics. Now that's quite the scandal."
+"An ex-fidelant using illegal narcotics. Now that's quite the scandal."
 
 "You're one to speak. Heiko is practically one giant Paosin den."
 
@@ -66,7 +66,7 @@ She quickly found that she was not alone. Nearly sixty other ships like theirs h
 
 "What better place for them to trust you than to be reminded of your authority."
 
-"A Heiko senator carries duty over authority. My duty today will be to ensure their safety in this process, and they will be looking to me to do that."
+"A Heiko fidelant carries duty over authority. My duty today will be to ensure their safety in this process, and they will be looking to me to do that."
 
 "So let them look up while they do."
 
@@ -124,7 +124,7 @@ A soldier came up to Fajro and said, "Sir, we are ready for the broadcast."
 
 He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She was with another woman, quite strong and dressed in kelp clothing. Melna couldn't help but wonder if she was the person that mysterious boy in Rudjan told her about. They both accepted listeners from a solider and settled into a pocket of the crowd near the center, never taking their eyes off of Melna even as Fajro began.
 
-"Good evening. I am Fajro um Holragi. Former senator for Holragi and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko senator Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
+"Good evening. I am Fajro um Holragi. Former fidelant for Holragi and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
 
 He smiled at the crowd, expecting looks of awe and wonder, but only receiving the blank stares of worry. He quickly stopped smiling and continued.
 
@@ -184,7 +184,7 @@ She could feel the burn on her skin turning raw and opening up to the blood that
 
 "Tell me!" he begged, "I'll bring Liffa back! I'll disperse the blockade! W-Whatever you want."
 
-"No," She responded without pause, "You have forsaken your confidence, and sullied the name of senator. Your secrets end here."
+"No," She responded without pause, "You have forsaken your confidence, and sullied the name of fidelant. Your secrets end here."
 
 "Wait!"
 

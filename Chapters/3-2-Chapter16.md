@@ -65,7 +65,7 @@
 
   She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
 
-  "I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a senator from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
+  "I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a fidelant from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
 
   Thi nodded back.
 
@@ -109,7 +109,7 @@
 
   Thi said, "You look familiar," and glanced at her bag from which hastily-packed robes were peaking out.
 
-  "You're the senator who gave away all our food."
+  "You're the fidelant who gave away all our food."
 
   Mel suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
 
@@ -161,7 +161,7 @@
 
   "Time... Never been fond of it. I find that I get more done when I don't have time to complain about how little time I have."
 
-  "Sometimes I wonder how you became a senator with such blind convictions."
+  "Sometimes I wonder how you became a fidelant with such blind convictions."
 
   "I build my trust around those who see what I can't."
 

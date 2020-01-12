@@ -54,7 +54,7 @@ Her feet retraced her steps down the pathway toward the conduit building, recall
 
 "Rudjan conduit is closed under order from the senate."
 
-She lowered her hood and said, "I am a senator. There is no such order."
+She lowered her hood and said, "I am a fidelant. There is no such order."
 
 "You leave now!" he yelled, realizing who she was. He ran over to her to push her toward the door, but Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her other hand hovered over the switch for the conduit, stopping the man in his tracks.
 

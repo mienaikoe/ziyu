@@ -62,7 +62,7 @@ If they get into Rudjan
 
   Pomri exclaimed, "A password?! Really, Melna?"
 
-  Bavle joined her, "Is your senator honestly so dull?"
+  Bavle joined her, "Is your fidelant honestly so dull?"
 
   Melna was unamused at being the brunt of a joke, not to mention the waste of precious time, but she took whatever humor they could afford.
 
@@ -190,7 +190,7 @@ If they get into Rudjan
 
   "I will applaud your peoples' clarity of purpose, if not your stubborn insistence on independence."
 
-  "We bow to no one, Melna. Not even to a senator."
+  "We bow to no one, Melna. Not even to a fidelant."
 
   Pomri and Melna finished their last morsels of lunch while Linyu had stopped about halfway through the bread to resume hae twisting of the wire.
 

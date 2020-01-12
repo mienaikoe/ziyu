@@ -14,7 +14,7 @@
 -->
 
 
-"Senator Melna, I think you should see something."
+"Melna, I think you should see something."
 
 Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescopic projector pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 

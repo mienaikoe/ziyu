@@ -88,7 +88,7 @@
 
   "Heiko, which conduit in the court are you requesting connection to?"
 
-  "The Heiko Senator's private conduit, please."
+  "The Heiko senator's private conduit, please."
 
   The conduit operator paused.
 
@@ -98,15 +98,15 @@
 
   He paused and sighed.
 
-  "Transferring you to Heiko Senator. Please wait a moment."
+  "Transferring you to Heiko Senate. Please wait a moment."
 
   I took the moment of silence to shift to a chair and sit down close to Žesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-  The line opened and an unenthused maman spoke, "Heiko Senator's conduit, Clerk Pomri."
+  The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
 
   "Clerk Pomri, I have an urgent message for Melna."
 
-  "Senator Melna is currently in assembly."
+  "Fidelant Melna is currently in assembly."
 
   "When will she be out?"
 

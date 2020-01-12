@@ -71,7 +71,7 @@ The front gateway was a massive arch built into the five-story building and near
 
 We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
 
-Fajro began, "I am Fajro, retired senator of Holragi. I have been summoned to deliver a message to the Heiko senator that is vital to their deliberations today."
+Fajro began, "I am Fajro, retired fidelant of Holragi. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
 
 "No one is permitted in the Senate while they are deliberating."
 
@@ -107,7 +107,7 @@ A pang of anger welled up in me but I kept my eyes faced forward, "What sort of 
 
 "Oh I think you'll find I can be very distracting."
 
-"Anyone can be distracting. You're a senator. Why not use that to get me in?"
+"Anyone can be distracting. You're a fidelant. Why not use that to get me in?"
 
 "The power of law lies in its enforcement. And trust me when I say these guards know enforcement. Not even I can wrest them from their duty to the law."
 

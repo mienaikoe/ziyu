@@ -101,7 +101,7 @@ Thi became curious. "Tell me about them," thi said.
 
 "And your woman?"
 
-"Melna is... a senator."
+"Melna is... a fidelant."
 
 "Why is that the first word you choose to describe her?"
 
@@ -179,7 +179,7 @@ Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi
 
 "And you know this... how?"
 
-"My jundwoman is the senator for Heiko. The observers at Heiko found some anomalous objects in space that have been blocking Ara and are growing in number. They predict an ice age in 60 days."
+"My jundwoman is the fidelant for Heiko. The observers at Heiko found some anomalous objects in space that have been blocking Ara and are growing in number. They predict an ice age in 60 days."
 
 "WHAT?!"
 

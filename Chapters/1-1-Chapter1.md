@@ -84,7 +84,7 @@
 
   "-I wouldn't be able to tell you anyway."
 
-  She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the clay-orange sash of a Heiko senator around her robe.
+  She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the clay-orange sash of a Heiko fidelant around her robe.
 
   "The farmers... we have a responsibility, you know. If a wind current drift is happening, we need to know so we aren't caught by an early-"
 

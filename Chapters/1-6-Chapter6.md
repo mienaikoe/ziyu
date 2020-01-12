@@ -3,7 +3,7 @@
 ## Chapter 6
 
 
-There was a constant reverberant murmur that filled the hall as a senator was talking about her city's proposal for a new academy of arts. I was between two elevated seating areas, so I was hidden from the view of most senators. A few senators glanced at me for a second and returned their view as if nothing had happened. I stopped to notice a faint glow from the walls on the left that got brighter as it grew to become the ceiling. *Thin. The ceiling is thin so it lets in light and isn't heavy.*
+There was a constant reverberant murmur that filled the hall as a fidelant was talking about her city's proposal for a new academy of arts. I was between two elevated seating areas, so I was hidden from the view of most senators. A few senators glanced at me for a second and returned their view as if nothing had happened. I stopped to notice a faint glow from the walls on the left that got brighter as it grew to become the ceiling. *Thin. The ceiling is thin so it lets in light and isn't heavy.*
 I was on the Heiko side of the hall so I figured Melna would be somewhere close by. The hall was constructed so that senators would start at the center before going further up to their desks. I would have to do the same, probably bringing a decent amount of attention to myself in the process. Luckily the center area was large so I might get away with it if I stayed quiet and slow. I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. My anxiety rushed in more with every step toward the center of the hall, but I kept my stride by counting my steps. Right as I entered the center area, I turned to the left and kept walking to make it look like I knew where I was going. *The speaker is continuing. Good.* There were steps going upward immediately to my left, so I took them and raised my gaze to look for Melna. I couldn't find her to my right, but I saw the back of her head in the front row on the other side of the entryway. *I chose the wrong side.* I could feel the eyes of the senators locked on me now, and I was drawing attention. I would have to go back to the center again. I would really draw attention then. My pounding heart and ringing ears were deafening and I was picking up my pace to get to Melna as quickly as possible.
 
 "Are you lost?" A different voice interrupted the speaker and addressed me directly. *That must be the mediator.*
@@ -72,7 +72,7 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 "Mel, you aren't..."
 
-"Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A senator from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
+"Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A fidelant from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
 
 "But we only stockpile enough for 30 tova."
 
@@ -138,7 +138,7 @@ I was surprised that Mel had this reaction to him, and before I could explain, h
 
 "These are dark times indeed. We need more selfless heroes like Liffa here who transcend the law for the greater good of the world."
 
-"Surely the untouchable senator would make for a better hero."
+"Surely the untouchable fidelant would make for a better hero."
 
 *Untouchable?*
 

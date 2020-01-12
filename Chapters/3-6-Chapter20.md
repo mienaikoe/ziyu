@@ -52,7 +52,7 @@ this could be where Ramne threatens to rape, but dies
 
   "Choke on your own dick."
 
-  He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled senator from Heiko. Would have been more gentle when I caught your leg."
+  He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled fidelant from Heiko. Would have been more gentle when I caught your leg."
 
   "Maybe your consideration can think to leave me the fuck alone next time."
 

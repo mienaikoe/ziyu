@@ -101,7 +101,7 @@
   I took out the letter to review it and think about how I might deliver it. The letter was marred with creases from all the travel, but luckily the fibers and the ink held up. I saw the dots and the circle again, but now I could make out the sentences.
 
   ```
-    To:   Dr. Melna Colyun, Senator to Heiko
+    To:   Dr. Melna Colyun, Fidelant to Heiko
     From: Dr. Thimlu Rinmet, Observer at Heiko Observatory
 
     I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. It is difficult to estimate size, but it is covering the entire span of view we have with Ara, and likely more. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are automatically correcting themselves to be evenly-spaced.
@@ -131,7 +131,7 @@
 
   "Why would you do that?"
 
-  "My name is Fajro. I used to work with Mel in the senate. I was a senator to Holragi when she got her beginnings as a junior senator. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+  "My name is Fajro. I used to work with Mel in the senate. I was a fidelant to Holragi when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
 
   "I assure you it is."
 

@@ -135,11 +135,11 @@
 
   "You pinned a man against a wall."
 
-  "The man was an ex-senator from Holragi. And he pressured my partner, Liffa, into going on some experimental flight to space."
+  "The man was an ex-fidelant from Holragi. And he pressured my partner, Liffa, into going on some experimental flight to space."
 
   "What? Why would he do that?"
 
-  "He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a senator for Heiko."
+  "He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a fidelant for Heiko."
 
   "What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
 

@@ -4,7 +4,7 @@ Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan
 
 A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.
 
-She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a senator, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holragi's sharks had come for dinner.
+She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holragi's sharks had come for dinner.
 
 Shinna had stayed near her since the fire, knowing not to trust anyone else of hae crew with the assumption of good nature. Thi had given Melna a flat piece of sticky kelp cut to the size of her torso and suggested that she wear it. "For your wound," thi said, with as much heart as thi could muster from the depth of guilt, and Melna took it with gratitude. She disrobed from Shinna's coat to apply the makeshift bandage and change into her robes while Shinna looked away at hae crew. She moved quickly and proficiently. If these were her last moments in friendly company she didn't want to waste them getting dressed.
 
@@ -20,7 +20,7 @@ Shinna had stayed near her since the fire, knowing not to trust anyone else of h
 
 "Is it really fear that makes you tick? Is everyone really fighting for a chance to live in the desert?"
 
-Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything was simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. You may be young for a senator, but you probably know by now that things aren't quite that simple. All your good intentions mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird dark things shutting off your source of warmth and life. If in this moment, you have a choice to let a million strangers die or everyone you love, you will always. Always. Choose the million."
+Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything was simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. You may be young for a fidelant, but you probably know by now that things aren't quite that simple. All your good intentions mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird dark things shutting off your source of warmth and life. If in this moment, you have a choice to let a million strangers die or everyone you love, you will always. Always. Choose the million."
 
 Melna paused her dressing routine and pondered whether Shinna meant she would save the million or kill the million. But she figured it was best if she kept her thoughts on the topic to herself.
 
@@ -86,7 +86,7 @@ She was confused why thi was suddenly giving her a weapon, but she didn't hesita
 
 Shinna came forward and addressed the figure, "I am Shinna, captain of the third kelping ship of Rudjan. We request boarding to negotiate Melna's release."
 
-The newest figure consulted with the speaking shadow, and she said, "Only the senator will board. There will be no negotiation."
+The newest figure consulted with the speaking shadow, and she said, "Only the fidelant will board. There will be no negotiation."
 
 "We were promised a placement in the new colony."
 

@@ -109,7 +109,7 @@ He finished jotting his notes and then turned the page for the next question.
 
 "It was intended for Melna, my jundwoman."
 
-"Melna, as in the senator?"
+"Melna, as in the fidelant?"
 
 "Yes."
 
@@ -119,17 +119,17 @@ He wrote some more notes and turned the page again.
 
 "So that leads to question 3. How did you get into the deliberation hall in the first place?"
 
-"I was helping a disabled ex-senator who was traveling to the senate."
+"I was helping a disabled ex-fidelant who was traveling to the senate."
 
 "My, you certainly walk in high circles. You have a name?"
 
 He stared at me, while I hesitated.
 
-He said, "Come on, Liffa. I've got no intention of nabbing your friend. There's nothing illegal about an ex-senator walking the grounds."
+He said, "Come on, Liffa. I've got no intention of nabbing your friend. There's nothing illegal about an ex-fidelant walking the grounds."
 
 I thought about what Mel said about him. To never trust him. Perhaps the truth would help me more than protecting him would.
 
-"Fajro. He was a senator for Holragi."
+"Fajro. He was a fidelant for Holragi."
 
 "Fajro, eh? That explains why he was so eager to ask about you."
 
@@ -219,7 +219,7 @@ He had a convincing argument, but I remembered what Mel said about him.
 
 "I don't trust you. You could do anything with me and get away with it," I said.
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko senator's jund, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
+"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jund, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
 
 Kip added his opinion, "It does sound like a good deal, Lif. One La'To on the frontlines of civilization is much better than whatever you would get in Ulu."
 
@@ -259,7 +259,7 @@ I reached for his shoulders under a thin, tightly woven tunic that he usually wo
 
 "He's just a client. I check his leg out every once in a while. Why?"
 
-"Did you know that he used to be a senator for Holragi"
+"Did you know that he used to be a fidelant for Holragi"
 
 "No... I didn't know about that."
 
