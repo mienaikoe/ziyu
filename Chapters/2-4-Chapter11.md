@@ -8,7 +8,7 @@
     Kip hears messages about Lif from Holragi and listens to hae fear on the radio.
 
   Interlogue:
-    Next day, a boat comes for everyone who is able-bodied and able-minded to help with preparations. Kip gets on the boat with a radio and regrets what happened at the shadestead, but feels hopeful for the future with Setre in charge. Mel is waiting for him at Shaki Harbor.
+    Next day, a boat comes for everyone who is able-bodied and able-minded to help with preparations. Kip gets on the boat with a radio and regrets what happened at the Great Pavilion, but feels hopeful for the future with Setre in charge. Mel is waiting for him at Shaki Harbor.
 
 
   Thoughts:
@@ -34,7 +34,7 @@
 
   Kip was surprised, "What are we doing now?"
 
-  "You wanted to learn about these coils right? If we're to change anything in the Shadestead, you're going to have to learn how to use them."
+  "You wanted to learn about these coils right? If we're to change anything in the Great Pavilion, you're going to have to learn how to use them."
 
   "I don't follow," he said, perplexed.
 
@@ -173,7 +173,7 @@
 
   Casra leaned in to hug Linyu, while keeping her eyes up.
 
-  "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Shadestead."
+  "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Great Pavilion."
 
   Kip, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 

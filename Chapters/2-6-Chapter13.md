@@ -10,8 +10,8 @@ ch13
   - Linyu suggests using radio to synchronize movements
   - Linyu teaches the people radio
   - Linyu and Ramne's jundwoman, Ginnu, become closer
-  - Setre takes the antidote back to the Shadestead to heal the slaves who still follow Setre
-- Armed with listeners, they surround the Shadestead
+  - Setre takes the antidote back to the Great Pavilion to heal the slaves who still follow Setre
+- Armed with listeners, they surround the Great Pavilion
   - Kip hears strange signals from Holragi on the radio
 
 
@@ -200,7 +200,7 @@ Setting:
 
 	"Yet. The minute she knows what you're up to, she will run."
 
-	"Look. She can't go back to the shadestead or she'll blab about you, and she can't just stay tied up here in the cold. Leave her with me."
+	"Look. She can't go back to the Great Pavilion or she'll blab about you, and she can't just stay tied up here in the cold. Leave her with me."
 
 	She sighed. "You better keep your eyes on her."
 
@@ -216,7 +216,7 @@ Setting:
 
 	"I guess I can't complain then," he said.
 
-	"So, the plan. Casra had originally intended to be captured by Lissa in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Lissa's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Lissa, and she started by plucking you straight from under the Shadestead. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
+	"So, the plan. Casra had originally intended to be captured by Lissa in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Lissa's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Lissa, and she started by plucking you straight from under the Great Pavilion. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
 
 	He stood up and faced the wall adjacent to the ladder.
 
@@ -238,7 +238,7 @@ Setting:
 
 	"Well... no."
 
-	"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Shadestead, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
+	"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Great Pavilion, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
 
 	"That's brilliant, but how can I transmit from trees?"
 
@@ -294,7 +294,7 @@ Setting:
 
 	"Directly east of that"
 
-	"Where are the entrances to the Great Tent?"
+	"Where are the entrances to the Great Pavilion?"
 
 	He smirked and said, "I knew you put those stakes in the drawing for a reason. The whole perimeter is an entrance."
 

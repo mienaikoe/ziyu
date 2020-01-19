@@ -9,7 +9,7 @@ Write Setre has caring about Linyu's life and future.
 
 A hand fell upon Kip's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same kelp clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
 
-"Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kip, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kip out of the tent. He looked back for a second and saw nothing but the door to the tent closed. Stark naked, severely malnourished, and fighting withdraw from something he did not know, he made a break for some fallen tree he had never seen before in the darkest part of the island.
+"Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kip, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kip out of the yurt. He looked back for a second and saw nothing but a closed flap of blue black cloth. Naked, severely malnourished, and fighting a terrible sluggish headache, he made a break for some fallen tree he had never seen before in the darkest part of the island.
 
 *I've escaped! But surely they'll be after me soon.*
 
@@ -49,7 +49,7 @@ He did as she told and immediately winced.
 
 "Ankan. It stops the pain of kanosin withdraw," Casra responded.
 
-"I see. Is that what they were smoking in the tent last night?"
+"I see. Is that what they were smoking last night?"
 
 "Yes... unfortunately. I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here together yesterday, on your boat, but we used to live here for many ma'to before."
 
@@ -220,7 +220,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 "I'm not your right-hand knight anymore. You have no idea what happened in the all the la'to you were gone. We all had to grow stronger because of your weakness."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the Shadestead reformed, but now it's gone back to being a cesspool of addiction."
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a cesspool of addiction."
 
 "We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
 
@@ -232,7 +232,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 She regained hae composure and said, "Please... Tell me what happened."
 
-"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the Shadestead and killed people in hae own tribe that thi suspected of espionage."
+"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the Great Pavilion and killed people in hae own tribe that thi suspected of espionage."
 
 "Why didn't you take action to stop it?"
 
@@ -287,7 +287,7 @@ Setre removed her spear and held it to Cas's neck. Thi didn't flinch as they bot
 
 
 
-"You're coming with me," She said in a broken voice, pushing Casra back on the pathway to the shadestead.
+"You're coming with me," She said in a broken voice, pushing Casra back on the pathway to the Great Pavilion.
 
 Kip leapt up and forward to get through the door and run after them. Linyu wasn't far behind.
 
@@ -301,7 +301,7 @@ She didn't move a muscle as Linyu ran straight to hae mother. Casra picked hae u
 
 "You have to be strong now. Ulu is dangeorus place. Teach Kip everything we went over before, and don't leave his side. He needs you."
 
-Casra turned to Kip and said, "Kip...This is how it must be. This is how we change the Shadestead for good. Learn from my kaln and stop the cold you speak of."
+Casra turned to Kip and said, "Kip...This is how it must be. This is how we change the Great Pavilion for good. Learn from my kaln and stop the cold you speak of."
 
 He pleaded to hae, "This is what you want? To give up?"
 

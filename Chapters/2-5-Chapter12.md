@@ -57,7 +57,7 @@
 
 	Thi shuffled about, trying to calm hae anger.
 
-	She said, "I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Shadestead. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I wrong? Tell me I'm wrong."
+	She said, "I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Great Pavilion. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I wrong? Tell me I'm wrong."
 
   "You know what, I don't even care what happens here," Kip replied. "In eleven days I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
 
@@ -91,7 +91,7 @@
 
 	Casra took his hand as a gesture of gratitude and solidarity.
 
-	Thi continued, "The Shadestead can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. We hike East in a Va'ma. For those who choose not to join us, may fate be gentle to you."
+	Thi continued, "The Great Pavilion can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. We hike East in a Va'ma. For those who choose not to join us, may fate be gentle to you."
 
 	The people returned to talking, and Casra began to approach a fire when a man from the back started cackling.
 
@@ -145,7 +145,7 @@
 
 	A tear came to his eye as he looked at Linyu, who had returned hae focus to him. *"Protect Linyu,"* Casra's request resounded in his head.
 
-	"Know this. The Shadestead is not a prison, it is a slave cartel. Wherever you go here, you cannot escape from its reach. Right here... Right now... You must make a choice that will affect the rest of your lives. Do you resign yourself to a life of addiction and slavery, or do you reject it and fight so that others may never know such a miserable fate? Do you surrender to kanosin, or strive for the dream of something far greater?"
+	"Know this. The Great Pavilion is not a prison, it is a slave cartel. Wherever you go here, you cannot escape from its reach. Right here... Right now... You must make a choice that will affect the rest of your lives. Do you resign yourself to a life of addiction and slavery, or do you reject it and fight so that others may never know such a miserable fate? Do you surrender to kanosin, or strive for the dream of something far greater?"
 
 	"I choose to fight!" yelled a maman near him.
 

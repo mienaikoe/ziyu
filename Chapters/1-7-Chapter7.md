@@ -455,7 +455,7 @@ I answered, "Yes, magistrate. You are generous."
 
 He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
 
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To at the Shadestead in Ulu *or* a period of one La'To under the command of Fajro Um Holragi. Do you understand?"
+"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma *or* a period of one La'To under the command of Fajro Um Holragi. Do you understand?"
 
 "I do."
 

@@ -32,7 +32,7 @@
 ## Chapter 14
 
 
-	Kip paused the group in their quiet walk toward the Shadestead, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him. Huddled to his right was Ginnu, untied and shivering from the cold.
+	Kip paused the group in their quiet walk toward the Great Pavilion, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him. Huddled to his right was Ginnu, untied and shivering from the cold.
 
 	"From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same. We will only be able to see things from above, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one, they will be able to predict our movements so don't let this happen. And finally, we are not here to kill, we are here to intimidate Lissa into giving up. Even if we have all of the weapons on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
 
@@ -112,11 +112,11 @@
 
 	"It's louder, the closer you are," thi said.
 
-	"Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked over the big branch onto the Shadestead, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
+	"Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked over the big branch onto the Great Pavilion, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
 
 	Kip moved to the transmitter and said, "Seven guardians around the fire. Five near the armory. Approach from the East, everyone. Approach from the East."
 
-	Linyu pointed to the south as the first signs of movement came from their group, moving in a line toward the Shadestead and shifting their movement to the East. *Setre's plan is working!*, he whispered.
+	Linyu pointed to the south as the first signs of movement came from their group, moving in a line toward the Great Pavilion and shifting their movement to the East. *Setre's plan is working!*, he whispered.
 
 	Their view of the armory was slightly obscured, but they watched as the group circled around it from the back.
 
@@ -164,7 +164,7 @@
 
 	"Good thing we're not here to fight, then."
 
-  They tiptoed toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the top of the tent. He slipped underneath with minimal effort and slowly stood up as he continued to look around. His ears listening for any sign of trouble from the fire or from Lin, he began surveying the tent a little closer than he had before. All was blue and still, with no sign of the two. *They didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Ginnu to come in.
+  They quietly whisped toward the armory tent, and Kip peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the center of the canopy. He slipped underneath with minimal effort and slowly stood up as he continued to look around. With his ears intently listening for any sign of trouble from the fire or from Lin, he began surveying the room a little closer than he had before. All was blue and still, with no sign of the two. *They didn't just vanish*. He took up a spear and with one last glance at the room, signaled under the wall for Ginnu to come in.
 
   They both slowly walked around the room, looking at the weapons that were stockpiled - daggers, spears, swords, bows and arrows. All hardened and sharpened to an infinitesimal edge.
 
@@ -224,7 +224,7 @@
 
 	"You'll be fine, Ginnu. Just stay strong and quiet for me."
 
-	He glanced at where he had seen Ramne before to find nothing but the dark and then reassured her one more time with a hand squeeze before running back toward the pegs and the hole he entered from. Inside, Fanla and Penyi were busy fetching weapons and passing them under the tent.
+	He glanced at where he had seen Ramne before to find nothing but the dark and then reassured her one more time with a hand squeeze before running back toward the pegs and the hole he entered from. Inside, Fanla and Penyi were busy fetching weapons and passing them under the cloth wall.
 
 	"Fanla? Penyi? Where did you go? We've been waiting for you," he whispered loudly.
 
@@ -240,7 +240,7 @@
 
 	"What do you mean?"
 
-	"Thi saw some figures running from the tent and is certain one of them was Casra."
+	"Thi saw some figures running from the pavilion and is certain one of them was Casra."
 
 	"Dammit."
 
@@ -248,7 +248,7 @@
 
 	"I can't do that right now. Ginnu is down here and she's fallen pretty badly. I need a hot tip to cauterize."
 
-	She gasped and then darted to a corner of the tent where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw a vial of Kanosin and a hot tip in this bag."
+	She gasped and then darted to a corner of the room where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw a vial of Kanosin and a hot tip in this bag."
 
 	Before he could turn back around, she asked him, "What should I tell the others?"
 
@@ -345,13 +345,13 @@
 
 	"Not now!"
 
-	"The shadestead is on fire!"
+	"The Great Pavilion is on fire!"
 
 	"I said not now!"
 
 	He moved out from under Ginnu and picked up the needle again, jabbing it into the same wound, yelling in pain and frustration. He removed the bloody dressing and found the narrow vessel again. Her question weighed on him heavily. *"Am I dying?"* He heard it echo in his mind as he crawled back under her and counted his compressions on her hearts.
 
-	Fanla called to him again, "We're pulling people out of the tent. They're all unconscious. We need your help."
+	Fanla called to him again, "We're pulling people out of the pavilion. They're all unconscious. We need your help."
 
 	"Let them die!" He said in a fit of rage.
 
@@ -359,9 +359,9 @@
 
 	"I'll come back for you," he told her, wishing he could be certain. An overwhelming air of failure welled up in him, but he pushed it down and forced himself to run away.
 
-	He caught the faint odors of smoke hanging in the air on the way back up. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the main tent with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
+	He caught the faint odors of smoke hanging in the air on the way back up. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the pavilion with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
 
-	"Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the tent carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance from the tent staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
+	"Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
 
 	"Fanla!" He shouted when he approached them, and they quickly glanced in his direction.
 
@@ -377,7 +377,7 @@
 
 	Without a pause, he rose and ran off. The heat grew in intensity as he approached, but he pushed the pain down. He had to find Setre and Casra.
 
-	A silhouette appeared in the doorway of the tent. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Casra, stumbling out of the tent in a daze. He dashed to her to pull her out of the flames.
+	A silhouette appeared from the Great Pavilion. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Setre, stumbling out of the smoke in a daze. He dashed to her to pull her out of the flames.
 
 	"Cas...Cas...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
 

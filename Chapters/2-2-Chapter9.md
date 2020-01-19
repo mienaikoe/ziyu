@@ -22,13 +22,13 @@ Setre led Kip from behind, with the darkness playing the role of both binding an
 
 The fire was a behemoth of heat eating through 10 logs at once. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and oven were cleverly situated mere steps away, with their own fires stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kip lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
 
-At the far side of the fire a tent stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kip could hear the noises of a nearly a thousand people inside of it.
+At the far side of the fire a giant yurt stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kip could hear the noises of a nearly a thousand people inside of it.
 
 Setre took his shoulder and said, "In here, you stay close to me."
 
 He nodded. He didn't really have a choice.
 
-Setre glanced into the tent, and then turned her head back to him. "Also, what is your name and your occupation?"
+Setre glanced into the yurt, and then turned her head back to him. "Also, what is your name and your occupation?"
 
 "Kipnu. I'm a doctor... why do you need to know that?"
 
@@ -36,11 +36,11 @@ She looked him up and down again, surprised.
 
 "I need to call you something when I introduce you."
 
-She flipped the tent cover and they entered a new world of blue. Everyone was nude and had ornately-patterned luminescent markings on their bodies as if a vascular system of light had permeated their skin. The dancing ones blurred into the sweet smelling smoke of a plant he hadn't encountered before, their skin filling the air with an otherworldly glow. And still others were in the throws of erotic ecstasy, divining the truth in each other from behind their own eyes. The scene was unbothered by the entrance of Setre and her capture.
+She opened a fissue in the wall and they entered a new world of blue. Everyone was nude or nearly so, and had ornately-patterned luminescent markings on their bodies as if a vascular system of light had permeated their skin. The dancing ones blurred into the sweet smelling smoke of a plant he hadn't encountered before, their skin filling the air with an otherworldly glow. And still others were in the throws of erotic ecstasy, divining the truth in each other from behind their own eyes. The scene was unbothered by the entrance of Setre and her capture.
 
-She led him through the narrow spaces between people. As they progressed deeper into the tent, the air became stifling thick with the odor of smoke and sweat. They came to the back of the tent, where a maman no more than Kip's age sat reclined in front of a tent post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing.
+She led him through the narrow spaces between people. As they progressed deeper into the yurt, the air became stifling thick with the odor of smoke and sweat. They came to the back, where a maman no more than Kip's age sat reclined in front of a broad post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing.
 
-Setre whispered something in hae ear, and the maman looked Kip up and down with a mischievous smile. Thi motioned to him to join them on the other side of the tent wall. Setre pushed him to go, and he hesitantly went. To his surprise, the other side wasn't the outside, but another smaller tent with soft linens across the floor. He knew where this was going.
+Setre whispered something in hae ear, and the maman looked Kip up and down with a mischievous smile. Thi motioned to him to join them on the other side of the cloth wall. Setre pushed him to go, and he hesitantly went. To his surprise, the other side wasn't the outside, but another smaller canopy with soft linens across the floor. He knew where this was going.
 
 The maman spoke to him with a charming face.
 
@@ -90,7 +90,7 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 "Lif!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kip tried to grab Lif right as it swallowed him, but thi was lost in the darkness. Kip kept swimming through the dark, reaching for the next place Lif could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
 
-He woke up a third time, naked and alone in the small tent he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
+He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
 
 "Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's hands. The hands of warmth he had such desire for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its depths.
 
@@ -106,7 +106,7 @@ With a flick of the wrist, she made a shallow slice through a fatty part of his 
 
 She pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the Great Tent. Lissa will speak to you."
+"Bandage yourself up and come back into the Great Pavilion. Lissa will speak to you."
 
 "I have nothing to talk with hae about."
 
@@ -116,13 +116,13 @@ She left the room, leaving the still naked Kip bleeding and bandaging himself. H
 
 The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was their prize animal. *Why is everyone here? What are they looking at me for?*
 
-Lissa and hae crew sat where he entered the tent yesterday, forcing him to walk the width of the tent and be shown to everyone in the crowd.
+Lissa and hae crew sat where he entered the yurt yesterday, the rest forming a two lines, a tunnel of people surrounding him on both sides.
 
-"Kip. Approach," Lissa said from across the tent. Setre was behind him, ensuring he didn't turn back.
+"Kip. Approach," Lissa commanded, hae voice carrying well from across the room. Setre was behind him, ensuring he didn't turn back.
 
 He turned his head, but kept walking, "Setre, why all this ceremony for me?"
 
-"You are healthy, strong, and smart. A rare combination for people sent to Ulu."
+"You are healthy, strong, and smart. A rare combination for people sent to Ulukoma."
 
 As he approached, the people behind him followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly as it caused him pain in his side to do so.
 

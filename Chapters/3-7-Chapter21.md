@@ -1,4 +1,4 @@
-# Chapter 21
+## Chapter 21
 
 Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan for as long as the eye can see, but you only know that the trees have fallen away when you've been in it for long enough. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She was conditioned to feel more like herself within the arms of those rolling plains and the shorelines abutting them.
 
@@ -278,13 +278,13 @@ He paused to take that in, disregarding my agitated silence. Under hae breath, t
 
 He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go."
 
-"Wait! What should I do?"
+"Wait! What do I do?"
 
-"I'll leave you to my engineer who will take you to the apogee, ok?"
+"I'll leave you to my engineer who will take you up to obscura, ok?"
 
 "No. Wait, don't–"
 
-But before I could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of shutting it off. She knew then that they were prepared to sacrifice me and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+But before I could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of turning it back on. She knew then that they were prepared to sacrifice me and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
 
 He put down the listeners and paused for a moment to think, switching his tone suddenly when he was ready to talk.
 
