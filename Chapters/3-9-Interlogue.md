@@ -39,6 +39,6 @@ A sigh and a sniffle rattled the air as thi wiped a tear from hae face.
 
 "It's getting rather hot up here. Think I ought to go to spare you the details."
 
-"Linyu, tell your mom I'm thankful for all that thi's done."
+"Linyu, tell your nather I'm thankful for all that thi's do–"
 
 *click*
