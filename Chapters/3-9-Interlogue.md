@@ -7,17 +7,17 @@
 
 A few breaths to calm haeself.
 
-"It's been two days–"
+"I don't know if you can hear me down there but I'm still alive. It's been two–"
 
 Thi choked back a tear and listened to the stale echo of hae voice in the cabin.
 
-"Two days, four va'la... since launch."
+"Two days. Four va'la... since launch."
 
-"This is my *last* first ... first log since radio silence at apogee. I passed through the obscura unscathed. Whether this was an intentional gesture or, *heh*, just dumb luck, I... I don't know."
+"This is my first *last* ... first log since radio silence at apogee. I passed through the obscura unscathed. Whether this was an intentional gesture or, *heh*, just dumb luck, I... I don't know."
 
 "Of course, you know by now, that the obscura is surrounding all of Ara like a shell. Not just our own corner of the sky."
 
-"When I look out the window, All I see is light. I can't look for very long. It's so bright." 
+"When I look out the window, All I see is light. I can't look for very long. It's so bright."
 
 "I had to walk against the walls to orient the window away from Ara. But the obscura is still... it's everywhere I can see and incredibly bright. Shining a bright pale red-infrared."
 
@@ -29,16 +29,18 @@ Thi paused and exhaled as if drinking something.
 
 A sigh and a sniffle rattled the air as thi wiped a tear from hae face.
 
-"Whoever is listening to this, I want the world to know that I wasn't afraid." 
+"Whoever is listening to this... I want you to know that I am not afraid."
 
-"My nather always told me. To befriend my fear, so it doesn't betray me in my ignorance. I know that I should be afraid, ordinarily, but perhaps... I've had a long time to accept that this would happen."
+"My nather taught me to befriend my fear, so it doesn't betray me in my ignorance. I know that I should be afraid. It would be ordinary to be afraid. but perhaps... I've had a long time to accept that this would happen."
 
-"We were just regular people. We got swept up in the chaos of it all. Kipnu, Melna, and me. I could say that we didn't deserve to die, and by most accounts I'd be justified in saying so. But it does no good to speak of who deserves what. We chose to stick our heads where others buried theirs in fear. I'll never know if our efforts mattered, but I'm satisfied knowing that our convictions pay no mind either way."
+A high-pitched ringing sound snuck into the sound field. Hae binding pendant.
 
-"...Well," thi bridged the silence, but couldn't think of anything else to say.
+"We were just regular people... We got swept up in the chaos of it all. Kipnu and Melna and me. I could say that we didn't deserve to die, and by most accounts I'd be justified in saying so. But it does no good to speak of who deserves what. We chose to stick our heads where others buried theirs in fear. I'll never know if our efforts mattered, but I'm satisfied knowing that our convictions couldn't give a damn."
+
+"...Well," thi bridged the silence, but nothing else came to hae.
 
 "It's getting rather hot up here. Think I ought to go to spare you the details."
 
-"Linyu, tell your nather I'm thankful for all that thi's do–"
+"Linyu, tell your nather I'm thankful for all that thi has–"
 
 *click*
