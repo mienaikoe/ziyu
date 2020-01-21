@@ -15,7 +15,9 @@ Thi choked back a tear and listened to the stale echo of hae voice in the cabin.
 
 "This is my first *last* ... first log since radio silence at apogee. I passed through the obscura unscathed. Whether this was an intentional gesture or, *heh*, just dumb luck, I... I don't know."
 
-"Of course, you know by now, that the obscura is surrounding all of Ara like a shell. Not just our own corner of the sky."
+"Of course, you know by now, that the obscura is surrounding all of Ara like a shell. Not just our own corner of the sky. Even if we could blast away the portion nearest us, something else would come to fill it up. We never stood a chance."
+
+With a sniffle, thi adjusted haeself in the craft.
 
 "When I look out the window, All I see is light. I can't look for very long. It's so bright."
 

@@ -170,15 +170,15 @@ Behind her, thunderous horns filled the air as an armada of war boats filled to 
 
 "We still can," she said, finally relieved of her duties. "But not like this."
 
-She could feel the burn on her skin turning raw and opening up to the blood that had gathered underneath. She winced with each step backward, but pushed it out of her mind.
+She could feel the burn on her skin turning raw and opening up to the blood that had gathered underneath. She winced with each step backward, pushed it out of her mind.
 
-"Someday, our successors will do what we couldn't. They will learn to temper their differences. They will understand and overcome the obscura. They will be better than we could be."
+"The ones who come after will do what we couldn't. They will learn to temper their differences. They will understand and overcome the obscura. They will be better than we could be."
 
 "They will all die," said Fajro. "You heard Liffa... it is... immovable... impenetrable."
 
-"Some people think they can outrun their problems, only to find that they always catches up. The wise try to outlast it. And they never really succeed, do they? The problem becomes a part of who they are."
+"If you come to a wall, it is far easier to go around it. The obscura must become a part of who we are."
 
-"You... know a way?"
+"You know a way?"
 
 "My, how the tables have turned," she smiled, acknowledging how bittersweet this end had become.
 

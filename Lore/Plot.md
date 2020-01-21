@@ -102,7 +102,8 @@ Is a character that starts out bored with life and has lots of dreams and fantas
   - Part 4 / Epilogue
     - The Final Problem: What will life come up with if it can be sustained for millenia?
       - An end to the great filter
-    - The value of ethics wrt radical climate change stoppage.
+    - The value of ethics w.r.t. radical climate change stoppage.
+    -
 
 
 
@@ -181,10 +182,11 @@ Mel, Linyu, and Pomri go to Yansha. Linyu sees Ginnu and Ramne and runs. Pomri a
 interlogue: The obscura track the signal of the Ziyu tree. It had seen a sudden significant reduction, and the obscura had to stop it.
 
 
-### Part 4 I guess? "The
+### Part 4 I guess?
 
+- Linyu and Setre are distraught that Melna had to be left behind.
 
-- Setre travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover.
+- Setre travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover. <- why tho?
 
 - They learn about Holragi from ______ . The tribe is next to travel to the Sky Rail. They believe in the Shayadj: gods who take and give technology to suit their own ends. The Holragians have an oral tradition of the last time the Shayadj came and stole many technologies (coal and oil) beyond the imagination that they've been trying to replace ever since. The tribe people are convinced that the obstruction is the Shayadj returning to steal Ara, the ultimate technology. Lif sort of confirms this cryptically through the listener. Lif reveals that the machines are beginning to densify and respond to her craft, the chapter ends with the reader not knowing if Lif has been captured or not (radio silence).
 
