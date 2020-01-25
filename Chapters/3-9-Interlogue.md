@@ -41,8 +41,6 @@ A high-pitched ringing sound snuck into the sound field. Hae binding pendant.
 
 "...Well," thi bridged the silence, but nothing else came to hae.
 
-"It's getting rather hot up here. Think I ought to go to spare you the details."
+"It's getting rather hot up here. Think I'll spare you the details."
 
-"Linyu, tell your nather I'm thankful for all that thi has–"
-
-*click*
+"Linyu, if you're listening to this somehow. Thank y–" *click*
