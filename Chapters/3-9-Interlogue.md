@@ -31,9 +31,9 @@ Thi paused and exhaled as if drinking something.
 
 A sigh and a sniffle rattled the air as thi wiped a tear from hae face.
 
-"Whoever is listening to this... I want you to know that I am not afraid."
+"Whoever is listening to this... I want you to know that I'm not afraid of what comes next."
 
-"My nather taught me to befriend my fear, so it doesn't betray me in my ignorance. I know that I should be afraid. It would be ordinary to be afraid. but perhaps... I've had a long time to accept that this would happen."
+"My nather taught me to befriend my fear, so it doesn't betray me in my ignorance. But this time there's none to find. I know that I should be afraid. It's strange that I'm not. But I've had a long time to accept that this would happen. Only a fool would hope to be a hero for free."
 
 A high-pitched ringing sound snuck into the sound field. Hae binding pendant.
 
