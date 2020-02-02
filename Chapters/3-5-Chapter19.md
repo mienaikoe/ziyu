@@ -104,7 +104,7 @@
 
   She leaned in close and took hae hands in her own.
 
-  "If this is about Holragi, then I know what I'm getting into."
+  "If this is about Holrag, then I know what I'm getting into."
 
   "Why, then, do you insist on going home?"
 

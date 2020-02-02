@@ -64,7 +64,7 @@ this could be where Ramne threatens to rape, but dies
 
   She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the woman. A faint whirring sound of a hot tip being warmed startled her and an oil lamp lit up, showing Ramne's smug face staring at hers.
 
-  He said, "Holragi is looking for you, you know. And they're promising a hefty reward."
+  He said, "Holrag is looking for you, you know. And they're promising a hefty reward."
 
   *Why are they looking for me?*
 
@@ -136,13 +136,13 @@ this could be where Ramne threatens to rape, but dies
 
   Melna said, "Whatever he promised you, it's not coming."
 
-  "He has Holragi's favor. We'll all be in the first colony in the desert."
+  "He has Holrag's favor. We'll all be in the first colony in the desert."
 
   "How many people do you think he's said that to?"
 
   Thi stayed silent, more unsure of haeself than thi had ever been before, but so engrossed in the plan.
 
-  "I am responsible for the survival of my crew," thi said. "You will be sold to Holragi. That is final."
+  "I am responsible for the survival of my crew," thi said. "You will be sold to Holrag. That is final."
 
   Shinna took hae coat off of hae back, tossed it on the ground in front of Melna, and then turned around to help hae crew. Melna quickly took the coat and laid it over her body as she curled up against the railing, looking on at the busy crew before her. Three people rushed into the smoke with buckets of ocean water reserved for fighting fires. They stopped and waited for a woman and a maman carrying Ramne out of the smoke. He was barely aware of what was happening, turning his head left and right, trying to find his eyesight.
 
@@ -173,18 +173,18 @@ this could be where Ramne threatens to rape, but dies
 
 
 <!--
-- Holragi wants to use Melna and Liffa as bargaining chips against each other when negotiating with Liffa about communicating with the obscura.
+- Holrag wants to use Melna and Liffa as bargaining chips against each other when negotiating with Liffa about communicating with the obscura.
   - If Heiko is blockaded, there needs to be some external force to help them
     - Ulukoma?
-      - Setre knows about Holragi's plan to destroy Heiko
+      - Setre knows about Holrag's plan to destroy Heiko
       - They would have to plan to help Heiko already.
         - That's what planting Linyu was about
         - Why would they help Heiko?
           - Gain legitimacy in the senate
           - Avenge Kipnu's death
       - Melna and a small army would have to play decoy to try to buy time for Heiko.
-        - Gets captured by Holragi's blockade. They kill her army.
-      - A blockade by both Holragi and Rudjan would be massive.
+        - Gets captured by Holrag's blockade. They kill her army.
+      - A blockade by both Holrag and Rudjan would be massive.
         - Part 4:
         - They would have to sneak out secretly. How?
           - Kanosin+Antikan = no breathing for a long time. Swim out in the darkness to a ship only visible underwater (kanosin blue)
@@ -214,7 +214,7 @@ this could be where Ramne threatens to rape, but dies
 
 - Linyu/Pomri encounter Setre who fills them in about Ulukoma
   - and the invulnerability of Kanosin
-    - They would still want to go to Shaki to tell the world about Holragi's betrayal.
+    - They would still want to go to Shaki to tell the world about Holrag's betrayal.
 -->
 
 

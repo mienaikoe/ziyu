@@ -12,7 +12,7 @@ ch13
   - Linyu and Ramne's jundwoman, Ginnu, become closer
   - Setre takes the antidote back to the Great Pavilion to heal the slaves who still follow Setre
 - Armed with listeners, they surround the Great Pavilion
-  - Kip hears strange signals from Holragi on the radio
+  - Kip hears strange signals from Holrag on the radio
 
 
 Setting:
@@ -32,7 +32,7 @@ Setting:
 
   "Yes, Um.."
 
-  "Ginnu. Ginnu um Holragi."
+  "Ginnu. Ginnu um Holrag."
 
   "Ginnu. You're the one joined to Ramne?"
 

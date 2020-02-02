@@ -32,7 +32,7 @@ She did as the observer instructed, closing her eyes for longer than she had the
 
 "What are they?" she asked with new urgency.
 
-"Spacecraft. It looks like Holragi has their rail working."
+"Spacecraft. It looks like Holrag has their rail working."
 
 Flushed with anger, she rose from the plate and closed her eyes, facing the darkest corner of the room.
 
@@ -58,7 +58,7 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
-"This goes beyond my relationship with Liffa. This is about Holragi's secrets. All of Palinan is relying on them to lead the way, and still they refuse to share anything."
+"This goes beyond my relationship with Liffa. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they refuse to share anything."
 
 "This is their plan. We must play by their rules."
 
@@ -66,11 +66,11 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "Perhaps you're right. But we have no other option."
 
-Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holragi to speak. They are hiding something."
+Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holrag to speak. They are hiding something."
 
 "Your pleading will be met with hostility, Melna."
 
-"Do you suggest we cower in fear, waiting for the day Holragi saves us all?"
+"Do you suggest we cower in fear, waiting for the day Holrag saves us all?"
 
 "There is much to lose and very little to gain by bothering them," she said. "Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
 
@@ -228,7 +228,7 @@ Thi slowly slid back the door and reached out a hand in search of hers. Hae hand
 
 Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kip. Love. You."
 
-She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holragi's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
+She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holrag's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
 
 Mel fell asleep crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. Linyu lay awake next to her, thinking about how it must have been for the three of them to live there, how lonely Melna must be feeling now, and how thi felt a bond with her that thi struggled to describe. It was a kind of trust that thi had never experienced before: blind but unwavering in spite of it. But thi knew that Kipnu trusted her with his own life and that made trusting her far easier.
 

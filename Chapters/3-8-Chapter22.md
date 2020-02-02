@@ -8,7 +8,7 @@ A bunch of them land and round people up to the station
 
 they form a wall toward the north
 
-the heikoans flee to the south, and Holragi can't catch up. Some are lost by musket.
+the heikoans flee to the south, and Holrag can't catch up. Some are lost by musket.
 
  -->
 
@@ -48,7 +48,7 @@ She had no time to come up with a response, so he continued.
 
 The small craft came to against the sand, minor scraping sounds echoing through the thick metal shell. "We're here," said Fajro, and one of the pilots began turning a knob to unblock the door that had been leaking on Melna. She thanked the pilot, to which thi gave a vacant glance and turned back to hae seat in the front of the cabin. The door lifted with some resistance, and she emerged a few paces from the shore on a beach near Heiko harbor.
 
-She quickly found that she was not alone. Nearly sixty other ships like theirs had landed on the shore and unleashed their Holragian occupants, all of them armed with guns and covered with zaikara hard feather armor. A mechanical hum added to the commotion as Fajro emerged behind her and quickly joined her. He had a smile on his face as he watched his soldiers storming the city.
+She quickly found that she was not alone. Nearly sixty other ships like theirs had landed on the shore and unleashed their Holragi occupants, all of them armed with guns and covered with zaikara hard feather armor. A mechanical hum added to the commotion as Fajro emerged behind her and quickly joined her. He had a smile on his face as he watched his soldiers storming the city.
 
 "You've certainly brought some friends with you."
 
@@ -124,15 +124,15 @@ A soldier came up to Fajro and said, "Sir, we are ready for the broadcast."
 
 He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She was with another woman, quite strong and dressed in kelp clothing. Melna couldn't help but wonder if she was the person that mysterious boy in Rudjan told her about. They both accepted listeners from a solider and settled into a pocket of the crowd near the center, never taking their eyes off of Melna even as Fajro began.
 
-"Good evening. I am Fajro um Holragi. Former fidelant for Holragi and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
+"Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
 
 He smiled at the crowd, expecting looks of awe and wonder, but only receiving the blank stares of worry. He quickly stopped smiling and continued.
 
-"On behalf of my colleague Melna, I would like to announce that Holragi has uncovered the secrets of the obscura, and we are now planning countermeasures."
+"On behalf of my colleague Melna, I would like to announce that Holrag has uncovered the secrets of the obscura, and we are now planning countermeasures."
 
 Some in the crowd had become joyful at this news, but most remained skeptical, waiting for Melna to comment before judging its trustworthiness.
 
-"As part of this effort, the world must unite. To pool our resources into a project larger than anything this planet has ever seen. In an act of unity, Heiko has pledged its service to Holragi," *He wants to enslave all of us* "forging a strong alliance to help us all accomplish this herculean effort in time. Together, we will build a fortress in the sand. It will be a shelter for all the world's inhabitants where we can wait comfortable until the obscura subsides. I'd like to invite Melna who will now speak about this historic alliance."
+"As part of this effort, the world must unite. To pool our resources into a project larger than anything this planet has ever seen. In an act of unity, Heiko has pledged its service to Holrag," *He wants to enslave all of us* "forging a strong alliance to help us all accomplish this herculean effort in time. Together, we will build a fortress in the sand. It will be a shelter for all the world's inhabitants where we can wait comfortable until the obscura subsides. I'd like to invite Melna who will now speak about this historic alliance."
 
 He passed the microphone listener to Melna who manufactured the best smile of acceptance she could muster.
 
@@ -164,7 +164,7 @@ Fajro whispered loudly to her, "Melna, there is no time for this," But she persi
 
 "Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately rushed into the water as Pomri and the woman subdued soldiers who were trying to hold people back with the aid of a few from the crowd who stayed behind. Three explosions cracked the air and two mamen on the beach fell to the ground, blood and water quickly filling their clothes. A man quickly came to their aid as the rest continued fighting.
 
-Behind her, thunderous horns filled the air as an armada of war boats filled to the brim with glowing blue paddlers appeared from the mist and cut through the water toward the outer line of the blockade. They tossed hooks and ropes onto the boats and poured themselves into the furthest ships of the blockade, taking them with ease. A handful of Holragi soldiers on the coast rushed to their submersibles, returning to protect the bigger ship.
+Behind her, thunderous horns filled the air as an armada of war boats filled to the brim with glowing blue paddlers appeared from the mist and cut through the water toward the outer line of the blockade. They tossed hooks and ropes onto the boats and poured themselves into the furthest ships of the blockade, taking them with ease. A handful of Holrag soldiers on the coast rushed to their submersibles, returning to protect the bigger ship.
 
 "You've doomed them all," Fajro spoke roughly as she pulled him down the pier. "We could have had something great." Fifty soldiers, all with hand muskets, pointed them at Melna, waiting for a clear shot.
 

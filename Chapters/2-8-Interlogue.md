@@ -6,9 +6,9 @@ Interlogue
   - Make all of this into the intro of Chapter 15
 
   - Melna is at Heiko Observatory and sees the craft hurtling into space.
-  - She is furious at Holragi for doing something so reckless, and vows to go back to the senate to demand that they divulge their plans.
+  - She is furious at Holrag for doing something so reckless, and vows to go back to the senate to demand that they divulge their plans.
   - She is shown to be handling the heiko issue well while people talk about shaki falling apart in chaos. They suggest that it's safer for her not to go to Shaki.
-  - She considers going directly to Holragi.
+  - She considers going directly to Holrag.
   - She sleeps on it.
   - Late at night, She gets a knock from a maman named Linyu who demands to speak with her at once. Kip sent her.
 
@@ -50,7 +50,7 @@ Interlogue
 
   "ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhnnnn....."
 
-  I closed my eyes and tried to blank out my mind, but all of the instruction from my time in Holragi filled my head.
+  I closed my eyes and tried to blank out my mind, but all of the instruction from my time in Holrag filled my head.
 
   *Altitude. Orientation. Apoapsis. Gravitation. Oxygen.*
 

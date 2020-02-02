@@ -131,7 +131,7 @@
 
   "Why would you do that?"
 
-  "My name is Fajro. I used to work with Mel in the senate. I was a fidelant to Holragi when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+  "My name is Fajro. I used to work with Mel in the senate. I was a fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
 
   "I assure you it is."
 
@@ -159,7 +159,7 @@
 
   "Why you and not the others?"
 
-  "Holragi was an insignificant member of the unification treaty, and the others.. well they weren't."
+  "Holrag was an insignificant member of the unification treaty, and the others.. well they weren't."
 
   "That's ridiculous."
 

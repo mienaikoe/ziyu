@@ -98,7 +98,7 @@ Is a character that starts out bored with life and has lots of dreams and fantas
     - How people deal with famine and fear through war, greed, and turning a blind eye in favor of legalism.
       - Even utopian socialisms can be corrupt in times of great fear.
     - How dictatorships can stymie their own progress by setting up a chain of distrust.
-    - How fear can lead to rash thought leadership that leads to worse positions (Holragi's bombs).
+    - How fear can lead to rash thought leadership that leads to worse positions (Holrag's bombs).
   - Part 4 / Epilogue
     - The Final Problem: What will life come up with if it can be sustained for millenia?
       - An end to the great filter
@@ -114,7 +114,7 @@ The Palinians live around a white dwarf, huddled in the last remnants of the uni
 
 ### Driver
 the discovery of wireless communication -
-  - Holragi's use of it to build a technologically superior military force.
+  - Holrag's use of it to build a technologically superior military force.
   - Kip's discovery that Ziyu and its cousins can communicate wirelessly.
   - Mel's kidnapping and interrogation from Fajro
   - Lif's discovery of advanced modulation for
@@ -122,7 +122,7 @@ the discovery of wireless communication -
 
 ### Part 1 - "The Messenger" (Lif)
 
-Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it. Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holragi.
+Lif is a bound Maman who is a lowly farmer with two very successful and well-educated spouses. Thi is also well-educated, but lives a life of hard work and is proud of it, but no one else in the society seems to appreciate it. Thi takes on a responsibility to deliver an important message to the senate about the obstruction, and is imprisoned for interrupting it. Kip gets angry enough to hold Fajro down and command him to take back his offer. Kip gets sent to Ulu for corruption of consciousness and assault, while Lif gets sent to Holrag.
 
 ### Interlogue - Lif/Kip
 
@@ -168,13 +168,13 @@ Mel, Linyu, and Pomri go to Yansha. Linyu sees Ginnu and Ramne and runs. Pomri a
 
 - Linyu and Melna introduction. Linyu discovers Pohua in the garden, growing perfectly while lots of other crops have failed. Melna takes pohua with her. The Heikoans generally despise Melna for losing their food stores and say so in the city center. She's met with an Arkeza protestor who tries to stop her from boarding the train without hearing his pleas. Melna gives him a tuber of pohua, and he tosses it aside.
 
-- On the train, Linyu tells her about radio, and they make listeners. Once built, Lif is shown to be alive and well, reporting back to Holragi. The observer says Liffa is on a 3-day mission to L1 and is in a craft large enough to move around in and have food stores. She will re-enter the atmosphere somewhere in the middle of the dark of the ocean between Heiko and Ulukoma. Linyu thinks thi might be able to contact Liffa as hae gets closer.
+- On the train, Linyu tells her about radio, and they make listeners. Once built, Lif is shown to be alive and well, reporting back to Holrag. The observer says Liffa is on a 3-day mission to L1 and is in a craft large enough to move around in and have food stores. She will re-enter the atmosphere somewhere in the middle of the dark of the ocean between Heiko and Ulukoma. Linyu thinks thi might be able to contact Liffa as hae gets closer.
 
-- Mel stays in Shaki to debate food. She cannot let on that she knows about Liffa but she is highly tempted. Linyu gathers parts for a transmitter. They meet Setre outside of the senate. She tells them that Kip is missing along with Casra. Lissa was found dead with apparently no signs of foul play. Penyi has gone mad with PTSD and paranoid schizophrenia, constantly feeling terrified of the armory and what thi thinks is down there. Fanla is running the show with Setre. Setre is on a mission to Holragi to snoop on their radio and find out what they acually know. Melna wants to go, but has to stay behind to help Liffa off the craft.
+- Mel stays in Shaki to debate food. She cannot let on that she knows about Liffa but she is highly tempted. Linyu gathers parts for a transmitter. They meet Setre outside of the senate. She tells them that Kip is missing along with Casra. Lissa was found dead with apparently no signs of foul play. Penyi has gone mad with PTSD and paranoid schizophrenia, constantly feeling terrified of the armory and what thi thinks is down there. Fanla is running the show with Setre. Setre is on a mission to Holrag to snoop on their radio and find out what they acually know. Melna wants to go, but has to stay behind to help Liffa off the craft.
 
-- Melna re-visits Heiko to give a speech. Most of the populace hates her and gives up faith, following the Arkeza leader. Some of them hear her out and agree to try. Linyu builds a transmitter. The next day, they go to the observatory and see snow. They use the transmitter to contact Liffa and ask the observers to give closer coordinates. They discover that Liffa will need to escape from the craft with a parachute and a life vest. Apparently Fajro wasn't too concerned about hae safety on arrival for some reason. They pick up Liffa who is shaking from shock and muscle weakness. But she has a lot to talk about. Fajro comes on the listener and says "I see you found your morning bird. But turning a Holragian against her own home province. Now that sounds like a declaration of war." Setre is captured.
+- Melna re-visits Heiko to give a speech. Most of the populace hates her and gives up faith, following the Arkeza leader. Some of them hear her out and agree to try. Linyu builds a transmitter. The next day, they go to the observatory and see snow. They use the transmitter to contact Liffa and ask the observers to give closer coordinates. They discover that Liffa will need to escape from the craft with a parachute and a life vest. Apparently Fajro wasn't too concerned about hae safety on arrival for some reason. They pick up Liffa who is shaking from shock and muscle weakness. But she has a lot to talk about. Fajro comes on the listener and says "I see you found your morning bird. But turning a Holragi against her own home province. Now that sounds like a declaration of war." Setre is captured.
 
-- At the senate, Fajro says that Holragi has sent a series of projectiles to L1, aimed at creating a chain reaction to wipe out the bots. Melna knows he's actually planning to bomb Heiko and invade Shaki from Ulukoma. She devises a plan to move Heikoans all to Ulukoma with the Pohua they grew and thwart his invasion there. But she no longer has a voice in Heiko. Liffa, as a global hero, backs her up and they all plan to go. The Arkeza secretly plan to murder all Holragians in Ulukoma as part of a right-wing extremist plot.
+- At the senate, Fajro says that Holrag has sent a series of projectiles to L1, aimed at creating a chain reaction to wipe out the bots. Melna knows he's actually planning to bomb Heiko and invade Shaki from Ulukoma. She devises a plan to move Heikoans all to Ulukoma with the Pohua they grew and thwart his invasion there. But she no longer has a voice in Heiko. Liffa, as a global hero, backs her up and they all plan to go. The Arkeza secretly plan to murder all Holragians in Ulukoma as part of a right-wing extremist plot.
 
 - Penyi and Liffa are in intense pain whenever they're near each other. the first bombs go off at L1 and Liffa screams in agony.
 
@@ -186,9 +186,9 @@ interlogue: The obscura track the signal of the Ziyu tree. It had seen a sudden 
 
 - Linyu and Setre are distraught that Melna had to be left behind.
 
-- Setre travel to Holragi and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover. <- why tho?
+- Setre travel to Holrag and meet the nomads there. Setre (and Linyu?) is hesitant to go back to her homeland, but does so at the pleading of Linyu. They travel undercover. <- why tho?
 
-- They learn about Holragi from ______ . The tribe is next to travel to the Sky Rail. They believe in the Shayadj: gods who take and give technology to suit their own ends. The Holragians have an oral tradition of the last time the Shayadj came and stole many technologies (coal and oil) beyond the imagination that they've been trying to replace ever since. The tribe people are convinced that the obstruction is the Shayadj returning to steal Ara, the ultimate technology. Lif sort of confirms this cryptically through the listener. Lif reveals that the machines are beginning to densify and respond to her craft, the chapter ends with the reader not knowing if Lif has been captured or not (radio silence).
+- They learn about Holrag from ______ . The tribe is next to travel to the Sky Rail. They believe in the Shayadj: gods who take and give technology to suit their own ends. The Holragians have an oral tradition of the last time the Shayadj came and stole many technologies (coal and oil) beyond the imagination that they've been trying to replace ever since. The tribe people are convinced that the obstruction is the Shayadj returning to steal Ara, the ultimate technology. Lif sort of confirms this cryptically through the listener. Lif reveals that the machines are beginning to densify and respond to her craft, the chapter ends with the reader not knowing if Lif has been captured or not (radio silence).
 
 -
 

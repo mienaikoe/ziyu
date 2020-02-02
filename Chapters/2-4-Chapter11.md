@@ -5,7 +5,7 @@
   A sound is broadcast to people with coils, and they start a mutiny against Lissa. Lissa and Casra are killed in the action.
     Set mourns over hae. Lin is vengeful to Set. Kip mourns from a distance, feeling a bit guilty for being an intruder.
     Casra says hae last words to them and talks about a better future - Kip is reminded that hae death will be for nothing unless he does something to stop the ice age.
-    Kip hears messages about Lif from Holragi and listens to hae fear on the radio.
+    Kip hears messages about Lif from Holrag and listens to hae fear on the radio.
 
   Interlogue:
     Next day, a boat comes for everyone who is able-bodied and able-minded to help with preparations. Kip gets on the boat with a radio and regrets what happened at the Great Pavilion, but feels hopeful for the future with Setre in charge. Mel is waiting for him at Shaki Harbor.
@@ -16,14 +16,14 @@
     - But it's a satisfying death.
   - Is radio that useful?
     - It will be to listen to Lif who will give instructions for sending a sign of good will
-      - A weapon like Holragi would plan to send would be a sign of bad will, and more robots would come later (BOOK 2)
+      - A weapon like Holrag would plan to send would be a sign of bad will, and more robots would come later (BOOK 2)
       - Their alternative is for people from all 3 corners of the rim to collaboratively work on a problem and send an ambassador to deliver it.
         - Mel volunteers
         - They can collaborate with telegraph. Why is wireless important?
           - Wireless will teach them about far infrared/CO2/Greenhouse effect ???
-          - Wireless is how they will keep in contact with the machines instead of destroying them like Holragi
+          - Wireless is how they will keep in contact with the machines instead of destroying them like Holrag
             - Machines to Mel: "There is more you must learn." Mel gets angry and tries to convince them. "Give me back my Lif."
-    - Mel will want to know Holragi's plans.
+    - Mel will want to know Holrag's plans.
 -->
 
 
@@ -121,13 +121,13 @@
 
   "What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holragi was hiding something and she wanted to use radio to uncover it."
+  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holrag was hiding something and she wanted to use radio to uncover it."
 
   "Did she ever find out if they were?"
 
-  "We were too focused on other things to really dedicate any time to it. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holragi and help us. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
+  "We were too focused on other things to really dedicate any time to it. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holrag and help us. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
 
-  "Well, I'm glad we met then. I have every intention of going back and figuring out what Holragi is up to."
+  "Well, I'm glad we met then. I have every intention of going back and figuring out what Holrag is up to."
 
   "I've never met someone so interested in what we're doing, so pardon if I ask: what's in this for you?"
 
@@ -135,7 +135,7 @@
 
   "You pinned a man against a wall."
 
-  "The man was an ex-fidelant from Holragi. And he pressured my partner, Liffa, into going on some experimental flight to space."
+  "The man was an ex-fidelant from Holrag. And he pressured my partner, Liffa, into going on some experimental flight to space."
 
   "What? Why would he do that?"
 

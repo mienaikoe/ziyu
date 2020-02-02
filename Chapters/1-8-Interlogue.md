@@ -3,7 +3,7 @@
 
 The magistrate re-entered the room while the cell guard held Kip's hands behind his back. In the light, Kip could see that the magistrate's eyes were wholly uninterested in his job. They were disappointed in Kip, but not surprised.
 
-"Kipnu Um Heiko. I find you guilty of assault on Fajro Um Holragi and interruption of his consciousness. The sentence shall be a period of two La'To in Ulukoma. Do you understand?"
+"Kipnu Um Heiko. I find you guilty of assault on Fajro Um Holrag and interruption of his consciousness. The sentence shall be a period of two La'To in Ulukoma. Do you understand?"
 
 "Do I have a choice?"
 

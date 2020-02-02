@@ -129,7 +129,7 @@ He said, "Come on, Liffa. I've got no intention of nabbing your friend. There's 
 
 I thought about what Mel said about him. To never trust him. Perhaps the truth would help me more than protecting him would.
 
-"Fajro. He was a fidelant for Holragi."
+"Fajro. He was a fidelant for Holrag."
 
 "Fajro, eh? That explains why he was so eager to ask about you."
 
@@ -205,7 +205,7 @@ Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is be
 
 Kip and the magistrate turned to him to hear more.
 
-"If Liffa is inclined, thi could work with me in Holragi on our observational study of the obstruction."
+"If Liffa is inclined, thi could work with me in Holrag on our observational study of the obstruction."
 
 I replied immediately, "I am not inclined."
 
@@ -219,7 +219,7 @@ He had a convincing argument, but I remembered what Mel said about him.
 
 "I don't trust you. You could do anything with me and get away with it," I said.
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jund, the selfless hero-messenger, it would be awful for Holragi and our entire project. You would surely be in safe hands."
+"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jund, the selfless hero-messenger, it would be awful for Holrag and our entire project. You would surely be in safe hands."
 
 Kip added his opinion, "It does sound like a good deal, Lif. One La'To on the frontlines of civilization is much better than whatever you would get in Ulu."
 
@@ -259,7 +259,7 @@ I reached for his shoulders under a thin, tightly woven tunic that he usually wo
 
 "He's just a client. I check his leg out every once in a while. Why?"
 
-"Did you know that he used to be a fidelant for Holragi"
+"Did you know that he used to be a fidelant for Holrag"
 
 "No... I didn't know about that."
 
@@ -273,7 +273,7 @@ I reached for his shoulders under a thin, tightly woven tunic that he usually wo
 
 "No that's too petty. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
 
-"He would need you for longer than that to make it work, and Mel could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holragi? This observational study. I thought Heiko had the best observatory."
+"He would need you for longer than that to make it work, and Mel could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holrag? This observational study. I thought Heiko had the best observatory."
 
 "Maybe it has something to do with their space rail. Maybe they can send telescopes after all. But..."
 
@@ -295,7 +295,7 @@ I answered him, "I'd like to ask Fajro about the study he's conducting."
 
 "What do you need me for?"
 
-"Like I said, you would be a communications liaison between The Heiko and Holragi scientists."
+"Like I said, you would be a communications liaison between The Heiko and Holrag scientists."
 
 "I'm not much of a talker, and we all speak the same language here. What do you *really* need me for?"
 
@@ -455,7 +455,7 @@ I answered, "Yes, magistrate. You are generous."
 
 He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
 
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma *or* a period of one La'To under the command of Fajro Um Holragi. Do you understand?"
+"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma *or* a period of one La'To under the command of Fajro Um Holrag. Do you understand?"
 
 "I do."
 
@@ -465,4 +465,4 @@ He re-assumed his regal pose with paper and charcoal in hand, and cleared his th
 
 "You have?"
 
-"I'm going to Holragi."
+"I'm going to Holrag."

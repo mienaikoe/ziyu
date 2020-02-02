@@ -4,7 +4,7 @@ Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan
 
 A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.
 
-She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holragi's sharks had come for dinner.
+She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holrag's sharks had come for dinner.
 
 Shinna had stayed near her since the fire, knowing not to trust anyone else of hae crew with the assumption of good nature. Thi had given Melna a flat piece of sticky kelp cut to the size of her torso and suggested that she wear it. "For your wound," thi said, with as much heart as thi could muster from the depth of guilt, and Melna took it with gratitude. She disrobed from Shinna's coat to apply the makeshift bandage and change into her robes while Shinna looked away at hae crew. She moved quickly and proficiently. If these were her last moments in friendly company she didn't want to waste them getting dressed.
 
@@ -48,7 +48,7 @@ Shinna walked over and took up the top rope, eyeing the quality and length.
 
 Thi tied it in a knot that only a sailor could know, both ornate in form and function, refraining from speech. Hae arms moved slowly through the stiff air, shame alone weighing them down. Liffa appeared from Melna's memory, helping her fasten her robes in the windowlight. And Kipnu nuzzling her in the doorway. And in a daydream she wished for it all again. To relive that day and tell them that it was okay and they had nothing to worry about.
 
-"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate and prevent a famine. In the end it was worthless. Holragi's insatiable hunger brought us here: blockaded by half the world's army and navy while we struggle to flee for our lives from certain destruction. I want you to remember whatever happens here today. If what you say of love is truly what you all believe, then you will surely be next."
+"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate and prevent a famine. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by half the world's army and navy while we struggle to flee for our lives from certain destruction. I want you to remember whatever happens here today. If what you say of love is truly what you all believe, then you will surely be next."
 
 Thi finished fastening the last knot and Melna turned around to see that hae attention was pulled away by hae thoughts. Thi was considering what she had said, or so she hoped. An unfamiliar voice came in loudly on the listener, "Surfacing," and not a moment after, a woman from the top of the bow called out, "Ship approaching!" From the darkness of Ulu on the left side their ship, a great volume of water was split in two as a huge mass of steel lifted out of the water. From Melna's estimation it was nearly twice as long as Shinna's ship. The crew immediately sprung into action, taking in the sails and keeping a safe distance from the other boat. Three silhouettes appeared from a tower that protruded from the dark steel mass. Shinna shouted to them, "Hoy!" with a voice louder than three of Melna's loudest voices and a higher pitch that carried over the ocean's sounds. The three shouted back, "Hoy!" and the strange boat slowed to a halt at their closest point.
 
@@ -122,7 +122,7 @@ Thi ducked and scrambled for Melna and a great blast cracked the air above them.
 
 "Come, Melna," he gestured toward the hole he came out of. "We have much to discuss."
 
-She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holragi soldiers before her. Fajro smiled as he looked her up and down. The way he would look at a prize-winning saffa.
+She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holrag soldiers before her. Fajro smiled as he looked her up and down. The way he would look at a prize-winning saffa.
 
 "You look like you turn a few heads in the senate," he said, eyeing her up and down. "It's a shame we never worked together."
 
@@ -340,7 +340,7 @@ Tenets
     - This pivot will lead to him to become sick with ambition. He will coerce Heiko to become slaves by any means.
     - Melna will be amenable to this because she has no other choice - her army isn't as strong, and they soon won't have homes. She wouldn't leave cards on the table, however. She executes a secret standoff at the pulpit, putting Fajro on the line to delivery on Liffa's mission. Liffa announces to Heiko that a better life awaits them beyond slavery, in the land of darkness. Melna sees Setre's ships barge in and yell's at them to charge into the fog. Fajro charges at her,
 
-Melna thwarts an attempt to use Liffa as leverage against her because she knows bombing the obscura would be useless. Fajro forces her to speak to her people to tell them to become slaves to Holragi. She delivers a message on the shoreline with Fajro standing right next to her. She attempts to use the knife Shinna gave her to subdue Fajro and his soldiers. She wounds Fajro but a soldier wounds her fatally as she bleeds out.
+Melna thwarts an attempt to use Liffa as leverage against her because she knows bombing the obscura would be useless. Fajro forces her to speak to her people to tell them to become slaves to Holrag. She delivers a message on the shoreline with Fajro standing right next to her. She attempts to use the knife Shinna gave her to subdue Fajro and his soldiers. She wounds Fajro but a soldier wounds her fatally as she bleeds out.
 
 Some are killed by ships on the surface with early guns, and Fajro's craft divides into several craft that hunt for Heikoans, but Shinna throws them a line with hae ship and Setre's fleet appear from the fog. Most make it to Setre's ships and sail to Ulukoma.
 

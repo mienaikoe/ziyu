@@ -38,7 +38,7 @@ He backed away and she shouted, "Wait!" but he was much too difficult to find in
 
 *Who was he?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you?*
 
-She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. *Pomri knows what she is doing. They'll be alright without me*, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holragi such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
+She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. *Pomri knows what she is doing. They'll be alright without me*, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
 
 "I will find you when this is over," she swore to them, "and you will have a home to come back to. I promise."
 
@@ -62,7 +62,7 @@ She said, "You seem agitated. Do you have some things to tell the rest of us?"
 
 "Step away from the desk!"
 
-"Ooh so you *do* know what's happening to Holragi. Or maybe you know where they took my assistant."
+"Ooh so you *do* know what's happening to Holrag. Or maybe you know where they took my assistant."
 
 He didn't say a word, but held his apprehensive stance. Melna glanced at the space across the table, her hand still at the ready.
 
@@ -84,11 +84,11 @@ He donned a fake smile and said, "I have no clue what you're talking about."
 
 Melna was quickly becoming impatient with him. She moved from her spot and around the table to lift him up and pin him against the table, his head not far from the button to the microphone.
 
-He spoke between breaths with unwavering conviction, "You and your people. You're all criminals. Everybody knows it. You'll never succeed as long as Holragi is in power."
+He spoke between breaths with unwavering conviction, "You and your people. You're all criminals. Everybody knows it. You'll never succeed as long as Holrag is in power."
 
-"Holragi, eh? Did their operator tell you about how their sociopath scientist kidnapped my jundmaman?"
+"Holrag, eh? Did their operator tell you about how their sociopath scientist kidnapped my jundmaman?"
 
-"Scum like you don't deserve to die as heroes. But the blood of Holragi flows stronger in hae veins."
+"Scum like you don't deserve to die as heroes. But the blood of Holrag flows stronger in hae veins."
 
 She leaned forward and stared close into his eyes on the desk, moving her free hand to the table.
 

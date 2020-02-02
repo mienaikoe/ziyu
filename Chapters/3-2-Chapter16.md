@@ -89,7 +89,7 @@
 
   "Alright, Laen-Laen. Let's take a steady trip to the station."
 
-  He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Mel focused her mind to the day ahead. Putting pressure on Holragi while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
+  He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Mel focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
 
   The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
 
@@ -149,7 +149,7 @@
 
   "And you're taking hae with us to Shaki? Isn't there someone here to take care of hae?"
 
-  "I think thi might know something about Holragi that we don't know."
+  "I think thi might know something about Holrag that we don't know."
 
   Pomri wore a blank stare in an attempt to hide her frustration.
 

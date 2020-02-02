@@ -43,7 +43,7 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "Do you ever miss it?"
 
-"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holragi Sky Rail."
+"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holrag Sky Rail."
 
 "You were a part of that?"
 
@@ -71,7 +71,7 @@ The front gateway was a massive arch built into the five-story building and near
 
 We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
 
-Fajro began, "I am Fajro, retired fidelant of Holragi. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
+Fajro began, "I am Fajro, retired fidelant of Holrag. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
 
 "No one is permitted in the Senate while they are deliberating."
 
@@ -143,7 +143,7 @@ Fajro stopped in front of Tinpo and looked him up and down.
 
 "Thank you uncle," he rested his stance and smiled a little bit.
 
-"How long have you been posted here? I haven't heard from your parents since I left Holragi."
+"How long have you been posted here? I haven't heard from your parents since I left Holrag."
 
 "They posted me near the railyards immediately after you referred me, but I've been working my way up here ever since."
 

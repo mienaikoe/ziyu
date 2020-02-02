@@ -21,7 +21,7 @@ Cas is a doctor from Shaki Harbor, who moved to Ulukoma to help the people there
 Casra's kaln.
 
 ### Set(re)[Female]
-Lin's birther. Set grew up as an orphan in Holragi, and was forced to be strong, and sometimes to bully in order to survive. She moved to Ulukoma
+Lin's birther. Set grew up as an orphan in Holrag, and was forced to be strong, and sometimes to bully in order to survive. She moved to Ulukoma
 to gain power among the downtrodden and troublemakers. She found Casra and decided to follow her instead. After Ulukoma fell to Lissa, Setre was forced to become Lissa's guardian and abort any kids she had with her.
 
 ### Ram(ne)[Male]

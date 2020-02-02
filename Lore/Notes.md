@@ -134,7 +134,7 @@
 - War as a catalyst for social reform
 - Traveling speaker stories
   - Melna recruits people to her cause, and doesn't tell her plan to Pomri
-  - By speaking to people, she gains support against Holragi and Shaki.
+  - By speaking to people, she gains support against Holrag and Shaki.
   - By searching for clues, she learns more about Linyu. Including something the reader doesn't know.
 
 
@@ -155,9 +155,9 @@
 
 - Option 1: Uplift Gone Wrong
   - Summary
-    - The obscura wanted to uplift the civilization but, end up lifting up the strong civilizations: Holragi
-    - They block the sun to stop Holragi and force the nation to unify.
-    - Holragi fights back, but are futile.
+    - The obscura wanted to uplift the civilization but, end up lifting up the strong civilizations: Holrag
+    - They block the sun to stop Holrag and force the nation to unify.
+    - Holrag fights back, but are futile.
     - Volcanic areas like Ulukom become a fallback.
       - Forebears of life survived there against the same AI. How?
     - Book 2 would focus on their stalemate
@@ -183,7 +183,7 @@
     - the metal gods above want to destroy it
       - the population is growing too rapidly for a planet to survive war and pollution. They either:
         - kill off their population
-          - Holragi's approach
+          - Holrag's approach
         - destroy the AI and solve the problem later
           - Readers would hate their own species for kicking the can down the road on similar problems.
         - Deliver the message in the next book

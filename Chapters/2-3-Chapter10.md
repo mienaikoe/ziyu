@@ -75,7 +75,7 @@ Thi gently leaned into Linyu who reciprocated the gesture.
 
 "Oh yes.
 
-"Yes. she had been a child slave in Holragi, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
+"Yes. she had been a child slave in Holrag, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
 
 "So everything you came back for is gone."
 
@@ -147,17 +147,17 @@ Kip stubbornly sat in silence for a while, thinking about nothing. With a sigh, 
 
 Casra was sitting by the coil on the large tree, and began talking once Kip was close enough.
 
-"Set is from Holragi. She told me once that they have these coils on some of the trees there. She wanted me to figure out what they're for."
+"Set is from Holrag. She told me once that they have these coils on some of the trees there. She wanted me to figure out what they're for."
 
-Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holragi in all of the chaos. "Did you figure it out?"
+Kip's interest suddenly grew, as he had almost forgotten about Fajro and Holrag in all of the chaos. "Did you figure it out?"
 
 "I did. I tried different size coils and attached different things to the ends of it until I got something to work. I think they're some sort of listening device."
 
 "Listening? To what?"
 
-"Signals in the air? Ghosts? Whoever decides to transmit what they hear. I just learned how to do it before I left Ulukoma, but Holragi must know all about them by now if Set grew up with them."
+"Signals in the air? Ghosts? Whoever decides to transmit what they hear. I just learned how to do it before I left Ulukoma, but Holrag must know all about them by now if Set grew up with them."
 
-"So you're saying people from Holragi can just talk to each other over vast distances with nobody butting in? Why can't we hear them?"
+"So you're saying people from Holrag can just talk to each other over vast distances with nobody butting in? Why can't we hear them?"
 
 "I don't know, but they must be electrical because-"
 

@@ -4,7 +4,7 @@
 
 I stood in the darkness with the snow falling on a Ziyu that rose tall above the ongoing reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of it
 
-"Liffa!" I screamed hysterically into the microphone, but I knew that thi could not hear me across such a distance. Holragi had undoubtedly given up on hae, but I couldn't do that.
+"Liffa!" I screamed hysterically into the microphone, but I knew that thi could not hear me across such a distance. Holrag had undoubtedly given up on hae, but I couldn't do that.
 
 Setre came to me and put a hand on my shoulder, but I was stubborn, shrugged her hand off, and pressed the button, "Liffa, please pick up if you can hear this."
 
@@ -50,7 +50,7 @@ Her eyes darted across the area in an awkward silence, trying to think of what t
 
 My eyes found Pomri standing near a tree. I peered into her eyes and I could see the fires casting glintlights off the water forming on her eyes. Her expression fell into that constellation, fervid and tenacious, taking Setre's words and purifying them in the blinding light raging within her.
 
-"This is not the first time the engineers of Holragi have waged war in the name of ambition. Many tribes of Holragi faced the same decision many Ka'to ago. Those who resisted-"
+"This is not the first time the engineers of Holrag have waged war in the name of ambition. Many tribes of Holrag faced the same decision many Ka'to ago. Those who resisted-"
 
 Her voice broke a little but she maintained herself. I squeezed her hand a little harder and she squeezed back.
 
@@ -78,7 +78,7 @@ I let go of my nather's hand and gave her space to talk, but remained within ear
 
 She heard Pomri, and wanted to believe her, but she knew the power of the weapon that had been used on Heiko. How unlikely it would have been that anything recognizable would remain. But she couldn't say that to Pomri as much as she wanted to.
 
-"No. It's too dangerous. The Holragians may have returned."
+"No. It's too dangerous. The Holragi may have returned."
 
 "Why would they do that? There's nothing left behind."
 

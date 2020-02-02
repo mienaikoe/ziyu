@@ -7,7 +7,7 @@ If they get into Rudjan
 - Head to the comms office
   - talk to Thimli,
     - The obscura are a countless number of machines. They have stopped building over the past day.
-    - he confirms that Liffa is near L2. Trajectory looks to be bleeding off velocity in the atmosphere near Heiko, and then again near Holragi, and finally landing somewhere in the desert.
+    - he confirms that Liffa is near L2. Trajectory looks to be bleeding off velocity in the atmosphere near Heiko, and then again near Holrag, and finally landing somewhere in the desert.
     - trajectories are looking like the empty vessels are not going as far out as Liffa. Melna says to keep looking. (Not close enough to see their shapes yet)
   - Melna asks the big question to Linyu
     - Linyu explains radio briefly with drawings
@@ -158,11 +158,11 @@ If they get into Rudjan
 
   Melna was getting irritated. "I suppose that I'm asking something deeper. When do you start to call the shots? When do you stop blindly trusting an unkeepable promise and seek survival on your own terms?"
 
-  "We have enough grain from Heiko to keep us going until Holragi figures out what's going on."
+  "We have enough grain from Heiko to keep us going until Holrag figures out what's going on."
 
   "And what if they don't?"
 
-  Thi looked around and then leaned in to whisper to her with a sneer, "Holragi has this under control. We must keep faith."
+  Thi looked around and then leaned in to whisper to her with a sneer, "Holrag has this under control. We must keep faith."
 
   "I see," Melna replied, shocked at hae determined, almost fearful tone.
 
@@ -292,6 +292,6 @@ If they get into Rudjan
 
   They paddled off into the canal toward South Harbor while Melna tried to piece together what she had just heard.
 
-  "This trip was doomed to fail. Holragi would never reveal their intensinos," she said to herself, trying to remain calm.
+  "This trip was doomed to fail. Holrag would never reveal their intensinos," she said to herself, trying to remain calm.
 
   "I need to talk to Linyu."
