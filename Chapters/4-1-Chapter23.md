@@ -42,7 +42,7 @@ She stood upon the lip of the basin and took my hand into hers. The crowd, thous
 
 Her voice was strong, but carried the slightest hint of quiver. Unnoticeable to the crowd, but obvious to anyone who knew her well. *She still doesn't see herself as a leader.*
 
-"You are currently sitting upon the grounds of the Great Pavilion of Ulukoma. You've been brought here by us who call this place home. Not as slaves, but as refugees."
+"You are currently sitting upon the grounds of the Great Pavilion of Ulukoma. You've been brought here by those who call this place home. Not as slaves, but as refugees."
 
 Her eyes darted across the area in an awkward silence, trying to think of what to say.
 
