@@ -10,7 +10,7 @@ Setre came to me and put a hand on my shoulder, but I was stubborn, shrugged her
 
 The silence grew but my hand ignored it. Setre said, "That's enough. They'll find us here if you keep that up."
 
-"So let them! We're ready to fight!"
+"So let them! We can fight!" I responded.
 
 "You have much to learn, Linyu. Now, stop this nonsense and come sit with the others."
 
@@ -35,6 +35,41 @@ Her voice had calmed to a cajole, "By talking to the people around you. Now let'
 Reluctantly, I nestled the microphone onto a bend in the branches and looked out into the crowd of Heikoans and Ulukomans huddled around small fires dotting the ground surrounding the wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire on the basin, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke up and the first thing I saw was a look of concern on his face.
 
 These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
+
+"Setre, we need to talk," said Pomri, approaching. I kept my position behind my nather, so as to avoid being a distraction, but I listened closely at what they had to say.
+
+"Pomri," she spoke her name with pity, empathizing about Melna's loss. But Pomri was focused on her people.
+
+"Heiko has just been wiped away. Half of our people have been captured or killed. Why are we just sitting here?", Pomri asked, incredulous, "We should go back. Look for survivors, recover what's left of our homeland."
+
+She heard Pomri, and wanted to believe her, but she knew the power of the weapon that had been used on Heiko. How unlikely it would have been that anything recognizable would remain. But she couldn't say that to Pomri as much as she wanted to.
+
+"No. It's too dangerous. The Holragi may have returned."
+
+"Why would they do that? They've already finished with us. What could they possibly still want with Heiko now?"
+
+"They will not stop, Pomri. Not until everyone is under their thumb."
+
+"Then let us prick the thumb until there is no more blood to spill."
+
+Setre let out a sigh, seeing that she wouldn't be able to convince her that easily.
+
+
+
+
+
+"Their methods are unpredictable. Sometimes they do things to confuse you. Catch you when you are most vulnerable."
+
+"
+
+
+
+
+
+
+
+
+
 
 She stood upon the lip of the basin and took my hand into hers. The crowd, thousands strong, spared no time in quieting down to listen to what she had to say.
 
@@ -69,19 +104,5 @@ They nodded in affirmation.
 "Kelpers!," called Senri, walking in the opposite direction.
 
 The people matriculated on their own, eager to do something other than sulking in that paralysis stage of grief.
-
-"Setre, we need to talk," said Pomri, approaching.
-
-I let go of my nather's hand and gave her space to talk, but remained within earshot of the conversation.
-
-"They just wiped our home off the map, and you want people to go fishing?", Pomri asked, incredulous, "We should go back. Look for survivors, recover our history."
-
-She heard Pomri, and wanted to believe her, but she knew the power of the weapon that had been used on Heiko. How unlikely it would have been that anything recognizable would remain. But she couldn't say that to Pomri as much as she wanted to.
-
-"No. It's too dangerous. The Holragi may have returned."
-
-"Why would they do that? There's nothing left behind."
-
-"Their methods are unpredictable. Sometimes they do things to throw you off and catch you when you are most vulnerable."
 
 <!-- Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back -->
