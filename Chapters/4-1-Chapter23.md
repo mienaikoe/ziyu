@@ -54,6 +54,15 @@ She heard Pomri, and wanted to believe her, but she knew the power of the weapon
 
 Setre let out a sigh, seeing that she wouldn't be able to convince her that easily.
 
+"Look," Pomri said, "Maybe it's not high on your list of priorities right now, but this is for closure. We need to be able to say that we did all we could in the aftermath."
+
+"You know what I'm going to say. And now, while I can't stop you, you would need a ship, which I'm not like to provide."
+
+Pomri cursed the wind and turned away, looking at nothing in particular.
+
+"Let's give our people some rest for a time. They've been through a lot."
+
+"Do you think any of us can rest at a time like this? Every moment I sit here doing nothing is wasted wondering for whom this moment is their last."
 
 
 
