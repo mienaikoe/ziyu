@@ -2,7 +2,7 @@
 
 "Liffa!"
 
-I stood in the darkness with the snow falling on a Ziyu that rose tall above the ongoing reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of it
+I stood in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the ongoing reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of its urgency.
 
 "Liffa!" I screamed hysterically into the microphone, but I knew that thi could not hear me across such a distance. Holrag had undoubtedly given up on hae, but I couldn't do that.
 
@@ -56,31 +56,29 @@ Setre let out a sigh, seeing that she wouldn't be able to convince her that easi
 
 "Look," Pomri said, "Maybe it's not high on your list of priorities right now, but this is for closure. We need to be able to say that we did all we could in the aftermath."
 
-"You know what I'm going to say. And now, while I can't stop you, you would need a ship, which I'm not like to provide."
+"You already know what I'm going to say."
 
 Pomri cursed the wind and turned away, looking at nothing in particular.
 
-"Let's give our people some rest for a time. They've been through a lot."
+Melna tried persuasion, "Let's give our people some rest for a time. "They've been through a lot."
 
-"Do you think any of us can rest at a time like this? Every moment I sit here doing nothing is wasted wondering for whom this moment is their last."
+"Do you think any of us can rest at a time like this? Every idle moment could be a life saved from the rubble–"
 
+"Or a life lost chasing the dead."
 
+"I would be honored to give my life for one of my countrymen."
 
+They stared at each other intensely, knowing they were not likely to reach an agreement. But Setre had control of the ships of Ulukoma, and there was no way she was lending one for a suicide mission.
 
-"Their methods are unpredictable. Sometimes they do things to confuse you. Catch you when you are most vulnerable."
+"We. Stay. Here. Understand?"
 
-"
+Pomri leaned back without breaking eye contact and looked at Setre sardonically.
 
+"Yea. I get it," she said without warmth. And without hesitation, she walked away and sat back down with a group that had kept space for her beside a fire. I jolted to walk with her, but my nather held me back, saying "Don't follow her, Linyu. Her judgment is clouded by anger." But I knew Pomri, had seen her act and heard her think. I knew that her judgment was not clouded, but could do nothing to change my nather's mind.
 
+"Linyu, I need your help," she stooped down and held my head a bit. "Sit on that branch while I speak to the group and watch how people react to what I say."
 
-
-
-
-
-
-
-
-She stood upon the lip of the basin and took my hand into hers. The crowd, thousands strong, spared no time in quieting down to listen to what she had to say.
+I nodded in approval, taking up post in my usualy crevasse during talks. She stood upon the lip of the basin and took my hand into hers. The crowd, thousands strong, spared no time in quieting down to listen to what she had to say.
 
 "Alright everyone, it's time we explained to you what's happening."
 
@@ -113,5 +111,7 @@ They nodded in affirmation.
 "Kelpers!," called Senri, walking in the opposite direction.
 
 The people matriculated on their own, eager to do something other than sulking in that paralysis stage of grief.
+
+*This would be an excellent time to find Pomri.*
 
 <!-- Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back -->
