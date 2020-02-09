@@ -96,22 +96,21 @@ My eyes found Pomri standing near a tree. I peered into her eyes and I could see
 
 Her voice broke a little but she maintained herself. I squeezed her hand a little harder and she squeezed back.
 
-She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal. You can live out the rest of your days here, fishing, kelping, rebuilding, leaving a legacy to the survivors of the obscura. But to get to that point, we need to take it a day at a time. Right now, we need to figure out how to feed everyone."
+She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal. You can live out the rest of your days here, fishing, kelping, rebuilding, leaving a legacy to the survivors of the obscura. But to get to that point, we need to take things a day at a time. Right now, we need to figure out how to feed everyone and rebuild shelter from the snow."
 
-She pointed to a group of Ulukomans near her, focusing on a man and a maman.
+She pointed to a group of Ulukomans near her, focusing on a man and a maman, both of them fit enough to hold .
 
-"Kinsho and Senri, could you assemble two crews for this?"
+"Kinsho will lead the fishers. Senri, the kelpers. If you are a constructor, come to me."
 
-They nodded in affirmation.
+Kinsho and Senri nodded together in affirmation.
 
 "Okay. Let's not waste any time then. Go!"
 
-"Fishers, over here! Fishers!" Kinsho called out as he moved just outside of the circle of fires.
+"Fishers!" Kinsho called out with a booming voice, and hundreds rose to meet him.
 
-"Kelpers!," called Senri, walking in the opposite direction.
+"Kelpers with me! Kelpers!" called Senri with a higher pitch, but just as loud. They walked in opposite directions, drawing eager people away from their grief, their paralysis, leaving only the doctors and the infirm. Pomri and a few from her group stayed with the doctors, helping wherever she could.
 
-The people matriculated on their own, eager to do something other than sulking in that paralysis stage of grief.
+My nather's hand pulled me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoans had joined her group of Ulukoman builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built, and it reminded me that some may have survived the bombardment.
 
-*This would be an excellent time to find Pomri.*
 
 <!-- Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back -->
