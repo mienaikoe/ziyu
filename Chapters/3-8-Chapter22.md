@@ -122,7 +122,7 @@ A soldier came up to Fajro and said, "Sir, we are ready for the broadcast."
 
 "Yes," he said, adjusting his coat impatiently. "Yes, let's begin."
 
-He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She was with another woman, quite strong and dressed in kelp clothing. Melna couldn't help but wonder if she was the person that mysterious boy in Rudjan told her about. They both accepted listeners from a solider and settled into a pocket of the crowd near the center, never taking their eyes off of Melna even as Fajro began.
+He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She settled into a pocket of the crowd near the center, never taking her eyes off of Melna even as Fajro began.
 
 "Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
 
@@ -148,7 +148,7 @@ She began.
 
 "Friends. Heikoans. Pangum of Palinan."
 
-She watched as Pomri and the woman both split up into the crowd, slowly passing through the crowd with no apparent destination. They were up to something, and she felt like she might know what.
+She watched as Pomri permeated the crowd, slowly passing through with no apparent destination. She was up to something, and Melna became more confident about her plan.
 
 " There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little we have of this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through reasoning and diplomacy, we achieved a lasting peace. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather take everything that we have. But I want you all to remember this. We will not back down. No matter the circumstances. We will survive this together."
 

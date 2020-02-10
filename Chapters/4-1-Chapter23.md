@@ -50,7 +50,7 @@ She heard Pomri, and wanted to believe her, but she knew the power of the weapon
 
 "They will not stop, Pomri. Not until everyone is under their thumb."
 
-"Then let us prick the thumb until there is no more blood to spill."
+"Then let us prick their thumbs," she said with nearly a smile, "until there is no more blood to spill."
 
 Setre let out a sigh, seeing that she wouldn't be able to convince her that easily.
 
@@ -66,15 +66,15 @@ Melna tried persuasion, "Let's give our people some rest for a time. "They've be
 
 "Or a life lost chasing the dead."
 
-"I would be honored to give my life for one of my countrymen."
+"If even one is alive, it will have been worth it."
 
-They stared at each other intensely, knowing they were not likely to reach an agreement. But Setre had control of the ships of Ulukoma, and there was no way she was lending one for a suicide mission.
+They stared at each other intensely, knowing they were not likely to reach an agreement. But Setre had authority with the shipkeepers of Ulukoma, and she would never send them on a suicide mission.
 
-"We. Stay. Here. Understand?"
+Setre spoke with gravity, as if to lay a blanket upon the conversation, "We're staying here."
 
 Pomri leaned back without breaking eye contact and looked at Setre sardonically.
 
-"Yea. I get it," she said without warmth. And without hesitation, she walked away and sat back down with a group that had kept space for her beside a fire. I jolted to walk with her, but my nather held me back, saying "Don't follow her, Linyu. Her judgment is clouded by anger." But I knew Pomri, had seen her act and heard her think. I knew that her judgment was not clouded, but could do nothing to change my nather's mind.
+"I understand," she said coldly. And without hesitation, she walked away and sat back down with a group that had kept space for her beside a fire. I jolted forward to walk with her, but my nather held me back, saying "Don't follow her, Linyu. Her judgment is clouded by anger." But I knew Pomri, had seen her act and heard her think. I knew that her judgment was not clouded, but could do nothing to change my nather's mind.
 
 "Linyu, I need your help," she stooped down and held my head a bit. "Sit on that branch while I speak to the group and watch how people react to what I say."
 
@@ -90,7 +90,7 @@ Her eyes darted across the area in an awkward silence, trying to think of what t
 
 "I probably don't need to tell you that everything you knew is likely gone. This was not an accident. A man named Fajro has been consolidating the world's navies and engineers. And this was their first move: a coordinated assault by sky and by land meant to force your people into submitting to slavery. Consider yourselves lucky to have a leader as clever and selfless as Melna."
 
-My eyes found Pomri standing near a tree. I peered into her eyes and I could see the fires casting glintlights off the water forming on her eyes. Her expression fell into that constellation, fervid and tenacious, taking Setre's words and purifying them in the blinding light raging within her.
+My eyes found Pomri's and peered into them. The fire before her cast glintlights off the water forming on her eyes. Her expression fell into that constellation, fervid and tenacious, taking Setre's words and purifying them in the blinding rage within her.
 
 "This is not the first time the engineers of Holrag have waged war in the name of ambition. Many tribes of Holrag faced the same decision many Ka'to ago. Those who resisted-"
 
@@ -110,7 +110,42 @@ Kinsho and Senri nodded together in affirmation.
 
 "Kelpers with me! Kelpers!" called Senri with a higher pitch, but just as loud. They walked in opposite directions, drawing eager people away from their grief, their paralysis, leaving only the doctors and the infirm. Pomri and a few from her group stayed with the doctors, helping wherever she could.
 
-My nather's hand pulled me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoans had joined her group of Ulukoman builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built, and it reminded me that some may have survived the bombardment.
+My nather's hand led me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoans had joined her group of Ulukoman builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built. My mind wandered to Melna, seeing her and Fajro fall into the water. Of my nather keeping her ship a safe distance away while Pomri fought off solider after soldier on the shoreline, trying to get to Melna, but being pushed into the water instead.
 
+"This is all we have?" she asked the group.
+
+"Yes ma'am," said a maman. Thi had shell-shocked eyes and was shivering slightly in the cold. "The engineers are bound to protect the city. We are just apprentices."
+
+Melna looked frustrated. *What a ridiculous law*, she could have thought.
+
+"Very well. What do you know how to do?"
+
+"We can quarter saw. Salt seal."
+
+"Trussing? Joints? Crane Pulleys?"
+
+All in the group hesitated, and Melna grew more frustrated. This was basic work in Holrag, they should know this by now.
+
+"Okay. Come with me."
+
+She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
+
+Pomri was applying kanosin, begrudgingly but as instructed by a woman who seemed familiar with treating the wounded.
+
+"Setre's kaln, I reckon," she greeted me as I approached. "I'm Fanla."
+
+"You know what you're doing."
+
+"A good man taught me for only a short while, but I've had a lot of practice over the past few days."
+
+"Kipnu," I responded.
+
+"Y-Yes," she was surprised.
+
+Her eyes looked closer at me for some sort of answer, and saw my eager face.
+
+"Would you like to help?"
+
+I nodded.
 
 <!-- Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back -->
