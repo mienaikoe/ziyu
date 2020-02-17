@@ -152,7 +152,7 @@ She shifted herself without standing, making way for me to crouch beside her. Sh
 
 "Hold hae body like this so I can make the injection. Steady now."
 
-The needle was as thick as the wires I used for listeners, but the tip was precisely machined. Shaki metalworking, if I'd ever seen it. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the glowing blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of the kanosin were pushed into hae hydroderm where they spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
+The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized blue. Shaki titanium working, if I'd ever seen it. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the glowing blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of the kanosin were pushed into hae hydroderm where they spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
 
 "You've... done this before?"
 
@@ -162,9 +162,9 @@ I gently laid the maman back down and took up the syringe for rinsing and sanita
 
 "What is this drug we're giving them?"
 
-"Kanosin," I said, slowly rinsing the syringe in a basin of ocean water.
+"Kanosin," I said, slowly rinsing the syringe in a basin of ocean water. I pulled the plunger out to fill it and pushed it again to empty.
 
-"Why are you using a narcotic to treat injuries and hypoxia?"
+"Why are you using a narcotic on injuries and hypoxia?"
 
 "Because it works."
 
@@ -172,15 +172,16 @@ I gently laid the maman back down and took up the syringe for rinsing and sanita
 
 "I stopped the rinsing and walked a few paces to fetch a long monobodied forcep. I placed the syringe into the end and immersed it into the fire. I didn't speak. My mother had taught me to be discerning about who I told; only those those who would use the knowledge well and accept its impossible truth deserved to know. Pomri would only accept what she saw herself.
 
-"We don't know," I said. A practiced lie.
+"I don't know," I said. A practiced lie, but a good one.
 
-"
+I removed the syringe from the fire and looked closely at the tip. A film of char covered it, showing that it had been sanitized. I searched for the basket of syringes I had seen before and spotted it near to an old guardian of Lissa's who was tending to a famished skeleton of a pangum. But before I could move, Pomri took up my free hand and wrapped her own around it.
 
+"Come to Heiko with me," she pleaded under her breath.
 
+I glowered at her, at the ease with which she went behind my nather's back. But she saw that I was old enough to have my own thoughts, knew that I needed closure just as much as she did: a closure that Setre could not be persuaded to allow.
 
-<!--
-Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back to Heiko.
+"Mid-day's nap. Find me on the beach where the we landed."
 
+She nodded, holding back a smile. *Why did I say that?!*, I thought. But I didn't stop myself. I was not bound by regret, only worry for my nather.
 
-
--->
+Pomri returned to the maman she was monitoring to take hae vitals and ensure thi was warm. With a quick twist, I secured a cover onto the syringe and left it in the basket with the others. Guilt overshadowed my thoughts and drew my eyes toward the pavilion. She impatiently moved about the group, teaching people how to construct a truss from tarred wooden posts. For a moment I let her fire into me, felt it clean my guilt away. Our paths may diverge, but I remembered that we had the same goal: to outlast the obscura in suspension.
