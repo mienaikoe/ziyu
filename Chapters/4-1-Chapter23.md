@@ -130,7 +130,7 @@ All in the group hesitated, and Melna grew more frustrated. This was basic work 
 
 She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
 
-Pomri was applying kanosin, begrudgingly but as instructed by a woman who seemed familiar with treating the wounded.
+Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly  hesitant but an older Ulukoman maman assured her that the drug would work.
 
 "Setre's kaln, I reckon," she greeted me as I approached. "I'm Fanla."
 
@@ -148,4 +148,39 @@ Her eyes looked closer at me for some sort of answer, and saw my eager face.
 
 I nodded.
 
-<!-- Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back -->
+She shifted herself without standing, making way for me to crouch beside her. She took my hand and held it steady against the back of the maman.
+
+"Hold hae body like this so I can make the injection. Steady now."
+
+The needle was as thick as the wires I used for listeners, but the tip was precisely machined. Shaki metalworking, if I'd ever seen it. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the glowing blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of the kanosin were pushed into hae hydroderm where they spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
+
+"You've... done this before?"
+
+"Yes," I said coldly. Pomri understood my tone.
+
+I gently laid the maman back down and took up the syringe for rinsing and sanitation near the fire. Pomri followed me as I moved.
+
+"What is this drug we're giving them?"
+
+"Kanosin," I said, slowly rinsing the syringe in a basin of ocean water.
+
+"Why are you using a narcotic to treat injuries and hypoxia?"
+
+"Because it works."
+
+"Yes, but how?" she implored.
+
+"I stopped the rinsing and walked a few paces to fetch a long monobodied forcep. I placed the syringe into the end and immersed it into the fire. I didn't speak. My mother had taught me to be discerning about who I told; only those those who would use the knowledge well and accept its impossible truth deserved to know. Pomri would only accept what she saw herself.
+
+"We don't know," I said. A practiced lie.
+
+"
+
+
+
+<!--
+Linyu gets this idea planted in hae head, and sneaks away with Pomri to go back to Heiko.
+
+
+
+-->
