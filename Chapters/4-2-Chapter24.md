@@ -28,8 +28,22 @@ They are driven into the desert
 
   "That's what we're here for isn't it?"
 
-  I was silent in agreement.
+  My silence spoke in agreement. 
+  
+  After the shoreline of Ulukoma was barely visible, Pomri called for a break and I happily took my paddle into the boat. Soreness had crept into my arms and taken my breath while Pomri seemed hardly winded.
 
+  "You ought to be stronger than me," she said, taking a drink from her canteen, "I'm nearly your nather's age."
 
+  I finished catching my breath and my words and responded, I've never had great stamina."
+
+  "Spend too much time playing with those listeners, eh?"
+
+  I was annoyed by Pomri's humor, but didn't take it seriously. She meant well.
+
+  My eyes caught glimpse of the horizon to our right, with Rudjan and Yansha to the north, and no real sign of civilization anywhere else.
+
+  "We're just outside of Heiko now, right?"
+
+  "Yes," she said, handing her canteen to me, "We've gone pretty far south, but I think this is far enough. We can turn toward the land here."
 
 
