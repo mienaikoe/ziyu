@@ -36,13 +36,31 @@ They are driven into the desert
 
   I finished catching my breath and my words and responded, I've never had great stamina."
 
-  "Spend too much time playing with those listeners, eh?"
+  "Spend too much time with your wires."
 
-  I was annoyed by Pomri's humor, but didn't take it seriously. She meant well.
+  I was annoyed but didn't take it seriously. She meant well.
 
-  My eyes caught glimpse of the horizon to our right, with Rudjan and Yansha to the north, and no real sign of civilization anywhere else.
+  My eyes wandered off toward the horizon to our right. There were faint signs of life in the distance, the ten thousand lantern boats of Rudjan calling before Ara, and nothing but shadows in twilight to the south. 
 
-  "We're just outside of Heiko now, right?"
+  "It's so dark," I said, looking for an answer.
+
+  She paused to let the reality of it sink in. 
+
+  "When I–," her voice cracked.
+
+  "When I heard the boom... All I could think of was Melna. No one else mattered to me...in that moment."
+
+  *What is she saying?*
+
+  "Love is weird," I said, trying to break the awkward topic.
+
+  "And now she's gone."
+
+  "We don't know that. We're here to find out."
+
+  "Right..." her words drifted, "Right."
+
+  
 
   "Yes," she said, handing her canteen to me, "We've gone pretty far south, but I think this is far enough. We can turn toward the land here."
 
