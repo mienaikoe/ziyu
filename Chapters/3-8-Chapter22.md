@@ -194,6 +194,6 @@ The soldiers were recovering his body when she last saw his lifeless face starin
 
 She smiled.
 
-Just before she drifted off, she whispered a silent benediction to the people she had never met who shed their fears and risked their lives to save a people they did not know. In her fading consciousness, she felt Kipnu's warm presence wrap around her and through her as the last thought in her mind transpired into the wind.
+Just before drifting off, she whispered a silent benediction to the people she had never met who shed their fears and risked their lives to save a people they did not know. In her fading consciousness, she felt Kipnu's warm presence wrap around her and through her as the last thought in her mind transpired into the wind.
 
-"Lovely day."
+"Good morning. Liffa."
