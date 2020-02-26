@@ -29,7 +29,7 @@ They are driven into the desert
   "That's what we're here for isn't it?"
 
   I let my silence agree.
-  
+
   There was a certain guilt I carried onto the boat, made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I paddled until I saw nothing but the ocean, and called out for a break. Pomri obliged and I happily took my paddle into the boat. I do not know if it was soreness or worry that crept into my arms and took my strength but it clung to me like dew or mist and frothed as I struggled in its viscosity.
 
   "You ought to be stronger than me," she said, hardly winded, "I'm nearly your nather's age."
@@ -40,11 +40,11 @@ They are driven into the desert
 
   I was annoyed but I didn't take it seriously. She meant well.
 
-  My eyes wandered off toward the horizon to our right. There were faint signs of life in the distance, the ten thousand lantern boats of Rudjan calling before Ara, and nothing but a towering shadow, hanging still in the twilight above where Heiko center should be. 
+  My eyes wandered off toward the horizon to our right. There were faint signs of life in the distance, the ten thousand lantern boats of Rudjan calling before Ara, and nothing but a towering shadow, hanging still in the twilight above where Heiko center should be.
 
   "It's so dark," I said, looking for an answer.
 
-  She paused to absorb the reality of the shadow 
+  She paused to absorb the reality of the shadow
 
   "When I–," her voice cracked.
 
@@ -52,19 +52,27 @@ They are driven into the desert
 
   *What is she saying?*
 
-  "Love is weird," I said, trying to break the mood.
+  "Love is weird like that," I said, trying to break the mood.
 
-  But she sustained, "And now she's gone."
+  But she sustained it, "Love. There were times where," she exhaled as if to simper, remembering something, "I dare say it came to that."
 
-  "We don't know that. We're here to find out what happened."
+  I placed my hand on her back, letting her fix time for a moment of solace. I added no more ponderance than deserved it.
 
-  "Right..." her words drifted, "Right."
+  "Love is why we're out here in the cold, plunging our hands amongst the waves. To give closure to the ones that stayed behind. To the ones who didn't get to say goodbye."
 
-  She handed her canteen to me, said "We've gone pretty far south, but I think this is far enough. We don't want to get caught by some Holragi troop that stuck behind at the harbor. We can turn toward Ara here, find our landing somewhere north of the city."
+  "Right..." her words drifted and made room for calm, "Right."
 
-  Ara. It seemed so simple before to use it for direction. I wondered how we would find our orientation if Ara was completely shrouded. Would the waves still swell, and the wind still gust? Maybe orientation wouldn't matter in the dark.
+  She removed her canteen and handed it to me, and I took it eagerly.
 
-  "Linyu," she tapped my shoulder to wake me from my daydream. "I need you to stay alert from this point on, okay? We're entering a dangerous place. There may be looters or Holragi soldiers searching for survivors. The land itself may be fragile and broken. You'll have to keep your wits about you at all times."
+  "We've gone pretty far south," she said, "but I think this is far enough. We don't want to get caught by some Holragi troop headed for the epicenter. If we turn toward Ara here, we can find our landing somewhere north of the city."
+
+  Ara. I didn't give it much thought before; it was a clock, a direction, a fixture in the background. But now every one of its last rays had become precious warmth. I wondered how we would find our orientation after Ara was completely shrouded. Would the waves still swell, and the wind still gust? Maybe orientation wouldn't matter in the dark.
+
+  "Linyu," she tapped my shoulder to wake me from my daydream. "Shall we go?"
+
+  I nodded and she turned back forward to resume her posture.
+
+  She told me over her shoulder, "we're entering a dangerous place. There may be looters or Holragi soldiers searching for survivors. The land itself may be fragile and broken. You'll have to keep your wits about you at all times."
 
   "Got it," I said. *I hope I do.*
 
@@ -77,5 +85,3 @@ They are driven into the desert
   With a nod, my resolve was affirmed. We've put a lot at risk for one reason and we weren't about to turn back for nothing.
 
   With a firm command, we took up our paddles again and resumed the slow cadence of pushing through the water.
-
-
