@@ -18,47 +18,55 @@ Holragi is digging shelter in Heiko, because they need shelter from the coming n
 They are driven into the desert
  -->
 
-  "Are you afraid?"
+  "Are you worried?"
 
-  "No," she said. Her breathing was broken up by gentle strokes of a two-sided paddle. I tried my best to add my effort behind her, but Pomri's height and strength eclipsed my own. With each of her strokes I could feel the boat inch ahead and new wind fill my lungs. The ocean reminded me of Kipnu, and then of Melna.
+  "No," she said. Her breaths were punctuated by gentle strokes of a two-sided paddle. I tried my best to add my effort behind her, but Pomri's height and strength eclipsed my own. With each of her strokes I could feel the boat inch ahead and new air fill my lungs.
 
   "What if we find her?"
 
-  Pomri paused, distracted by the pain of the thought.
+  Pomri paused, distracted.
 
   "That's what we're here for isn't it?"
 
   I let my silence agree.
 
-  There was a certain guilt I carried onto the boat, made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I paddled until I saw nothing but the ocean, and called out for a break. Pomri obliged and I happily took my paddle into the boat. I do not know if it was soreness or worry that crept into my arms and took my strength but it clung to me like dew or mist and frothed as I struggled in its viscosity.
+  There was a guilt I carried onto the boat, made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather, but the waves made me miss that home.
+
+  Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale frightened faces, the water covering them just so. And at once I was among them in that viscous ether-ocean, bubbles and froth tickling my skin, my body unmoving and my eyes locked into that same vacant stare.
+
+  "Oy! Kaln! Are you paddling?"
+
+  "Sorry," I said hurriedly, and snapped out of my trance.
+
+  We paddled until a sliver of the remaining light of Ara peeked through the horizon, then Pomri called for a break and I happily took my paddle into the boat.
 
   "You ought to be stronger than me," she said, hardly winded, "I'm nearly your nather's age."
 
-  I finished catching my breath and responded, "I've never had great stamina."
+  I finished catching my wits and responded, "I've never had great stamina."
 
   "Spend too much time with those wires."
 
   I was annoyed but I didn't take it seriously. She meant well.
 
-  My eyes wandered off toward the horizon to our right. There were faint signs of life in the distance, the ten thousand lantern boats of Rudjan calling before Ara, and nothing but a towering shadow, hanging still in the twilight above where Heiko center should be.
+  My eyes wandered off toward the horizon to our right. There were faint signs of life in the distance, the ten thousand lantern boats of Rudjan calling to the north. And to the south, a towering shadow, darker than the dusk that hung everywhere else, hanging still in the twilight above where Heiko center should be.
 
   "It's so dark," I said, looking for an answer.
 
-  She paused to absorb the reality of the shadow
+  She paused to absorb the reality that came with that cloud.
 
   "When I–," her voice cracked.
 
-  "When I heard the boom... All I could think of was Melna. No one else mattered to me...in that moment."
+  "When I heard the boom... All I could think of... was Melna. Nothing else... Nothing else mattered to me in that moment."
 
   *What is she saying?*
 
   "Love is weird like that," I said, trying to break the mood.
 
-  But she sustained it, "Love. There were times where," she exhaled as if to simper, remembering something, "I dare say it came to that."
+  But she sustained it, "Love. There were times where," she exhaled as if to simper, remembering something, "It must have come to that."
 
   I placed my hand on her back, letting her fix time for a moment of solace. I added no more ponderance than deserved it.
 
-  "Love is why we're out here in the cold, plunging our hands amongst the waves. To give closure to the ones that stayed behind. To the ones who didn't get to say goodbye."
+  "Love is why we're out here in the cold. To give closure to the ones that stayed behind. To the ones who didn't get to say goodbye."
 
   "Right..." her words drifted and made room for calm, "Right."
 
@@ -82,6 +90,22 @@ They are driven into the desert
 
   "Push through if you can. The time we have to rescue people is wearing thin."
 
-  With a nod, my resolve was affirmed. We've put a lot at risk for one reason and we weren't about to turn back for nothing.
+  My resolve was affirmed with a nod. There was no turning back.
 
-  With a firm command, we took up our paddles again and resumed the slow cadence of pushing through the water.
+  A firm command from Pomri, and we took up our paddles again, resuming the slow cadence of wood against the water.
+
+
+-------
+
+
+  "I hear waves hitting land. Over there."
+
+  She pointed to the right with her nose, and I paused to listen closer. *Resonance.*
+
+  "A cove," I said, to her surprise, "Maybe we can find cover for our boat."
+
+  Pomri stopped paddling and looked back at me. "How could you possibly?.." She asked with a quizzical look.
+
+  But she didn't wait for me to respond, just shook her head in disbelief, and then resumed her paddling. I wasn't sure how to feel about it.
+
+  <!-- They find Ginnu/not-Ginnu in the cove -->
