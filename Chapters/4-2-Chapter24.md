@@ -18,71 +18,23 @@ Holragi is digging shelter in Heiko, because they need shelter from the coming n
 They are driven into the desert
  -->
 
-"Who is this?" I stammered with cloudy breaths at two figures in the distance. One was Pomri, by her walk, but the other seemed unfamiliar.
-
-"Thimlu's the name," he said.
-
-Pomri stepped into my recognition and I gave her a cold look of distrust, but she deflected it and brought me her smile, one that told of a plan.
-
-I asked Thimlu suspiciously, "Why do you want to come with us? There is danger ahead."
-
-"If a kaln can..."
-
-He caught himself before the scowl on my face had fully developed.
-
-"I know... that great danger lies ahead," he said hesitantly. "The truth is that I have some unfinished business at the observatory that–"
-
-"The observatory?"
-
-"Yes, w–"
-
-"You're an observer?"
-
-"...Indeed, yo–"
-
-"You did nothing to prepare them," I lunged to grab him, "You knew the trajectories, you knew what was headed for them, but you did nothing!"
-
-"Enough!" Pomri pushed me away from the cowering observer.
-
-"The data...," he tried to recover his words, tossed about him, "I-I wanted to be sure-"
-
-"Linyu," Pomri stopped him with an arm. "Thimlu is a loyal servant of Heiko. He did his best with what he had."
-
-He looked at me with guilt in his eyes, as if he was already acutely aware of his error. But I needed him to know where I stood.
-
-"There are good decisions and bad decisions," I said, "But indecision is worse than both. My mother taught me that before she died."
-
-I turned to Pomri and said, "He cannot come with us."
-
-"Linyu-" she interjected, but he stammered out a plea.
-
-"P-Please. I must go back to the observatory at all costs."
-
-"Why? What's so important that you have to risk our lives to get there?"
-
-He glanced at Pomri who waved her hand for him to say his peace.
-
-"I know what the obscura are doing. But we need to know when."
-
--------
-
-"Are you worried?" he asked.
+"Are you worried?"
 
 "No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. Behind the both of them I added my effort, trying to keep up with Pomri, but her height and strength eclipsed my own.
 
-"What if we find her?" he pressed the question.
+"What if we find her?"
 
 Pomri paused, distracted.
 
 "That's what we're here for isn't it?"
 
-His silence agreed.
+My silence agreed.
 
-There was a certainly guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
+There was a certain guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
 
 Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale frightened faces, the water covering them just so. And at once I was among them in that viscous ether-ocean, bubbles and froth tickling my skin, my body unmoving and my eyes locked into that same vacant stare.
 
-"Oy! Kaln! Are you paddling?" she asked me.
+"Oi! Kaln! Are you paddling?" she asked me.
 
 "Sorry," I said hurriedly, and snapped out of my trance.
 
@@ -146,11 +98,11 @@ A firm command from Pomri, and we took up our paddles again, resuming the slow c
 -------
 
 
-"I hear waves hitting land," said Thimlu, "Over there."
+"Waves," I said, "Coming ashore. Over there."
 
-He pointed to the right with his nose, and I paused to listen closer. *Resonance.*
+I pointed to the right just in Pomri's view, and she paused to listen closer. *Resonance.*
 
-"A cove," I said, to their surprise, "Maybe we can find cover for our boat."
+"A cove," I said, to her surprise, "Maybe we can find cover for our boat."
 
 Pomri asked out loud, "How could you possibly?.."
 
@@ -158,7 +110,8 @@ But she didn't wait for me to respond, just shook her head in disbelief, and res
 
 
 <!--
-They find Ginnu/not-Ginnu in the cove. She shows them Melna's and Kipnu's pendants as a token of trust.
+They find Ginnu/not-Ginnu in the cove.
+She shows them Melna's and Kipnu's pendants as a token of trust.
 -->
 
 
