@@ -180,7 +180,7 @@ I removed the syringe from the fire and looked closely at the tip. A film of cha
 
 I glowered at her, at the ease with which she went behind my nather's back. But she saw that I was old enough to have my own thoughts, knew that I needed closure just as much as she did: a closure that Setre could not be persuaded to allow.
 
-"Mid-day's nap. Find me on the beach where the we landed."
+"Mid-day's nap. Find me on the beach where we landed."
 
 She nodded, holding back a smile. *Why did I say that?!*, I thought. But I didn't stop myself. I was not bound by regret, only worry for my nather.
 
