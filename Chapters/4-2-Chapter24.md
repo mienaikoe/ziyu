@@ -32,19 +32,19 @@ My silence agreed.
 
 There was a certain guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
 
-Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale frightened faces, the water covering them just so. And at once I was among them in that viscous ether-ocean, bubbles and froth tickling my skin, my body unmoving and my eyes locked into that same vacant stare.
+Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale frightened faces, the water covering them just so. And at once I was among them in that viscous ether-ocean with the bubbles and froth tickling my skin, my body unmoving and my eyes locked into that same vacant stare.
 
-"Oi! Kaln! Are you paddling?" she asked me.
+"Oi! Kaln! You paddling or napping?" she asked me.
 
 "Sorry," I said hurriedly, and snapped out of my trance.
 
 We paddled until a sliver of the remaining light of Ara peeked through the horizon, then Pomri called for a break and we happily took our paddles into the boat.
 
-"You ought to be stronger than me," she said to me, hardly winded, "I'm nearly your nather's age."
+"You ought to be stronger than me," she said to me, hardly winded, "kaln like you has unlimited energy."
 
-I finished catching my breath and responded, "I'm still not tall enough."
+I finished catching my breath and responded, "I'm not tall enough."
 
-"Bah barely an arm between us," she balked, "Spend too much time with those wires, 's what I think"
+"Bah barely an arm between us," she balked, "You spend too much time with those wires, 's what I think"
 
 I was annoyed but I didn't take it seriously. She meant well.
 
@@ -98,15 +98,64 @@ A firm command from Pomri, and we took up our paddles again, resuming the slow c
 -------
 
 
-"Waves," I said, "Coming ashore. Over there."
+"Waves," I said, "Hitting land. Over there."
 
 I pointed to the right just in Pomri's view, and she paused to listen closer. *Resonance.*
 
-"A cove," I said, to her surprise, "Maybe we can find cover for our boat."
+"A cove," I said, to her surprise, "We can find cover for our boat."
 
 Pomri asked out loud, "How could you possibly?.."
 
 But she didn't wait for me to respond, just shook her head in disbelief, and resumed her paddling.
+
+The opening of the cove was wide and tall enough for a whole freighter. It opened to the ocean like the mouth of a colossus slowly swallowing us whole. It sent a shudder through me and my arms grew weak, but Pomri stilled me. "Aey-Aey," she said confidently, and my muscles responded with the last reserves of their strength. We had gone just a few tens of paces in and the water had died down, and now Pomri began to reach with her paddle to find land in any direction. I followed her lead despite my shortness, but neither of us had found anything.
+
+"Oi, let's head toward the wall to the left," she said, "This place is big."
+
+We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a pebble jetty with a loud *shhhh-ch*, and stopped abruptly. Pomri wasted no time.
+
+"Let's go," she said, already off the boat, and I instinctively clambered to the front, trying to keep my balance.
+
+"Aye. I'm coming," I said.
+
+Before I could set foot on the ground, I heard a call echoing from a position both near and far, "Hello?". I stopped in my tracks, and tried to find the source of the sound. Pomri was equally startled and moved closer to hold my hand.
+
+"Who's there?!" she asked.
+
+*That voice...*
+
+At the edge of the outside light, I could see two giant silhouettes of saffas. *The noise is coming from there, but...*
+
+I shouted, "Stay back! We are armed."
+
+In front of the silhouettes, another noise echoed off the walls of the cove. This time it was a familiar tinkling sound: a sound that had become an annoyance through the journey to Rudjan, but stuck so heavily in my mind. Then, suddenly, the saffas made a series of loud "Woop!" sounds, and rushed past the maman toward us.
+
+Thi said, "Laen! Wait!"
+
+Pomri stood her ground in front of me, but softened once she put the name and the sound together. We were greeted by a pair of big fuzzy faces and the air of stale fish.
+
+"Laen-Laen!" I cried and wrapped my arms halfway around his neck. I was elated to have my friend back. Pomri embraced with Boon, and whispered quietly to her, but then moved forward to confront the maman.
+
+"Thank you for keeping our saffas safe. Who are you?"
+
+The maman walked closer to us and answered,
+
+"The maman that came before me was named Ginnu."
+
+I interjected, excitedly, "Ginnu? Came before? But you..."
+
+"I am *Annui*, without a name."
+
+"How did you come to have Melna's pendant, Annui?" asked Pomri.
+
+Thi gasped, "You know Melna?"
+
+We shared a moment of silence, realizing that we ought to regroup in the light.
+
+
+
+
+
 
 
 <!--

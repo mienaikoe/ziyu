@@ -44,7 +44,7 @@ If they get into Rudjan
 
   "Oh, pardon my manners," she said facetiously, "Perhaps you'd like to be thrown off the bridge first."
 
-  "Perhaps you'd like this spear down your throat."
+  "Perhaps you'd like this spear down your throat, ya cheeky cunt."
 
   Melna glanced to the side and whispered, "Pomri, what's this about?"
 
@@ -60,9 +60,9 @@ If they get into Rudjan
 
   Melna paused, trying to understand such a ridiculous requirement. *A password? Since when was there a password to enter Rudjan?*. She thought deeply for a long and awkward moment, pondering what the password could be, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then boisterous laughing from the two.
 
-  Pomri exclaimed, "A password?! Really, Melna?"
+  Pomri exclaimed, "Oi! A password what fooled you, Melna?!"
 
-  Bavle joined her, "Is your fidelant honestly so dull?"
+  Bavle joined her, "Are all your fidelants so dull?"
 
   Melna was unamused at being the brunt of a joke, not to mention the waste of precious time, but she took whatever humor they could afford.
 
@@ -116,7 +116,7 @@ If they get into Rudjan
 
   She approached a row of merchants selling a myriad of items from the sea or the wetlands.
 
-  One called out to her, "Aye aren't you a beauty. Girl like you could use a pearl or two."  
+  One called out to her, "Aye aren't you a beauty. Girl like you could use a pearl or two."
 
   If she were just a few Na'to younger, she might have taken a second look for a pearl, yet she knew that she was well old enough not to be called a girl, and just young enough to indulge in empty compliments without getting tied down by their real intentions.
 

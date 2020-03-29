@@ -26,9 +26,9 @@ Setting:
 
   Lin was silent on the walk home. Kip was walking next to hae, trying in vain to think of comforting things to say, but he held hae hand in the hopes that it would provide some comfort. He tried to meet the people in the group, but there were too many altogether.
 
-  "Kipnu," a woman called to him.
+  "Kipnu," a maman called to him.
 
-  It was the young woman who had begged Ramne to stop, her black robes still drenched and her arms folded around her to keep warm. He looked back at her, and slowed to match her pace.
+  It was the young maman who had begged Ramne to stop, hae black robes still drenched and arms folded around hae to keep warm. He looked back at hae, and slowed to match hae pace.
 
   "Yes, Um.."
 
@@ -40,41 +40,41 @@ Setting:
 
   "Is that why he left you behind?"
 
-  She went silent, and changed the subject.
+  Thi went silent, and changed the subject.
 
-  "I know it may seem strange, that I chose to go with you and not him, but I wanted to tell you that I support your efforts."
+  "I know it may seem strange, that I chose to go with you and not him, but I really do support your efforts."
 
   "Is that so?" Kip asked, unconvinced. "How far are you willing to go to prove it?"
 
-  "I cooked for Ramne, I can cook for a hundred. Or I'll fight alongside you."
+  "I will fight alongside you."
 
   "And you would kill Ramne if it came to that?"
 
-  She paused, not having thought of that possibility.
+  Thi paused, not having thought of that possibility.
 
-  "I didn't think so," said Kip. "Look, I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Lissa."
+  "Look," Kip said, "I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Lissa."
 
   "He just likes hae for the money. He wouldn't touch me."
 
 	"What do you do for him?"
 
-	"I sell the goods. I know the streets of Shaki like the skin on my knees."
+	"I was Ramne's thief. I snuck into places and unlocked doors. I know Rudjan and Yansha like the skin on my knees."
 
 	"Does he pay you well?"
 
 	"That's none of your business."
 
   "Sounds like he has the better end of the deal."
-	
-	"We have an arrangement. We're both happy."
+
+	"We have an arrangement. We're both happy with it."
 
 	"What do you think he'll do the minute someone else comes along? What did he do to Casra when Lissa came along."
 
-	Ginnu kept walking with her head faced forward, and a pout on her lips.
+	Ginnu kept walking with hae head faced forward, and a pout on hae lips.
 
-	"Kipnu," she asked, "Why do you care so much about Casra? Ram and I have met every tribe leader on this island and no one has ever mentioned your name."
+	"Kipnu," she asked, "Why do you care so much about Casra? Ramne and I have met every tribe leader on this island and no one has ever mentioned your name."
 
-	"There's something here. A key to something bigger than any of us can imagine."
+	"There's something here. A key to something bigger."
 
 	"You high or something?"
 
@@ -118,17 +118,19 @@ Setting:
 
   Setre barely jumped off the ladder when she started talking again.
 
-  "Cas' plan is working, but I need you to–... Oh hey Lin," she said, surprised at seeing hae face in the lantern light.
+  "Cas' plan is working, but I need you to–... Oh hey Linyu," she said, surprised at seeing hae face in the lantern light.
 
-  Next to Linyu was Ginnu who was rummaging through the herb box with her own lantern, and she asked in a suspicious tone, "How did you get here?"
+  Standing next to Linyu was Ginnu, rummaging through the herb box with hae own lantern, and she asked in a suspicious tone, "How did you get here?"
 
-  Startled, Ginnu shot her head toward Setre and abruptly closed the herb box. Kipnu got off the ladder and set his arm on Setre's shoulder.
+  Startled, Ginnu shot hae head toward Setre and abruptly closed the herb box. Kipnu got off the ladder and set his arm on Setre's shoulder.
 
-  "It's alright," he said, oblivious to the tension in the room. "She's with us."
+  "It's alright," he said, oblivious to the tension in the room. "Thi's with us."
 
-  She ignored him and snapped at Ginnu, "Get the fuck away from my kaln."
+  She ignored him and forced her way between Ginnu and Linyu.
 
-	Ginnu's face was unchanged as she walked closer to them and the ladder. When she got close enough, Setre swiftly grabbed her wrists and held them behind her back.
+	"Get out," she commanded.
+
+	Ginnu's face was unchanged as thi walked closer to them and the ladder. When thi got close enough, Setre swiftly grabbed hae wrists and held them behind hae back.
 
 	Ginnu rebuked her, "Get your hands off me."
 
@@ -136,59 +138,57 @@ Setting:
 
 	"What's this all about?" Kip demanded.
 
-	"Ginnu is a spy," she responded, struggling to keep her still.
+	"Ginnu is a spy. Thi must be silenced," she responded, struggling to keep hae still.
 
-	Kip was growing tired of secrets. *How many hidden identities are people keeping on this island?*
+	Kip was growing tired of death. *How many grudges are people keeping on this island?*
 
-	"Everyone has at least one," Setre said, and he suddenly realized that his question hadn't stayed fully in his head.
-
-	Linyu scurried up the ladder and quickly came back with a handful of strong rope - a thicker variant of the material used for their clothing. Setre bound Ginnu's wrists and ankles and then sat her down near the entrance. Ginnu had begun crying and sat still looking ground.
+	Linyu scurried up the ladder and quickly came back with a handful of strong rope - a thicker variant of the material used for their clothing. Setre bound Ginnu's wrists and ankles and then sat hae down near the entrance. Ginnu glared at her with teary eyes and sat still looking at the ground.
 
 	"Save your tears."
 
-	Kip pleaded to her, "This is too much, Setre. Ginnu's been nothing but helpful ever since she arrived on this island."
+	Kip pleaded to her, "This is too much, Setre. Ginnu's done nothing to sow distrust."
 
-	"This is exactly how Lissa's spies work. She makes you think she's on your side until she steals all your advantages and gives them to Lissa. She already knows that I'm working with you. What have you told her about?"
+	"This is exactly how Lissa's spies work. They make you think they're on your side until they vanish one day and your enemies know everything about you. Thi already knows that I'm working with you. What have you told hae about?"
 
-	"A little about radio. She thought I was crazy."
+	"A little about the listener things. Thi thought I was crazy."
 
 	Setre was incredulous. "By Ara, are you thick?"
 
-	Kip was getting frustrated. "Look, we'll just leave her here and come back for her when we've taken over."
+	Kip was getting frustrated. "Look, we'll just leave hae here and come back for hae when we've taken over."
 
-	"And then what? She's lives the rest of her life as a prisoner? As long as Kanosin exists in this world, peddlers like her will do whatever it takes to keep it alive."
+	"And then what? Thi lives the rest of hae life as a prisoner? As long as Kanosin exists in this world, theives like hae will do whatever it takes to keep it alive."
 
-	Ginnu interrupted her, "I'm just trying to escape this madness. Unlike you, Guardian Setre."
+	Ginnu interrupted her, "I'm trying to escape this madness. Unlike you, Guardian Setre."
 
-	Setre lifted her by her shirt and she shouted in pain, but Setre maintained her hold. 
-	
+	Setre lifted Ginnu by hae shirt, to which hae shouted in pain, but Setre maintained her hold.
+
 	"And unlike you, I'm trying to stop it."
 
 	Kip put himself in between them and shouted, "Setre, what's gotten into you?"
 
-	Ginnu pouted and sank into the floor. Kip felt pity for her, but Setre was not amused.
+	Ginnu breathed heavy and sank into the floor. Kip felt pity for hae, but Setre was not amused.
 
-	Kipnu suggested to the group, "I'll take her to the fire. When I come back, we'll talk."
+	Kipnu suggested to the group, "I'll set hae around the fire with the others. When I come back, we'll talk."
 
-	"You'd be better off throwing her into it."
+	"You'd be better off throwing hae into it."
 
-	Kip shot her a glare, and then climbed up the ladder, stopping at the top to lift Ginnu up by the shoulders. He carried her in his arms toward the now roaring fire. The fishing party had just returned with a large amount of fish and bluekelp for the group. On a soft patch of ground, he set her down at a comfortable distance away while the others stared at them in curiosity.
+	Kip shot her a glare, and then climbed up the ladder, stopping at the top to lift Ginnu up by the shoulders. He carried hae in his arms toward the now roaring fire. The fishing party had just returned with a large amount of fish and bluekelp for the group. On a soft patch of ground, he set hae down at a comfortable distance away while the others stared at them in curiosity.
 
-	"What's she tied up for?" asked a maman.
+	"What's thi tied up for?" asked a maman.
 
 	"It's nothing big, but I'd prefer not to say right now."
 
-	"Tried to take a swing at you, did she?" the maman asked.
+	"Tried to take a swing at you, did thi?" the maman asked.
 
-	"No nothing like that. We just need some privacy right now, and I'm worried she might run away."
+	"No nothing like that. We just need some privacy right now, and I'm worried thi might run away."
 
 	"To Ramne, you mean."
 
-	"Yes, and he might want her back so keeping her here and healthy is a good thing. If I come back and any one of you has taken advantage of her vulnerable position, you will answer to the giant warrior in the house."
+	"Yes, to Ramne. Listen, he might want hae back so keeping hae here and healthy is a good thing. If I come back and anything has happened to Ginnu, you will answer to the giant warrior in the house."
 
 	They heeded his bluff of a warning, and as he turned he paused to check on Ginnu again.
 
-	"Thank you," she whispered to him through tearful eyes. If this was all an act, she was quite convincing.
+	"Thank you," thi whispered to him through tearful eyes. If this was all an act, thi was quite convincing.
 
 	Setre was drawing a map on the ground with some charcoal and a lantern, too engrossed to greet Kipnu as he came back in.
 
@@ -196,13 +196,13 @@ Setting:
 
 	"Do you want to win this or not?"
 
-	"She doesn't pose a threat to us."
+	"Thi doesn't pose a threat to us."
 
-	"Yet. The minute she knows what you're up to, she will run."
+	"The minute thi knows what you're up to, thi will run and tell Ramne."
 
-	"Look. She can't go back to the Great Pavilion or she'll blab about you, and she can't just stay tied up here in the cold. Leave her with me."
+	"Look. Thi can't go back to the pavilion, and she can't just stay tied up here in the cold. Leave Ginnu with me."
 
-	She sighed. "You better keep your eyes on her."
+	She sighed. "You better keep your eyes on hae."
 
 	"You know I will."
 
@@ -324,12 +324,12 @@ Setting:
 
 	When they arrived in the circle the whole group was around the fire, already having eaten their share of fish. Lin had saved three for them, giving two to Setre and one to Kip. *Fair*, he thought. The group took turns introducing themselves to everyone while the two of them ate. Some had come as families bound and unbound, and some were individuals who had heard stories of Ulukoma from people they knew. The younger ones only knew that Ulukoma was a mysterious island where prisoners survived in the dark, and decided to throw their lives at it in a panic.
 
-	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them. He helped Ginnu hold it in her tied hands and keep it on her ear.
+	Once they were done, Kip asked Linyu to prepare the radio transmitter. He gathered the group into a circle and divided all of the listeners amongst them, giving them first to the healthiest among them. He helped Ginnu hold it in hae tied hands and keep it on hae ear.
 
 	"Mamen, men, women. Linyu is about to demonstrate something that will be crucial to our plan. What I've given each of you is called a listener. Casra made them here, and entrusted them to hae kaln and myself. Now, I entrust them to you. Put them up to your ears, and make sure to pass them around to the people around you."
 
 	Kip sent a nod in Linyu's direction which thi confirmed and moved to the transmitter box, connecting the battery to it with well-worn wires of steel. With a clear of the throat, as hae mother had done, thi began to sing the same song that Casra had sung to Kip. He watched as the group slowly began to comprehend what they were hearing, their faces lighting up with awe as they looked back at Kipnu. Casra's presence was filling the air like an invisible spirit of knowledge. He looked back at Linyu who for only a moment cracked a small smile.
 
-	Ginnu looked intently toward him without a trace of the doubt she had before. She asked, "How is this possible?"
+	Ginnu looked intently toward him without a trace of the doubt thi had before. Thi asked, "How is this possible?"
 
 	Kip told her, "The wind speaks. And we listen."

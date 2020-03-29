@@ -12,11 +12,11 @@
 
   "Laen. Listen carefully," she said slowly to him. Laen let out a worried "woo" and listened intently through the gate.
 
-  "Our home is in trouble, and it's dangerous to be there. I need you to go home and warn everyone."
+  "Our home is in trouble, and it's dangerous to be there. I need you to go home with Boon and warn everyone."
 
   "Woop?" he said, confusedly.
 
-  "Get everyone out of the city and into boats. We have to row into the darkness. It's our only chance."
+  "Wake everyone in the city up and have them bring the infants and elders to the far side of the observatory."
 
   "Woop woop," he said confidently and Melna knew that he understood.
 
@@ -182,13 +182,13 @@
 
   She saw a satchel rustling in the corner, and from it a pair of light blue eyes emerged staring at her.
 
-  "Linyu?" she asked, and the voice let out a gasp, as if knowing the name. Melna realized they were both afraid of saying anything, but she imagined that hiding yourself in a satchel in the dark was a much more vulnerable state to be in, so she went first.
+  "Linyu?" she asked, and the voice let out a gasp, as if knowing the name. Melna realized they were both afraid of saying anything, but she imagined that hiding yourself in a satchel in the dark was a much more vulnerable state of mind, so she went first.
 
   "My name is Melna. I met a kaln named Linyu last evening with eyes quite similar to yours."
 
   "This kaln... also has blue eyes?"
 
-  Melna cautiously walked closer to her while she crawled out of her hiding bag. Through the darkness, she could see the outline of the woman's unclothed body and the soft rays of Ara landing on her skin. Her wrinkles revealed that she was severely dehydrated, and Melna immediately withdrew her canteen to give her a drink. The woman was wary of the strange object Melna was handing her, but quickly bowed to desparation when she realized that the object was a canteen, and she took it eagerly.
+  Melna cautiously walked closer to hae while thi crawled out of the hiding bag. Through the darkness, she could see the outline of the maman's unclothed body and the soft rays of Ara landing on her skin. Her wrinkles revealed that thi was severely dehydrated, and Melna immediately withdrew her canteen to give hae a drink. The maman was wary of the strange object Melna was handing hae, but quickly bowed to desparation when thi realized that the object was a canteen, and took it eagerly.
 
   "Are you from Ulukoma," Melna asked.
 
@@ -196,25 +196,25 @@
 
   "What happened to Kipnu?"
 
-  "Kipnu?" she seemed more confused than before.
+  "Kipnu?" thi seemed more confused than before.
 
   Melna apologized, "I'm sorry. He is my jundman, and... I was... Nobody knows what happened to him."
 
-  "I have no memories," she said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, blind and bruised. I met Ramne who was... unhappy when I first met him... And now I've met you."
+  "I have no memories," thi said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel, blind and bruised. I met Ramne who was... unhappy when I first met him... And now I've met you."
 
-  "Are you injured?" Melna asked, recalling the wound on her head.
+  "Are you injured?" Melna asked, recalling the wound on hae head.
 
   "Yes, I think it's why I don't have any memories. But it doesn't seem infected or anything."
 
   "Here, let me see."
 
-  Melna gently pulled her closer to the light and observed even more bruises and wounds and scars across her whole body.
+  Melna gently pulled hae closer to the light and observed even more bruises and wounds and scars across hae whole body.
 
-  "My goodness. How did you get all of these?" Melna asked as she pressed gently on a few healing cuts to see if they had gone numb. She winced uneasily at each one.
+  "My goodness. How did you get all of these?" Melna asked as she pressed gently on a few healing cuts to see if they had gone numb. Thi winced uneasily at each one.
 
-  "I don't know," she said, "But whoever I was, I don't want to be her anymore."
+  "I don't know," thi said, "But whoever I was, I don't want to be hae anymore."
 
-  Melna smiled and said, "I'm glad," but silently she knew that she had to get her away from him.
+  Melna smiled and said, "I'm glad," but silently she knew that she had to get hae away from him.
 
   "Come with me to Heiko," Melna asked.
 
@@ -232,7 +232,7 @@
 
   "Hope I'm not interrupting anything", called Ramne, opening a door to the stowage deck.
 
-  His voice struck fear in the woman's heart, and she ran back toward the satchel to hide. Melna stood her ground between them.
+  His voice struck fear in the maman's heart, and thi ran back toward the satchel to hide. Melna stood her ground between them.
 
   "You look familiar", he said as he got sight of Melna, "Have I run into you before?"
 
@@ -252,9 +252,9 @@
 
   "Caus I rather like keeping that thing a secret."
 
-  "She's a throngia. Just like the rest of us."
+  "Thi's a throngia. Just like the rest of us."
 
-  He laughed, "Sure she looks just like one of us. That's because she used to be."
+  He laughed, "Sure thi looks just like one of us. That's because thi used to be."
 
   He reached for the satchel behind Melna, but she pushed him away.
 
@@ -262,15 +262,15 @@
 
   "One of who?"
 
-  He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the abdomen. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the side, then grabbed the satchel again and lifted the blue-eyed woman out of it by her hair, holding her face over Melna's like a puppet.
+  He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the abdomen. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the side, then grabbed the satchel again and lifted the blue-eyed maman out of it by hae hair, holding hae face over Melna's like a puppet.
 
-  "Let me tell you a story. A woman named Ginnu used to own this body. But one day she died because that fucking idiot sent her into the dark alone. She fell three stories onto a metal floor, and screamed in pain while he tried to save her."
+  "Let me tell you a story. A maman named Ginnu used to own this body. But one day thi died because that fucking idiot sent her into the dark alone. Thi fell three stories onto a metal floor, and screamed in pain while he tried to save hae."
 
-  Melna could hear Ramne but could only see the woman's anguish through her face. She wasn't dead, she was alive.
+  Melna could hear Ramne but could only see the maman's anguish through hae face. Thi wasn't dead, thi was alive.
 
   He continued to mock them, "This *thing* is a demon. An abomination to life! I wish I could kill it, but it *just won't die*!"
 
-  Melna stood back up and away from them, and he dropped the woman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head-
+  Melna stood back up and away from them, and he dropped the maman on the floor sparing no time to do so carefully. She looked around for a weapon, but it was too dark to see. Ramne barreled toward her so she dodged his lunge and made a break for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and pulled her hard onto the step where she landed on her head-
 
   ********
 

@@ -109,9 +109,9 @@
 
 	"How do I say it? Life is good on the other side of poverty. Though you wouldn't know anything about that, would you?"
 
-	The woman begged him to stop, "Ram... Stop this."
+	The maman begged him to stop, "Ram... Stop this."
 
-	Casra interrupted, "Oh, so there's an us now?"
+	Casra interrupted, "Seems you've found someone new, then."
 
 	"For a product this good? I couldn't possibly sell it all on my own." He said casually.
 
@@ -119,7 +119,7 @@
 
 	Kip sensed this too, and leaned in to whisper to hae, "Could be an ambush. You'd better stop this blabbering soon."
 
-	"Go. Protect Linyu," thi asked him.
+	"Go. Protect Linyu," Casra asked him.
 
 	"I can't leave you here-"
 
@@ -133,11 +133,11 @@
 
 	Ramne made a thunderous grunt, and ten others from around the shoreline stood up and echoed it back, trapping Casra in a throngian cage. Thi didn't flinch or cower down, but just kept hae sights on Ramne. Linyu called for hae mother and started running towards them with Kip following after, but they were both stopped in their tracks by a long dagger held out by a maman twice Kip's weight in muscle - one of Ramne's allies. The woman in black wasted no time running toward the warrior, screaming for hae to save the kaln.
 
-	Casra said to Ramne, "I hope she is as disappointed in you as I am."
+	Casra said to Ramne, "I hope thi is as disappointed in you as I am."
 
 	He was expressionless as he bound Casra's unfighting arms behind hae.
 
-	"She won't be so disappointed when she's higher than Ara."
+	"Thi won't be so disappointed when thi's higher than Ara."
 
 	Kip clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Lissa. He winced at the thought of what Lissa might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, seeking pity from the ground, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
 

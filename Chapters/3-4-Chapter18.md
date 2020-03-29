@@ -24,13 +24,17 @@ Melna stood confidently and said, "I am Melna um Heiko. Now please tell me if yo
 
 "You will learn soon. But now, it is too dangerous in Rudjan. You must leave immediately."
 
-He leaned closer to her and pulled something metal out of a pocket in his coat.
+He leaned closer to her and pulled some things out of a pocket in his coat.
 
 "Linyu left this for you."
 
-He lifted his hand from his coat and produced a copper coil just like the one Linyu was fiddling with. It had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. With a gentle grasp, she lifted it from his hands and hid it in her coat sleeve, wondering why Linyu had left this for her.
+He lifted his hand from his coat and produced a few vials of a strange reddish liquid and a copper coil embedded in a wooden puck just like the one Linyu was fiddling with. It had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. With a gentle grasp, she lifted them from his hands and hid them in her coat sleeve, still confused.
 
-"Left this for me?" she asked, bewildered, "But why?"
+"Left these for me?" she asked, bewildered, "But what's in these vials?"
+
+"A cure for the blind."
+
+"Why?"
 
 "The wind speaks," he said mysteriously. "You must listen."
 
