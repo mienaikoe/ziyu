@@ -118,17 +118,31 @@ We turned and paddled softly, but it didn't take long for us to hit ground. The 
 
 "Aye. I'm coming," I said.
 
-Before I could set foot on the ground, I heard a call echoing from a position both near and far, "Hello?". I stopped in my tracks, and tried to find the source of the sound. Pomri was equally startled and moved closer to hold my hand.
+Before I could set foot on the ground, I heard a loud thud into the pebbles echoing from an indeterminate direction. I stopped in my tracks, and tried to find the source of the sound. Pomri was equally startled and moved closer to hold me back, she placed her arm against her mouth, a command to stay quiet.
 
-"Who's there?!" she asked.
+At the edge of the outside light, I could see two giant silhouettes of saffas. They were perched looking in, just out of the light, unmoving and hyperfocused. But somewhere between us, a broken cadence of slow wet footsteps rattled off the walls. They weren't deliberate like a bandit or an assassin. More uncontrolled, and barely hanging on. If it were just a throngia, we could push the boat off and paddle away. But a saffa can swim and run much faster than we could ever hope to paddle or run.
+
+Pomri began to approach, to put distance between me and the walking sound. She was deliberately slow and silent. Only taking a step with each wave that boomed into the mouth.
+
+But then the footsteps stopped with a larger thud, as if the mysterious person had plopped all their body weight on the ground. *We are intruders here.*
+
+Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had located her voice and held a long wooden pole to her chest. A tinkling noise echoed off the walls of the cove. *A binding pendant...*
+
+A maman's voice spoke, "What are you doing here?"
 
 *That voice...*
 
-At the edge of the outside light, I could see two giant silhouettes of saffas. *The noise is coming from there, but...*
+"Stand down!" Pomri shouted, but thi didn't respond.
 
-I shouted, "Stay back! We are armed."
+"Stand down!" Pomri shouted again.
 
-In front of the silhouettes, another noise echoed off the walls of the cove. This time it was a familiar tinkling sound: a sound that had become an annoyance through the journey to Rudjan, but stuck so heavily in my mind. Then, suddenly, the saffas made a series of loud "Woop!" sounds, and rushed past the maman toward us.
+I walked toward them, and finally realized who it was. "Ginnu?"
+
+
+
+
+
+the saffas made a series of loud "Woop!" sounds, and rushed past the maman toward us.
 
 Thi said, "Laen! Wait!"
 
@@ -146,11 +160,11 @@ I interjected, excitedly, "Ginnu? Came before? But you..."
 
 "I am *Annui*, without a name."
 
-"How did you come to have Melna's pendant, Annui?" asked Pomri.
+"How did you come to have Melna's pendant... Annui?" asked Pomri.
 
 Thi gasped, "You know Melna?"
 
-We shared a moment of silence, realizing that we ought to regroup in the light.
+We shared a confused moment of silence, realizing that we ought to regroup in the light.
 
 
 
