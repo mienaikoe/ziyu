@@ -126,45 +126,24 @@ Pomri began to approach, to put distance between me and the walking sound. She w
 
 But then the footsteps stopped with a larger thud, as if the mysterious person had plopped all their body weight on the ground. *We are intruders here.*
 
-Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had located her voice and held a long wooden pole to her chest. A tinkling noise echoed off the walls of the cove. *A binding pendant...*
+Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as swiftly as it appeared. Fast pebble crunches and a tinkling noise echoed off the walls of the cove as the mysterious person fled. *A binding pendant...*
 
-A maman's voice spoke, "What are you doing here?"
+I ran after the shadow, evading Pomri's protests. This wasn't an enemy. It couldn't be.
 
-*That voice...*
+In the light I could see hae body, hydroderm swollen with cold and sunken with hunger. Her energy was nothing short of a supernatural phenomenon. She passed between the saffas, and out of the cove while they slowly backed away to block hae escape.
 
-"Stand down!" Pomri shouted, but thi didn't respond.
+But then, I saw him. The thick fur and black eyes and myriad different mannerisms that were unmistakable for anyone else but my best friend.
 
-"Stand down!" Pomri shouted again.
+I stopped in my tracks and called his name, "Laen!"
 
-I walked toward them, and finally realized who it was. "Ginnu?"
+The saffas hesitated, judging the voice against my motion, but then I emerged from the darkness and they instantly made a series of loud "Woop!" sounds and rushed toward me with a pair of big fuzzy faces and the air of stale fish. I took a big hug of his neck and he plopped an ear on my head.
+
+Behind, Pomri cried out in an exhausted voice, "Boon! You survived!"
+
+But Pomri was not one to celebrate before it was due. She asked Boon, "Who is that maman?", and she replied with an undulating "woo-oo-oo-oo", a sound of sorrow, not of fear. I parted my embrace to find the maman from the cove, but thi had fled.
 
 
 
-
-
-the saffas made a series of loud "Woop!" sounds, and rushed past the maman toward us.
-
-Thi said, "Laen! Wait!"
-
-Pomri stood her ground in front of me, but softened once she put the name and the sound together. We were greeted by a pair of big fuzzy faces and the air of stale fish.
-
-"Laen-Laen!" I cried and wrapped my arms halfway around his neck. I was elated to have my friend back. Pomri embraced with Boon, and whispered quietly to her, but then moved forward to confront the maman.
-
-"Thank you for keeping our saffas safe. Who are you?"
-
-The maman walked closer to us and answered,
-
-"The maman that came before me was named Ginnu."
-
-I interjected, excitedly, "Ginnu? Came before? But you..."
-
-"I am *Annui*, without a name."
-
-"How did you come to have Melna's pendant... Annui?" asked Pomri.
-
-Thi gasped, "You know Melna?"
-
-We shared a confused moment of silence, realizing that we ought to regroup in the light.
 
 
 
