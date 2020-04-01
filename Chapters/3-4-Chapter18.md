@@ -28,13 +28,15 @@ He leaned closer to her and pulled some things out of a pocket in his coat.
 
 "Linyu left this for you."
 
-He lifted his hand from his coat and produced a few vials of a strange reddish liquid and a copper coil embedded in a wooden puck just like the one Linyu was fiddling with. It had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. With a gentle grasp, she lifted them from his hands and hid them in her coat sleeve, still confused.
+He lifted his hand from his coat and produced a satchel, which Melna hesitantly took and opened. On the top were two thick ornamental vials in a disc shape with a reddish liquid inside them.
 
-"Left these for me?" she asked, bewildered, "But what's in these vials?"
+"What is in these vials?"
 
-"A cure for the blind."
+"A cure for the undying."
 
-"Why?"
+She looked at him for a moment, trying to interpret his meaning, but paused to continue digging into the satchel. At the bottom was a copper coil embedded in a wooden puck: the same that Linyu was fiddling with. The coil had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. Gently closing the satchel, she quickly hid the gift away in her field pack, still confused.
+
+"Why did Linyu leave these for me?" she asked, bewildered, "And who are you?"
 
 "The wind speaks," he said mysteriously. "You must listen."
 

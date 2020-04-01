@@ -118,36 +118,27 @@ We turned and paddled softly, but it didn't take long for us to hit ground. The 
 
 "Aye. I'm coming," I said.
 
-Before I could set foot on the ground, I heard a loud thud into the pebbles echoing from an indeterminate direction. I stopped in my tracks, and tried to find the source of the sound. Pomri was equally startled and moved closer to hold me back, she placed her arm against her mouth, a command to stay quiet.
+Before I could set foot on the ground, I heard movement: footsteps on pebbles echoing from every wall. I stopped in my tracks to listen. They weren't deliberate and quick like a bandit or an assassin – more uncontrolled, and barely hanging on. Pomri was equally startled and moved closer to hold me back. With a swift gesture, she held her hand out in front of my mouth mouth, a command to stay quiet.
 
-At the edge of the outside light, I could see two giant silhouettes of saffas. They were perched looking in, just out of the light, unmoving and hyperfocused. But somewhere between us, a broken cadence of slow wet footsteps rattled off the walls. They weren't deliberate like a bandit or an assassin. More uncontrolled, and barely hanging on. If it were just a throngia, we could push the boat off and paddle away. But a saffa can swim and run much faster than we could ever hope to paddle or run.
+At the edge of the outside light, I saw two giant silhouettes of saffas, perched at the mouth of the cove and looking in just out of the light. But somewhere between the saffas and us, that cadence of slow footsteps rattled off the walls. If it were just a throngia, we could push the boat off and paddle away. But a saffa can swim and run much faster than we could ever hope to paddle or run.
 
 Pomri began to approach, to put distance between me and the walking sound. She was deliberately slow and silent. Only taking a step with each wave that boomed into the mouth.
 
 But then the footsteps stopped with a larger thud, as if the mysterious person had plopped all their body weight on the ground. *We are intruders here.*
 
-Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as swiftly as it appeared. Fast pebble crunches and a tinkling noise echoed off the walls of the cove as the mysterious person fled. *A binding pendant...*
+Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as the shadow fled back toward the saffas. I ran after, evading Pomri's hands and protests not to go. *This isn't an enemy, It can't be.*
 
-I ran after the shadow, evading Pomri's protests. This wasn't an enemy. It couldn't be.
+The stranger passed between the saffas, and out of the cove where the remaining Ara-light shone against hae back. I was aghast at hae feeble figure, hydroderm swollen with cold and sunken with hunger. But before I could reach hae, one of the saffas had turned and picked hae up, while the other stood ground guarding their getaway. Through the growling and shuffling of feet, I heard a sound I'd not expected to hear: the ringing jingles of a binding pendant as it rocked this way and that around the saffa's neck. And then I saw him – the thick fur and the big ears and the myriad different mannerisms that were unmistakable for anyone else but my best friend.
 
-In the light I could see hae body, hydroderm swollen with cold and sunken with hunger. Her energy was nothing short of a supernatural phenomenon. She passed between the saffas, and out of the cove while they slowly backed away to block hae escape.
+"Laen! You're alive!"
 
-But then, I saw him. The thick fur and black eyes and myriad different mannerisms that were unmistakable for anyone else but my best friend.
+He hesitated, judging the voice against my motion, but then he sniffed a little and he at once he knew. He instantly let out a loud "Woop!" and rushed toward me with his big fuzzy face and his breath of stale fish. I hugged him warmly at his neck and he plopped an ear on my head while he coo'd his relief.
 
-I stopped in my tracks and called his name, "Laen!"
+Behind, Pomri cried out in an exhausted voice, "Laen? Is it really you?"
 
-The saffas hesitated, judging the voice against my motion, but then I emerged from the darkness and they instantly made a series of loud "Woop!" sounds and rushed toward me with a pair of big fuzzy faces and the air of stale fish. I took a big hug of his neck and he plopped an ear on my head.
+But Pomri was not one to celebrate before it was due. She asked him, "Laen, who is that maman?", and he replied with an undulating "wOOooOOoo", a sound of sorrow, not of fear. I took a look at the pendant that was tied up in his chin fur and felt for its telltale shapes and edges. It felt familiar in my fingers - it had to be Melna's.
 
-Behind, Pomri cried out in an exhausted voice, "Boon! You survived!"
-
-But Pomri was not one to celebrate before it was due. She asked Boon, "Who is that maman?", and she replied with an undulating "woo-oo-oo-oo", a sound of sorrow, not of fear. I parted my embrace to find the maman from the cove, but thi had fled.
-
-
-
-
-
-
-
+"Whoever thi is," I said to Pomri, "Thi knows Melna."
 
 
 
