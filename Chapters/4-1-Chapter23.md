@@ -174,14 +174,14 @@ I gently laid the maman back down and took up the syringe for rinsing and sanita
 
 "I don't know," I said. A practiced lie, but a good one.
 
-I removed the syringe from the fire and looked closely at the tip. A film of char covered it, showing that it had been sanitized. I searched for the basket of syringes I had seen before and spotted it near to an old guardian of Lissa's who was tending to a famished skeleton of a pangum. But before I could move, Pomri took up my free hand and wrapped her own around it.
+I removed the syringe from the fire and looked closely at the tip. A film of char covered it, showing that it had been sanitized. I searched for the basket of syringes I had seen before and spotted it near to an old guardian of Lissa's who was tending to a famished skeleton of a throngia. But before I could move, Pomri took up my free hand and wrapped her own around it.
 
-"Come to Heiko with me," she pleaded under her breath.
+"Come to Heiko with me," she pleaded under her breath. Her eyes had a fire to them I hadn't seen before: determined and brazen.
 
 I glowered at her, at the ease with which she went behind my nather's back. But she saw that I was old enough to have my own thoughts, knew that I needed closure just as much as she did: a closure that Setre could not be persuaded to allow.
 
 "Mid-day's nap. Find me on the beach where we landed."
 
-She nodded, holding back a smile. *Why did I say that?!*, I thought. But I didn't stop myself. I was not bound by regret, only worry for my nather.
+*Why did I say that?!*, I thought. But I didn't stop myself. I wasn't bound by regret, only worry for my nather. She nodded back with that same intensity.
 
 Pomri returned to the maman she was monitoring to take hae vitals and ensure thi was warm. With a quick twist, I secured a cover onto the syringe and placed it in the basket with the others, giving a nod to the old guardian. A deep sense of guilt overshadowed my thoughts and drew my eyes toward the pavilion. Impatiently, she darted here and there like a tilmarim in the dark, teaching people how to construct a truss from tarred wooden posts. For the moment I let her fire into me, felt it cleanse the guilt from my heart. Our divergence was inevitable, but I remembered that we had the same goal: to outlast the obscura.

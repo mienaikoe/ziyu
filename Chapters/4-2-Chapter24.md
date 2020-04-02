@@ -32,7 +32,7 @@ My silence agreed.
 
 There was a certain guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
 
-Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale frightened faces, the water covering them just so. And at once I was among them in that viscous ether-ocean with the bubbles and froth tickling my skin, my body unmoving and my eyes locked into that same vacant stare.
+Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale faces, the water covering them just so. And at once I was among them in that viscous ether-ocean with the bubbles and froth tickling my skin, my body unmoving and my eyes locked in that same vacant stare.
 
 "Oi! Kaln! You paddling or napping?" she asked me.
 
@@ -58,9 +58,9 @@ We paused to absorb the reality that came with that cloud.
 
 "When I heard the explosions... paddling my heart out in the thick fog... All I could think of... was Melna. Nothing else... Nothing else mattered to me in that moment."
 
-*What is she saying?*
+My mind thought of that moment. I knew Melna had accomplished her goal, had taken care of herself. But I thought of no one but Laen-Laen.
 
-"Love is weird like that," I said, trying to break the mood.
+"Love is weird like that," I said, trying to break the dark mood.
 
 But she sustained it, "Love. There were times where," she exhaled as if to simper, remembering something, "It must have come to that."
 
