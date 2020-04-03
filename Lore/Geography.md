@@ -37,7 +37,18 @@ This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
 X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
 
 
+## Distance
 
+Distance is measured in ratios of circumference of the planet, and divided in twelves.
+
+Lao/Arc   1 circumference       ~18,000 miles, roughly between mars and earth
+Lao'la    1/12 circumference    ~1500 miles, roughly miami -> new york
+Lao'na    1/12 Lao'la           ~125 miles, roughly cleveland -> ohio
+Lao'ka    1/12 Lao'na           ~10 miles, roughly manhattan -> flushing
+Lao'sa    1/12 Lao'ka           ~0.86 miles, roughly a mile
+Lao'va    1/12 Lao'sa           ~380 feet, roughly a football field
+Lao'ta    1/12 Lao'va           ~31 feet, roughly 5 people height
+Lao'cha   1/12 Lao'ta           ~2.6 feet, also called a pace
 
 ## Urban Planning
 
@@ -62,7 +73,7 @@ Rudjan stole the land it settled on from Saffa, which attacked back with guerill
 A province on the outskirts of Shaki. Acts as a sort of suburb, including second homes for the elite of Shaki, small gardens and restaurants to feed those people finer foods, and lots of shady business to go around. Lots of cultural items come out of Yansha as well, if the elites decide to like it. Stories and artworks that make it here are sent to Shaki for mass production, or are doomed to fail. Other provinces often send their best here to gain influence if sent to Shaki.
 
 **Shaki Province**
-Shaki is the capital, and the province of the same name is the "Greater" area around it. Shaki sits at the northern magnetic pole of Palinan. Shakians are well-educated and a little snobbish about it. They've led the way into the industrial revolution, harnessing solar thermal energy, power cycles, and chemistry in a way that allows them to live luxurious lives. However, they still rely on materials and people from the other provinces and sometimes forget this fact. There is democracy and capitalism in this province, with a clear hiearchy of government. They permit Heikoans small purchases like meals and travel free of charge and bill it back to the Heiko government which pays its debts from the income of its foodstuffs. 
+Shaki is the capital, and the province of the same name is the "Greater" area around it. Shaki sits at the northern magnetic pole of Palinan. Shakians are well-educated and a little snobbish about it. They've led the way into the industrial revolution, harnessing solar thermal energy, power cycles, and chemistry in a way that allows them to live luxurious lives. However, they still rely on materials and people from the other provinces and sometimes forget this fact. There is democracy and capitalism in this province, with a clear hiearchy of government. They permit Heikoans small purchases like meals and travel free of charge and bill it back to the Heiko government which pays its debts from the income of its foodstuffs.
 
 It is the seat of the Senate of Palinan, which is a seat of deliberation over issues that might send the entire planet into war, or might wipe one of them off the planet. The senate also decides laws for the entire planet, but naturally, these laws need to be unanimously passed. The only law that has been passed is the rights of consciousness, which forms a sort of religion amongst many in the world.
 

@@ -7,15 +7,17 @@
 
 ## Chapter 25
 
-"Cover your nose and mouth," she told me, holding a shawl. I looked back at Laen, lying in a circle at the edge of the steppe, trying to find warmth in the thin light.
+"Cover your nose and mouth," she told me, holding a shawl.
 
-"Saffas need clean water regularly," Pomri explained. "And there's none of that in Heiko."
+We reached the 1 lao'ka marking rock with dust in the air, hanging invisible to the eyes, but heavy to the nose. Laen had begun to sneeze a bit himself. I looked back at him, lying in a circle at the edge of the path, trying to find warmth in the thin light.
 
-"I know. I just wanted to say goodbye."
+"I don't have anything that he could put on," Pomri explained, "He'll have to stay here."
 
-"Make it quick."
+"I know... I just wanted to say goodbye."
 
-I took the shawl and walked over to Laen with his ears perked up in anticipation. His gaze was trained upon me, yearning for answers that I couldn't find the words to explain.
+"Make it quick. We still have quite a hike before we reach the pier."
+
+I took the shawl from her hands and walked over to Laen with his ears perked up in anticipation. His gaze was trained upon me, yearning for answers that I couldn't find the words to explain.
 
 From a satchel, I pulled a morsel of roasted seaweed I had brought from home and offered it to him.
 
@@ -29,7 +31,15 @@ I found the spot on his back where he loved to be scratched and ran my fingers t
 
 "Thank you for getting us here, Laen. It would have taken us va'na without you."
 
-"I don't know what lies ahead for either of us, but we have to split up. Heiko is a dangerous place now and we don't want you to get hurt."
+He didn't respond, just took in the moment.
+
+"There's no safe place in the world now, you know? Your home... and," I looked at the cloud of dust over Heiko, moved my focus to Ara. "The obscura."
+
+Laen made a long sigh, and I followed him, trying to process my reality.
+
+"Laen... When we're done here, you can stay with us. In Ulukoma."
+
+
 
 
 *What will you do now?*, I wondered. Every departure seemed to be more of a goodbye.
