@@ -112,7 +112,7 @@ The opening of the cove was wide and tall enough for a whole freighter. It opene
 
 "Oi, let's head toward the wall to the left," she said, "This place is big."
 
-We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a pebble jetty with a loud *shhhh-ch*, and stopped abruptly. Pomri wasted no time.
+We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a sand-and-pebble jetty with a loud *shhhh-ch*, and stopped abruptly. Pomri wasted no time.
 
 "Let's go," she said, already off the boat, and I instinctively clambered to the front, trying to keep my balance.
 
@@ -136,11 +136,58 @@ He hesitated, judging the voice against my motion, but then he sniffed a little 
 
 Behind, Pomri cried out in an exhausted voice, "Laen? Is it really you?"
 
-But Pomri was not one to celebrate before it was due. She asked him, "Laen, who is that maman?", and he replied with an undulating "wOOooOOoo", a sound of sorrow, not of fear. I took a look at the pendant that was tied up in his chin fur and felt for its telltale shapes and edges. It felt familiar in my fingers - it had to be Melna's.
+But Pomri was not one to celebrate before it was due. She asked him, "Laen, who is that maman?", and he replied with an undulating "wOOooOOoo", a sound of sorrow, not of fear. I took a look at the pendant that was tied up in his chin fur and felt for its telltale shapes and edges. It felt familiar in my fingers, much like Kipnu's did upon my own neck.
 
 "Whoever thi is," I said to Pomri, "Thi knows Melna."
 
+"Then I bet that other saffa is Boon," she said.
 
+After a pause, she called us to action again. "Come, let's get out of this cove."
+
+We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But from where we stood, at that impercetable edge between dark and light, life and death, we were well inside of it.
+
+Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock with dust in the air, hanging invisible to the eyes, but heavy to the nose. Laen had begun to sneeze a bit himself. I looked back at him, lying in a circle at the edge of the path, trying to find warmth in the thin light.
+
+"Cover your nose and mouth," she told me, holding a shawl.
+
+"I don't have anything that could protect him," Pomri explained, "He'll have to stay here."
+
+"I know... I just wanted to say goodbye."
+
+"Make it quick. We still have quite a hike before we reach the pier."
+
+I took the shawl from her hands and walked over to Laen with his ears perked up in anticipation. His gaze was trained upon me, yearning for answers that I couldn't find the words to explain.
+
+From a satchel, I pulled a morsel of roasted seaweed I had brought from home and offered it to him.
+
+"You hungry?"
+
+He wasn't, but he took it gently out of respect and placed it on his left paw for later.
+
+"WoOoo," he said in a grateful tone.
+
+I found the spot on his back where he loved to be scratched and ran my fingers through his fur. His reflexes shook him with satisfaction. Then I stopped and laid my head and hands against him and he rested his head on the ground and tilted it to the side to better hear me.
+
+"I'm so glad we found you, Laen."
+
+He didn't respond, just took in the moment.
+
+"Laen... When we're done here, you can stay with us. In Ulukoma."
+
+His ears perked up a little bit more, in calm excitement at the thought of a new home.
+
+"You'll have lots of fish. And pohua that grows in the dark. I know you like that."
+
+"oomm," he said with his mouth closed.
+
+"But for now, you have to take care of yourself. There's no safe place for us now. Your home...," I looked at the cloud of dust over Heiko, moved my focus to Ara. "The obscura."
+
+Laen made a long sigh, and I followed him, trying to process.
+
+
+
+
+*What will you do now?*, I wondered. Every departure seemed to be more of a goodbye.
 
 <!--
 They find Ginnu/not-Ginnu in the cove.
