@@ -138,17 +138,17 @@ Behind, Pomri cried out in an exhausted voice, "Laen? Is it really you?"
 
 But Pomri was not one to celebrate before it was due. She asked him, "Laen, who is that maman?", and he replied with an undulating "wOOooOOoo", a sound of sorrow, not of fear. I took a look at the pendant that was tied up in his chin fur and felt for its telltale shapes and edges. It felt familiar in my fingers, much like Kipnu's did upon my own neck.
 
-"Whoever thi is," I said to Pomri, "Thi knows Melna."
+"Whoever thi is," I said, "Thi knows Melna."
 
 "Then I bet that other saffa is Boon," she said.
 
 After a pause, she called us to action again. "Come, let's get out of this cove."
 
-We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But from where we stood, at that impercetable edge between dark and light, life and death, we were well inside of it.
+We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
 
-Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock with dust in the air, hanging invisible to the eyes, but heavy to the nose. Laen had begun to sneeze a bit himself. I looked back at him, lying in a circle at the edge of the path, trying to find warmth in the thin light.
+Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock where we got our bearings. While Pomri and I looked for tracks, Laen had chosen a spot at the edge of the path, trying to find warmth in the thin light. He had begun to sneeze a bit and I looked back toward him, concerned.
 
-"Cover your nose and mouth," she told me, holding a shawl.
+"Cover your face," she told me, holding a shawl. I wrapped the shawl over myself and waited for her to do the same with a piece of fabric ripped from her coat. I couldn't help but look at Laen again.
 
 "I don't have anything that could protect him," Pomri explained, "He'll have to stay here."
 
@@ -172,26 +172,35 @@ I found the spot on his back where he loved to be scratched and ran my fingers t
 
 He didn't respond, just took in the moment.
 
-"Laen... When we're done here, you can stay with us. In Ulukoma."
+"Now... we have to go on, and it's too dangerous for you to come with us."
+
+I spoke with a heavy heart, but Laen seemed to already know. He held his eyes open just enough to see me and closed enough to enjoy our time together peacefully.
+
+"You have to take care of yourself now, okay? Your home is..."
+
+I paused to stop my words and Laen made a long sigh, feeling the weight of them anyway.
+
+"Maybe you'll find Boon and that maman again. Or maybe we'll be back soon and then you can stay with us. In Ulukoma."
 
 His ears perked up a little bit more, in calm excitement at the thought of a new home.
 
-"You'll have lots of fish. And pohua that grows in the dark. I know you like that."
+"You'll have lots of fish. And that pohua stuff that grows in the dark. I know you like that."
 
 "oomm," he said with his mouth closed.
 
-"But for now, you have to take care of yourself. There's no safe place for us now. Your home...," I looked at the cloud of dust over Heiko, moved my focus to Ara. "The obscura."
+*What will you do now?*, I wondered. *What will I do?*
 
-Laen made a long sigh, and I followed him, trying to process.
+My face flushed in sadness and I laid back against him, putting the future out of my mind. I took one look at Melna's pendant, still twisted and tangled in his fur. I put Kipnu's up to it as well, listening to them jingle together. And then a thought came over me, and I pulled the listener off of my right ear. With a careful braiding of metal wire and tufts of fur, I braided in the listener just below his ear, making sure it wasn't so close as to damage his hearing.
 
+"The wind speaks," I whispered to him.
 
+"Ooo-Ooo," he responded. He didn't know the words, but that was okay.
 
+"Oi, kaln," Pomri called, "All the tracks are headed away. It's safe for now. Let's go!"
 
-*What will you do now?*, I wondered. Every departure seemed to be more of a goodbye.
+"Coming!"
 
-<!--
-They find Ginnu/not-Ginnu in the cove.
-She shows them Melna's and Kipnu's pendants as a token of trust.
--->
+"I love you Laen," I said solemnly to him before I left.
 
+He replied with a proper lick.
 
