@@ -146,6 +146,10 @@ After a pause, she called us to action again. "Come, let's get out of this cove.
 
 We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
 
+"We'll lose our bearings in this dust," said Pomri, "Let's head to the road."
+
+********
+
 Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock where we got our bearings. While Pomri and I looked for tracks, Laen had chosen a spot at the edge of the path, trying to find warmth in the thin light. He had begun to sneeze a bit and I looked back toward him, concerned.
 
 "Cover your face," she told me, holding a shawl. I wrapped the shawl over myself and waited for her to do the same with a piece of fabric ripped from her coat. I couldn't help but look at Laen again.
@@ -196,7 +200,7 @@ My face flushed in sadness and I laid back against him, putting the future out o
 
 "Ooo-Ooo," he responded. He didn't know the words, but that was okay.
 
-"Oi, kaln," Pomri called, "All the tracks are headed away. It's safe for now. Let's go!"
+"Oi, kaln," Pomri called, "It's safe for us to head in now. Let's go!"
 
 "Coming!"
 
