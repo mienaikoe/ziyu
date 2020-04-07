@@ -144,7 +144,7 @@ But Pomri was not one to celebrate before it was due. She asked him, "Laen, who 
 
 After a pause, she called us to action again. "Come, let's get out of this cove."
 
-We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
+We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara in shades of gray ochre. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
 
 "We'll lose our bearings in this dust," said Pomri, "Let's head to the road."
 
