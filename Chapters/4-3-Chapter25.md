@@ -11,7 +11,7 @@ The ground was punctuated with innumerable rocks, both sharply-pointed and still
 
 "All these tracks are headed toward Rudjan," she said, observing carefully. "Would have been the children who couldn't swim that distance. They would have been captured by the blockade by now – never had a chance."
 
-I imagined myself part of that swarm of children, running for our lives, only to be scooped up by a regiment of Rudjanese soldiers. Would we be sold into slavery to work in the desert? Or killed on the spot? I decided not to answer that question right now.
+I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjanese soldiers comes to scoop us up. Would we be sold into slavery to work in the desert? Or killed on the spot? I decided not to answer that question right now.
 
 "How will we know when we get to the harbor?" I asked.
 
@@ -31,6 +31,21 @@ She looked at me again, this time she held her stare.
 
 "Why do you ask such questions?"
 
+I had an answer but she wasn't looking for one.
+
+"You'll find out soon enough. Best not to dwell on thoughts like that. Focus on the task at hand."
+
+"Maybe we can find survivors better if we can figure out where they are."
+
+She turned to stop me, putting her hand on my shoulder.
+
+"Look around, Linyu! You think someone could survive this chaotic mess?"
+
+She lifted her hands and turned back toward the darkness.
+
+"We're here for confirmation. For our own closure. Nothing more."
+
+I wanted to cry, but I got angry instead, and took off walking in front of her. I wouldn't let her see or hear my tears.
 
 <!--
 
