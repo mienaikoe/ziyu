@@ -45,7 +45,7 @@ She lifted her hands and turned back toward the darkness.
 
 "We're here for confirmation. For our own closure. Nothing more."
 
-I wanted to cry, but I got angry instead, and took off walking in front of her. I wouldn't let her see or hear my tears.
+I wanted to cry, but got angry instead and took off walking in front of her. My tears were not for her to see.
 
 <!--
 
