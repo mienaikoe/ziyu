@@ -2,10 +2,10 @@
 ## Chapter 2
 
 
-  After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me. 
-  
+  After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me.
+
   I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. Every day was a repeat of the same movements I had ingrained in myself from countless mornings of dressing with my mother, but they had grown from a boring repetitive task, to a calming daily ritual.
- 
+
   We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. She would carry me in a big thatch bag on her back while she tilled, planted, harvested. I watched her hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much she could plant and harvest and aspire to do the same. It's been 6 seasons since she passed, but she lives as vividly in my memories as she did in life.
 
   "I bet you'll plant 1000 today, Liffa"
@@ -68,7 +68,7 @@
 
   "They're doing just fine, okay? Kip is having a great start at the clinic, and Mel is representing this village to the council. Is that what you're looking for?"
 
-  She sughed, went quiet, and resumed her work while I stared at her indignantly.  
+  She sughed, went quiet, and resumed her work while I stared at her indignantly.
 
   "A jealous Maman never rests," she said out of nowhere.
 
@@ -92,7 +92,7 @@
 
   *I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?*. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
 
-  There was a knock at the door to snap me awake. *Is it that Tiggu again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *Žesse? Delivering a message now? What could he possibly want?*
+  There was a knock at the door to snap me awake. *Is it that Tiggu again come to tell me I was rude?* I sat up and quietly snuck toward the door to see who it was. *Jesse? Delivering a message now? What could he possibly want?*
 
   I cracked the door with my trousers still beside it and he started as soon as the door opened.
 

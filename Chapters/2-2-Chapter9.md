@@ -44,7 +44,7 @@ Setre whispered something in hae ear, and the maman looked Kip up and down with 
 
 The maman spoke to him with a charming face.
 
-"Hello Kipnu. My name is Lissa. I own this island and all the people on it, including you. If you do what is asked of you, all of your fantasies will be fulfilled," thi said with hae voice and thoughts trailing off into some other time and place.
+"Aey Kipnu. My name is Lissa. I own this island and all the people on it, including you. If you do what is asked of you, all of your fantasies will be fulfilled," thi said with hae voice and thoughts trailing off into some other time and place.
 
 "If you choose not to... we have a way to steal all of your fun."
 

@@ -5,12 +5,12 @@
 
   In this chapter, I'm exploring the first instance of action writing.
 
-  The messenger, Žesse is delivering a note from a local observatory
+  The messenger, Jesse is delivering a note from a local observatory
   that has found evidence of a peculiar sunspot that doesn't move and is growing.
 
   He doesn't know what's in the message. Only that there has been an ongoing correspondence between Mel and observer Shib, and that this message was urgent.
 
-  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Žesse nor Lif can understand it.
+  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Jesse nor Lif can understand it.
 
   Lif decides to go to the city (about 100km - 5 clicks away) to find out more. Once she gets there, she is stopped and told to wait as the meeting is already underway. Lif uses her agility and stealth to snoop on the meeting after Mel has delivered her news. The meeting is still tough to understand as there is heated argument and debate about what to do. The chapter ends on a pivotal reveal of the plot driver
 
@@ -34,7 +34,7 @@
 -------
 
 
-  The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Žesse and me.
+  The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jesse and me.
 
   "Laen-Laen, good morning!"
 
@@ -54,9 +54,9 @@
 
   "There we go. Now lets get you ready."
 
-  I took a soft linen blanket from the wall and paused a moment to remember when Žesse and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+  I took a soft linen blanket from the wall and paused a moment to remember when Jesse and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
 
-  *Not the time for memories*. I snapped out and hopped on while rushing to the front gate where Žesse was waiting for me.
+  *Not the time for memories*. I snapped out and hopped on while rushing to the front gate where Jesse was waiting for me.
 
   "Didn't think we would be doing this again, " he said.
 
@@ -72,7 +72,7 @@
 
   At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen-Laen. I gave him a thankful pat on the neck and he gave me back a small whoop of acknowledgement.
 
-  When I entered, Žesse was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+  When I entered, Jesse was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
   "Shaki Conduit, This is Heiko Conduit."
 
@@ -100,7 +100,7 @@
 
   "Transferring you to Heiko Senate. Please wait a moment."
 
-  I took the moment of silence to shift to a chair and sit down close to Žesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
+  I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
   The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
 
@@ -160,7 +160,7 @@
 -------
 
 
-  "Hello? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
+  "Aey? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
 
   "Hey I'm sorry to wake you but I need to talk."
 

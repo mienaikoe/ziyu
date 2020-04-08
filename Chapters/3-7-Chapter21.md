@@ -208,7 +208,7 @@ A moment passed and then my voice leapt into the room, "Melna. It's really you! 
 
 We paused, looking for something to say, but Melna knew she couldn't let the conversation go slack. She picked up again, "How's the weather where you are?"
 
-I giggled at her joke, then felt a pang of longing for a simpler time. 
+I giggled at her joke, then felt a pang of longing for a simpler time.
 
 "Cool and partly obscura-y," I said, covering my pain. "It's rather beautiful up here. I'll paint it for you someday."
 
@@ -230,7 +230,7 @@ He said to her calmly, "You disrespect me, Melna. I didn't want to resort to thi
 
 She stared at him intently, trying to figure out his angle. *He needs me,* she thought. *He wouldn't put all this together and muffle me just to toy with me.*
 
-Fajro regained his stance, keeping Melna in the corner of his eye, and took up the microphone and listener again. 
+Fajro regained his stance, keeping Melna in the corner of his eye, and took up the microphone and listener again.
 
 "Sorry about that, Liffa," he said to me. I was too confused to answer. "Now, if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see around you?"
 
@@ -260,11 +260,11 @@ Fajro turned away fom Melna and spoke to me at a softer volume so Melna couldn't
 
 "What's wrong?" He sounded legitimately concerned.
 
-I peered through a crack and saw what I would never have expected. There were reflections from the other side of Ara. The wall covered the entirety of our star. 
+I peered through a crack and saw what I would never have expected. There were reflections from the other side of Ara. The wall covered the entirety of our star.
 
 "This wall of shapes. It doesn't end. They're forming a sphere around Ara, and I'm headed straight into it."
 
-"What?!" he said loudly. Melna heard the worry in this word along with the rest of the people listening in. He turned around to see everyone staring, and then went quiet again. 
+"What?!" he said loudly. Melna heard the worry in this word along with the rest of the people listening in. He turned around to see everyone staring, and then went quiet again.
 
 I continued, worried, "What. What do I do?"
 
@@ -328,7 +328,7 @@ If Liffa lies instead, and says it's just a big rock in the way, Fajro will be s
 - knows there are bombs on her Trajectory
 - could have calculated or heard from Setre that Heiko would be where they land.
   - Setre would have to know trajectories, which her army isn't trained to do.
-  - Žesse, Thimlu, or Melna would have to tell hae somehow.
+  - Jesse, Thimlu, or Melna would have to tell hae somehow.
 
 Tenets
 - Liffa does not have knowledge of Linyu, Setre.

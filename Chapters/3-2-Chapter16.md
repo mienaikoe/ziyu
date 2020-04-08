@@ -1,7 +1,7 @@
 <!--
 
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
-- Melna goes to see Žesse, and Linyu is there
+- Melna goes to see Jesse, and Linyu is there
 - Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
 - The two travel to Rudjan and talk on the way.
 - At Rudjan, they meet Ramne and Ginnu
@@ -23,7 +23,7 @@
 
   She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. Liffa's robes had been left in the washroom and there was no other sign of Linyu.
 
-  With little time to spare that day, she resolved to carry on with her day and have Žesse, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
+  With little time to spare that day, she resolved to carry on with her day and have Jesse, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
 
   She approached the stable, calling, "Laen-Laen," but she heard nothing. She checked the stable and Laen-Laen was gone.
 
@@ -59,7 +59,7 @@
 
   Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
 
-  "No. It's much too dangerous. It's better if you stay here with Žesse."
+  "No. It's much too dangerous. It's better if you stay here with Jesse."
 
   Thi stood up now and approached her. "With. You," thi insisted.
 

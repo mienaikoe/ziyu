@@ -46,7 +46,7 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Žesse is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
+"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Jesse is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
 
 "We shall keep a constant eye."
 

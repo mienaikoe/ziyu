@@ -52,7 +52,7 @@ She turned and bowed as a parting gesture and looked back toward Rudjan with all
 
 Her feet retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
-"Hello?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured something quiet into the microphone and then shuffled from the desk to approach her.
+"Aey?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured something quiet into the microphone and then shuffled from the desk to approach her.
 
 "You can't be here. Please leave."
 
