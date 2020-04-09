@@ -47,19 +47,23 @@ She lifted her hands and turned back toward the darkness.
 
 I wanted to cry, but got angry instead and took off walking in front of her. My tears were not for her to see.
 
-Ahead in the distance, I heard the cries of a man, interspersed with fits of coughing – an even split of the two. At first I thought my ears betrayed me, but as we approached, the sound grew in volume. I traced it to a direction nearer Ara and took off. Pomri was behind me screaming "Wait! Where're you going now?" but I did not stop.
+Ahead and above in the distance, I heard the cries of a man, interspersed with fits of coughing – an even split of the two. At first I thought my ears betrayed me, but as we approached, the sound grew in volume. I traced it to a direction nearer Ara and took off. Pomri was behind me screaming "Wait!" but I did not stop.
 
-In the dust, he knealt with his head in his hands, a silhouette in the ambience. I came to him, yelling, "Aey, you alright?" but suddenly the ground below me gave way, and I tripped toward a black void. My hearts quickly jumped to slow my time perception but there was nothing for me to grab, nothing to stop the fall. I had no idea how deep it was, but I knew I would certainly die.
+The ground began to absolutely teem with rocks as it sloped upward. *This hill wasn't here before. Heiko is a flat grassland.* I reached a point where the rocks continued but the land leveled off again. A few paces away, I saw him through the dust. He knealt with his hands behind his head, nodding his torso back and forth. I came to him, yelling, "Aey-o. you alright?" but suddenly a rock below me gave way, and I stumbled. My reflexes lurched my hands towards the closest rocks, scraping them as they clambered for a solid grasp. Below me was a sudden drop and a black void. Its depth was unknowable, but I knew I would certainly die if I let go now.
 
-"Got you," she said, pulling me back up by the foot. "What are you thinking running off in the dark like that?"
+"Got you," she said, grasping my wrist. "What are you thinking running off in the dark like that?"
 
-My breath and my words were paused in shock, but still I heard the man crying, unaware of me or Pomri. As I caught my breath while Pomri approached him slowly.
+My breath and my words were paused in shock as she pulled me back onto the clifftop.
 
-"Who's there?" she asked harshly. But he didn't respond.
+"We've reached the crater. Try your best not to fall into it again."
+
+As I caught my breath, I shushed Pomri to listen for the sounds of the man that led me here. Still he was crying, close to us yet unaware of me or Pomri.
+
+"Who's there?" she asked harshly. But he didn't respond. She approached the sound carefully.
 
 "Speak!" she tried being demanding, but still he didn't respond.
 
-She laid a hand on him, and he panicked, stumbling on himself and wheezing heavily as he backed away. His eyes were bloodshot, and his face caked with black ash.
+She laid a hand on his shoulder and he panicked, stumbling on himself and wheezing heavily as he backed away. His eyes were bloodshot, and his face caked with black ash.
 
 "I have nothing to give you," he said staring at her feet. "Take my life or leave me to my grief," he said.
 
@@ -97,17 +101,17 @@ She stooped down and shook his hand eagerly.
 
 "Try to remember," she said.
 
-"Why can't I remember?! Wait... who are you? I have nothing to give. Stay away!"
+"Why can't I remember?! Wait... who are you? I have nothing to give you. Stay away!"
 
 He turned around to run away from us and it was then that I noticed a large bruise on the back of his head that he had been covering with his hand. With a fit, he coughed loudly as if he had been holding it in. Black mucus appeared on his hand.
 
 "Leave me be," he said to us.
 
-We stood there for a while, letting his fate settle within us. Then Pomri interjected, "Let's go," and took off toward Ara while I stayed in toe. Before the dust swallowed him, I looked back at his ashen face, and internalized it. It was a scene I would never forget.
+We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ara while I stayed in toe. Before the dust swallowed him, I looked back at his ashen face, and internalized it. It was something I promised myself never to forget.
 
 ********
 
-
+We followed the crater edge toward the harbor, making a note of its size by tracking our paces from road to road. Its immensity was unsettling. If not for the dust, the realization of complete absence may have paralyzed me the way it had Jesse. But Pomri kept me going, and I wondered at her driving force.
 
 
 
