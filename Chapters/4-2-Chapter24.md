@@ -20,7 +20,7 @@ They are driven into the desert
 
 "Are you worried?"
 
-"No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. Behind the both of them I added my effort, trying to keep up with Pomri, but her height and strength eclipsed my own.
+"No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. I sat behind, adding  my effort and trying to keep up with Pomri, but her height and strength eclipsed my own.
 
 "What if we find her?"
 
@@ -58,13 +58,13 @@ We paused to absorb the reality that came with that cloud.
 
 "When I heard the explosions... paddling my heart out in the thick fog... All I could think of... was Melna. Nothing else... Nothing else mattered to me in that moment."
 
-My mind thought of that moment. I knew Melna had accomplished her goal, had taken care of herself. But I thought of no one but Laen-Laen.
+My mind recalled the moment she spoke of. I knew Melna had accomplished her goal. I knew that she wouldn't have had it any other way. But I thought of no one but Laen-Laen.
 
-"Love is weird like that," I said, trying to break the dark mood.
+"Love is weird like that," I said. I tried to break the dark mood, but secretly, I also felt it.
 
-But she sustained it, "Love. There were times where," she exhaled as if to simper, remembering something, "It must have come to that."
+But she sustained it, "Love," she exhaled as if to simper, stuck in some moment from the past, "There were times... where it must have come to that."
 
-I placed my hand on her back, letting her fix time for a moment of solace. I added no more ponderance than deserved it.
+I placed my hand on her back, letting her fix time for a moment of solace. I added no more pondering than deserved it.
 
 "Love is why we're out here in the cold. To give closure to the ones that stayed behind. To the ones who didn't get to say goodbye."
 

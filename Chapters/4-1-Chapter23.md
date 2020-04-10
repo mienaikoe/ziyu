@@ -2,9 +2,9 @@
 
 "Liffa!"
 
-I stood in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the ongoing reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of its urgency.
+I stood in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of its urgency.
 
-"Liffa!" I screamed hysterically into the microphone, but I knew that thi could not hear me across such a distance. Holrag had undoubtedly given up on hae, but I couldn't do that.
+"Liffa!" I screamed hysterically into the microphone, but I knew that thi couldn't hear me across such a distance. Holrag had undoubtedly given up on hae, but I wouldn't.
 
 Setre came to me and put a hand on my shoulder, but I was stubborn, shrugged her hand off, and pressed the button, "Liffa, please pick up if you can hear this."
 
@@ -32,7 +32,7 @@ I caught her meaning, albeit a little late, but she saw the value in this moment
 
 Her voice had calmed to a cajole, "By talking to the people around you. Now let's head back and start doing that."
 
-Reluctantly, I nestled the microphone onto a bend in the branches and looked out into the crowd of Heikoans and Ulukomans huddled around small fires dotting the ground surrounding the wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire on the basin, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke up and the first thing I saw was a look of concern on his face.
+Reluctantly, I nestled the microphone onto a bend in the branches and looked out into the crowd of Heikoans and Ulukomans. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life.
 
 These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
@@ -48,9 +48,9 @@ She heard Pomri, and wanted to believe her, but she knew the power of the weapon
 
 "Why would they do that? They've already finished with us. What could they possibly still want with Heiko now?"
 
-"They will not stop, Pomri. Not until everyone is under their thumb."
+"They will not stop. Not until everyone is under their thumb."
 
-"Then let us prick their thumbs," she said with nearly a smile, "until there is no more blood to spill."
+"Then let us prick the thumb with sword and spear," she said with nearly a smile, "until there is no more blood to spill."
 
 Setre let out a sigh, seeing that she wouldn't be able to convince her that easily.
 

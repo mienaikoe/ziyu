@@ -107,13 +107,25 @@ He turned around to run away from us and it was then that I noticed a large brui
 
 "Leave me be," he said to us.
 
-We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ara while I stayed in toe. Before the dust swallowed him, I looked back at his ashen face, and internalized it. It was something I promised myself never to forget.
+We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ara while I stayed in toe. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
 
 ********
 
-We followed the crater edge toward the harbor, making a note of its size by tracking our paces from road to road. Its immensity was unsettling. If not for the dust, the realization of complete absence may have paralyzed me the way it had Jesse. But Pomri kept me going, and I wondered at her driving force.
+We followed the crater edge toward the harbor, making a note of its size by tracking our paces from long road to Ulu road. Its immensity was unsettling. If not for the dust, the realization of an insuperable absence the size of Heiko Center may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
 
+An excessive amount of questions filled my mind. This place was so alien to me, I struggled to understand even the minute parts of it. Why were the rocks so jagged and the dust so incessant? Were there others like Jesse, living only to die slowly? But I knew she would say *"Oi, kaln. Stop asking questions"*. So I kept my mouth shut and removed the curiosity from my mind.
 
+I was first to hear the shoreline, and an odd rushing of water that I hadn't heard before.
+
+"We're close to the shore. But there's also... some strange rushing sound. Like a river. Do you hear that?"
+
+She paused to listen closer and heard nothing, so she signalled for me to lead the way. I stood next to her, following my ears to the source until she could hear it too, then we both hurried to find a broad, broken channel of ocean ripping through rock and into the crater.
+
+"The harbor is on the other side," she said, "We can't cross through, it's too dangerous."
+
+She closed her eyes, imagining what this singular thing might mean for everything else.
+
+"There must be dozens of these all along the shore."
 
 <!--
 
