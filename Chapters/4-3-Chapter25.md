@@ -115,13 +115,11 @@ We stood there for a while, letting go of him and his fate. Then Pomri interject
 
 ---
 
-We followed the crater edge toward the observatory, making a note of its size by tracking our paces from the long road to Ara road. Its immensity was unsettling. If not for the dust, the realization of an insuperable absence the size of Heiko Center may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
+We followed the crater edge toward the observatory, making a note of its size by tracking our paces from the long road to the Ara road. The immensity of the crater was unsettling. If not for the dust, the realization of an insuperable absence the size of a city may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
 
-An excessive amount of questions filled my mind. This place was so alien to me, I struggled to understand even the minute parts of it. Why were the rocks so jagged and the dust so incessant? Were there others like Jesse, living only to die slowly? But I knew she would say _"Oi, kaln. Stop asking questions"_. So I kept my mouth shut and removed the curiosity from my mind.
+This place seemed so alien to me, even though I had been there just a day before. I struggled to understand even the minute parts of it: why were the rocks so jagged and the dust so incessant? were there others like Jesse, living only to die slowly? But I knew that if I asked she would say _"Oi, kaln. Now is not the time."_. So I did what my mother taught me to do once. I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness. I saw it as I understood it – in the absence of sight, I could paint the image of my world on my mind. I saw a deep hole; as deep as the tallest tree is tall. A sword falling from the sky, turning the earth into dust, pushing it out in every direction. It was the concrete of their homes, the boulders upon which they built, cracked and heated and pulverized into trillions of rocks and pebbles and specks of dust. And here, we stood
 
 <!-- Todo -->
-
-I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness.
 
 <!--
 I was first to hear the shoreline, and an odd rushing of water that I hadn't heard before.
