@@ -20,7 +20,7 @@ They are driven into the desert
 
 "Are you worried?"
 
-"No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. I sat behind, adding  my effort and trying to keep up with Pomri, but her height and strength eclipsed my own.
+"No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. I sat behind, adding my effort and trying to keep up with Pomri, but her height and strength eclipsed my own.
 
 "What if we find her?"
 
@@ -82,7 +82,7 @@ I nodded and she turned back forward to resume her posture.
 
 She told me over her shoulder, "we're entering a dangerous place. There may be looters or Holragi soldiers searching for survivors. The land itself may be fragile and broken. You'll have to keep your wits about you at all times."
 
-"Got it," I said. *I hope I do.*
+"Got it," I said. _I hope I do._
 
 "We have about two va'na of paddling left. Can you make it?"
 
@@ -94,13 +94,11 @@ My resolve was affirmed with a nod. There was no turning back.
 
 A firm command from Pomri, and we took up our paddles again, resuming the slow cadence of wood against the water.
 
-
--------
-
+---
 
 "Waves," I said, "Hitting land. Over there."
 
-I pointed to the right just in Pomri's view, and she paused to listen closer. *Resonance.*
+I pointed to the right just in Pomri's view, and she paused to listen closer. _Resonance._
 
 "A cove," I said, to her surprise, "We can find cover for our boat."
 
@@ -112,7 +110,7 @@ The opening of the cove was wide and tall enough for a whole freighter. It opene
 
 "Oi, let's head toward the wall to the left," she said, "This place is big."
 
-We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a sand-and-pebble jetty with a loud *shhhh-ch*, and stopped abruptly. Pomri wasted no time.
+We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a sand-and-pebble jetty with a loud _shhhh-ch_, and stopped abruptly. Pomri wasted no time.
 
 "Let's go," she said, already off the boat, and I instinctively clambered to the front, trying to keep my balance.
 
@@ -124,9 +122,9 @@ At the edge of the outside light, I saw two giant silhouettes of saffas, perched
 
 Pomri began to approach, to put distance between me and the walking sound. She was deliberately slow and silent. Only taking a step with each wave that boomed into the mouth.
 
-But then the footsteps stopped with a larger thud, as if the mysterious person had plopped all their body weight on the ground. *We are intruders here.*
+But then the footsteps stopped with a larger thud, as if the mysterious person had plopped all their body weight on the ground. _We are intruders here._
 
-Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as the shadow fled back toward the saffas. I ran after, evading Pomri's hands and protests not to go. *This isn't an enemy, It can't be.*
+Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as the shadow fled back toward the saffas. I ran after, evading Pomri's hands and protests not to go. _This isn't an enemy, It can't be._
 
 The stranger passed between the saffas, and out of the cove where the remaining Ara-light shone against hae back. I was aghast at hae feeble figure, hydroderm swollen with cold and sunken with hunger. But before I could reach hae, one of the saffas had turned and picked hae up, while the other stood ground guarding their getaway. Through the growling and shuffling of feet, I heard a sound I'd not expected to hear: the ringing jingles of a binding pendant as it rocked this way and that around the saffa's neck. And then I saw him – the thick fur and the big ears and the myriad different mannerisms that were unmistakable for anyone else but my best friend.
 
@@ -144,11 +142,11 @@ But Pomri was not one to celebrate before it was due. She asked him, "Laen, who 
 
 After a pause, she called us to action again. "Come, let's get out of this cove."
 
-We followed Laen out onto beach where the light seemed brighter than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara in shades of gray ochre. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
+We followed Laen out onto beach where the light seemed brighter and bluer than before, a trick of the eyes. The smell of soot and ash hung on the air, a harbinger of the dark cloud that towered over Heiko. High above, it lofted into the coldwinds and hotwinds, spreading both toward and away from Ara in shades of gray ochre. Perhaps bits of it lifted into stellar space, reaching out for Liffa. But there we stood, at that imperceptable edge between dark and light, life and death, and we were in it.
 
 "We'll lose our bearings in this dust," said Pomri, "Let's head to the road."
 
-********
+---
 
 Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock where we got our bearings. While Pomri and I looked for tracks, Laen had chosen a spot at the edge of the path, trying to find warmth in the thin light. He had begun to sneeze a bit and I looked back toward him, concerned.
 
@@ -192,7 +190,7 @@ His ears perked up a little bit more, in calm excitement at the thought of a new
 
 "oomm," he said with his mouth closed.
 
-*What will you do now?*, I wondered. *What will I do?*
+_What will you do now?_, I wondered. _What will I do?_
 
 My face flushed in sadness and I laid back against him, putting the future out of my mind. I took one look at Melna's pendant, still twisted and tangled in his fur. I put Kipnu's up to it as well, listening to them jingle together. And then a thought came over me, and I pulled the listener off of my right ear. With a careful braiding of metal wire and tufts of fur, I braided in the listener just below his ear, making sure it wasn't so close as to damage his hearing.
 
@@ -207,4 +205,3 @@ My face flushed in sadness and I laid back against him, putting the future out o
 "I love you Laen," I said solemnly to him before I left.
 
 He replied with a proper lick.
-

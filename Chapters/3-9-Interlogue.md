@@ -1,19 +1,24 @@
 ## Interlogue
 
-*Log 31 - 2:4:0:5*
+_Log 31 - 2:4:0:5_
 
+<!-- "So. I guess I should deliver my report then." -->
 
-"So. I guess I should deliver my report then."
+The light of the end hung above, ever growing, ever imminent.
 
-A few breaths to calm haeself.
+This was surely the end.
 
-"I don't know if you can hear me down there but I'm still alive. It's been two–"
+A few breaths to calm haeself, then thi turned a knob and a brass tumbler near hae head began rotating from beneath a glass window. Thi flipped a switch labelled "etch" and a small needle began making markings in the tumbler.
+
+"I don't know if you can hear me down there but I'm still alive."
+
+"It's been two–"
 
 Thi choked back a tear and listened to the stale echo of hae voice in the cabin.
 
-"Two days. Four va'la... since launch."
+"Two days... and Four va'la... since launch."
 
-"This is my first *last* ... first log since radio silence at apogee. I passed through the obscura unscathed. Whether this was an intentional gesture or, *heh*, just dumb luck, I... I don't know."
+"This is my first" _last_ "... first log since radio silence. I passed through the obscura unscathed. Whether this was an intentional gesture or just dumb luck, I... I don't know."
 
 "Of course, you know by now, that the obscura is surrounding all of Ara like a shell. Not just our own corner of the sky. Even if we could blast away the portion nearest us, something else would come to fill it up. We never stood a chance."
 
@@ -43,4 +48,4 @@ A high-pitched ringing sound snuck into the sound field. Hae binding pendant.
 
 "It's getting rather hot up here. Think I'll spare you the details."
 
-"Linyu, if you're listening to this somehow. Thank y–" *click*
+"Linyu, if you're listening to this somehow. Thank y–" _click_

@@ -111,31 +111,45 @@ He turned and shuffled away from us with his hand still holding the back of his 
 
 "Leave me be," he said to us.
 
-We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ara while I stayed in toe. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
+We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. An arm rested on my shoulder and broke me from my trance.
+
+"Hey. We need to get moving."
+
+My legs began to move, but still I was there in front of him, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
 
 ---
 
-We followed the crater edge toward the observatory, making a note of its size by tracking our paces from the long road to the Ara road. The immensity of the crater was unsettling. If not for the dust, the realization of an insuperable absence the size of a city may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
+We followed the crater edge toward the harbor, making a note of its size by tracking our paces from the long road to the Ulu road. The immensity of the crater was unsettling. If not for the dust, the realization of an absence the size of a city may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
 
-This place seemed so alien to me, even though I had been there just a day before. I struggled to understand even the minute parts of it: why were the rocks so jagged and the dust so incessant? were there others like Jesse, living only to die slowly? But I knew that if I asked she would say _"Oi, kaln. Now is not the time."_. So I did what my mother taught me to do once. I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness. I saw it as I understood it – in the absence of sight, I could paint the image of my world on my mind. I saw a deep hole; as deep as the tallest tree is tall. A sword falling from the sky, turning the earth into dust, pushing it out in every direction. It was the concrete of their homes, the boulders upon which they built, cracked and heated and pulverized into trillions of rocks and pebbles and specks of dust. And here, we stood
+This place seemed so alien to me, even though I had been there just a day before. I struggled to understand even the minute parts of it: why were the rocks so jagged and the dust so incessant? were there others like Jesse, living only to die slowly? But I knew that if I asked she would say _"Oi, kaln. Now is not the time."_. So I did what my mother taught me to do once. I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness. I saw it as I understood it – in the absence of sight, I could paint the image of my world on my mind. I saw a deep hole; as deep as the tallest tree is tall. A sword falling from the sky, turning the earth into dust, pushing it out in every direction. It was the concrete of their homes, the boulders upon which they built, cracked and heated and pulverized into trillions of rocks and pebbles and specks of dust. We were but a ship of the living making our way across an ocean of the dead.
 
-<!-- Todo -->
+"Lin, what're you doing? Keep up."
 
-<!--
-I was first to hear the shoreline, and an odd rushing of water that I hadn't heard before.
+I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water were present behind her.
 
-"We're close to the shore. But there's also... some strange rushing sound. Like a river. Do you hear that?"
+"We're close to the shore," she said. "But there's also... some strange rushing sound. Like a river. Do you hear that?"
 
-She paused to listen closer and heard nothing, so she signalled for me to lead the way. I stood next to her, following my ears to the source until she could hear it too, then we both hurried to find a broad, broken channel of ocean ripping through rock and into the crater.
+I paused to listen closer, then followed my ears to the source: a broad, broken channel of ocean ripping through and around scattered rocks and into the crater.
 
-"The harbor is on the other side," she said, "We can't cross through, it's too dangerous."
+"The harbor is on the other side," she said, "But we can't cross here without getting swept into the water."
 
+"The rocks. We can cross along the tops of them. Shouldn't be more than twelve."
 
-"There must be dozens of these all along the shore." -->
+She paused for a moment, thinking of another way. She set down her lantern and produced a rope from her satchel, tying it first around herself, then around me.
+
+"In case you fall in," she said, and I remembered what it felt like to almost drown and almost fall into a crater.
+
+She led us over the rocks, wet with splashing, and jagged enough for me to be thankful of shoes. We used the butt of her spear to stabilize on every crossing.
 
 <!--
 
 Pomri secretly is betraying Linyu?
   Why?
 
+-->
+
+<!--
+I snapped my eyes up and saw Pomri's lantern-lit face at the foot of a hill with a heavily damaged sign beside the path. *eik...servatory... A*.
+
+"Come on. The quicker we reach the top, the quicker we can ."
 -->
