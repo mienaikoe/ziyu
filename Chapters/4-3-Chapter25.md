@@ -123,33 +123,28 @@ We followed the crater edge toward the harbor, making a note of its size by trac
 
 This place seemed so alien to me, even though I had been there just a day before. I struggled to understand even the minute parts of it: why were the rocks so jagged and the dust so incessant? were there others like Jesse, living only to die slowly? But I knew that if I asked she would say _"Oi, kaln. Now is not the time."_. So I did what my mother taught me to do once. I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness. I saw it as I understood it – in the absence of sight, I could paint the image of my world on my mind. I saw a deep hole; as deep as the tallest tree is tall. A sword falling from the sky, turning the earth into dust, pushing it out in every direction. It was the concrete of their homes, the boulders upon which they built, cracked and heated and pulverized into trillions of rocks and pebbles and specks of dust. We were but a ship of the living making our way across an ocean of the dead.
 
-"Lin, what're you doing? Keep up."
+"Lin, what're you doing?"
 
-I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water were present behind her.
+I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her. The dust was thinner here, as I presumed that the ocean was acting as a sponge, but our visibility was still no longer than a Lao'ta.
 
-"We're close to the shore," she said. "But there's also... some strange rushing sound. Like a river. Do you hear that?"
+"We're at the shore," she said, "But the crater continues into the water. There's nothing left... of the harbor."
 
-I paused to listen closer, then followed my ears to the source: a broad, broken channel of ocean ripping through and around scattered rocks and into the crater.
-
-"The harbor is on the other side," she said, "But we can't cross here without getting swept into the water."
-
-"The rocks. We can cross along the tops of them. Shouldn't be more than twelve."
-
+<!-- The following is bent on a crossing, but idk. It's also just a really good scene. -->
+<!--
 She paused for a moment, thinking of another way. She set down her lantern and produced a rope from her satchel, tying it first around herself, then around me.
 
-"In case you fall in," she said, and I remembered what it felt like to almost drown and almost fall into a crater.
+"In case you fall in," she said. I remembered what it felt to fall into a crater, to drown in the dark, and I wasn't keen on doing either of those things again.
 
-She led us over the rocks, wet with splashing, and jagged enough for me to be thankful of shoes. We used the butt of her spear to stabilize on every crossing.
-
-<!--
-
-Pomri secretly is betraying Linyu?
-  Why?
-
+She led us over the rocks, jagged, and wet with the rushing of waves. Her spear became a pole to stabilize us on the treacherous jumps between rocks. I was thankful for the durability of my shoes.
 -->
 
 <!--
-I snapped my eyes up and saw Pomri's lantern-lit face at the foot of a hill with a heavily damaged sign beside the path. *eik...servatory... A*.
+Pomri secretly is betraying Linyu?
+  Why tho?
+-->
+
+<!--
+Pomri's lantern-lit face at the foot of a hill with a heavily damaged sign beside the path. *eik...servatory... A*.
 
 "Come on. The quicker we reach the top, the quicker we can ."
 -->
