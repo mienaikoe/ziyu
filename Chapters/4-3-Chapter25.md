@@ -125,9 +125,17 @@ This place seemed so alien to me, even though I had been there just a day before
 
 "Lin, what're you doing?"
 
-I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her. The dust was thinner here, as I presumed that the ocean was acting as a sponge, but our visibility was still no longer than a Lao'ta.
+I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her. The dust was thinner here, as I presumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
 
-"We're at the shore," she said, "But the crater continues into the water. There's nothing left... of the harbor."
+"The crater continues into the water," she said. "There's nothing left."
+
+Then she continued, "She's in there somewhere. I have to find her," and continued walking up the crater rim.
+
+"Pomri, there's nothing over there!" I said in futility. But I had to follow her to make sure she was safe.
+
+This was truly the darkest place in Palinan. I could no longer see anything save for glimpses of rock and Pomri – whatever her lantern revealed.
+
+"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. I could see Pomri's light in the distance, growing smaller, quieter, more erratic, and I briefly panicked as I could no longer remember the ground where she ran.
 
 <!-- The following is bent on a crossing, but idk. It's also just a really good scene. -->
 <!--
