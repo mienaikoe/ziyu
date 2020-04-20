@@ -192,7 +192,7 @@ His ears perked up a little bit more, in calm excitement at the thought of a new
 
 _What will you do now?_, I wondered. _What will I do?_
 
-My face flushed in sadness and I laid back against him, putting the future out of my mind. I took one look at Melna's pendant, still twisted and tangled in his fur. I put Kipnu's up to it as well, listening to them jingle together. And then a thought came over me, and I pulled the listener off of my right ear. With a careful braiding of metal wire and tufts of fur, I braided in the listener just below his ear, making sure it wasn't so close as to damage his hearing.
+My face flushed in sadness and I laid back against him, putting the future out of my mind. I took one look at Melna's pendant, still twisted and tangled in his fur. I put Kipnu's up to it as well, listening to them jingle together. And then a thought came over me, and I pulled a listener from my satchel. With a careful braiding of metal wire and tufts of fur, I braided it in just below his ear, making sure it wasn't so close as to damage his hearing.
 
 "The wind speaks," I whispered to him.
 

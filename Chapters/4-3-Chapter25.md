@@ -101,21 +101,21 @@ She stooped down, holding the lantern to his face, and shook his hand eagerly.
 
 "Try to remember," she demanded.
 
-"Why can't I remember?!" he cried. "I can't...my..."
+"I can't remember!" he cried. "I can't...my..."
 
 His pupils began to constrict and we watched as his mind began to slip backward in time.
 
-"Wait... who are you?... I have nothing to give you. Stay away!"
+"Wait... who are you?... I have nothing to give you. Go away!"
 
-He turned and shuffled away from us with his hand still holding the back of his head. With a fit, he coughed loudly as if he had been holding it in. Black mucus appeared on his hand.
+He turned and shuffled away from us with his hand still holding the back of his head. With a fit, he coughed loudly as if he had been struggling to hold it in. Black mucus appeared on his hand.
 
 "Leave me be," he said to us.
 
-We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. An arm rested on my shoulder and broke me from my trance.
+We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance.
 
 "Hey. We need to get moving."
 
-My legs began to move, but still I was there in front of him, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
+My legs began to move, but I was still in my mind, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
 
 ---
 
@@ -135,7 +135,13 @@ Then she continued, "She's in there somewhere. I have to find her," and continue
 
 This was truly the darkest place in Palinan. I could no longer see anything save for glimpses of rock and Pomri – whatever her lantern revealed.
 
-"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. I could see Pomri's light in the distance, growing smaller, quieter, more erratic, and I briefly panicked as I could no longer remember the ground where she ran.
+"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. Pomri's light danced around in the distance, growing smaller, quieter, more erratic, and I briefly panicked at the distance between her and me. I could no longer remember the ground where she ran, but I slogged through it anyway, tripping and shifting and stumbling about until I fell to the ground and could no longer keep up. I looked up to find her, and saw her light making a turn toward the water, bounding down the outside of the crater as if she'd seen something.
+
+_What is she doing?_ I wondered, then in an instant, I saw a saffa. _That must be Boon-Boon. What's she-?_ I was startled from my focus by quick movements behind me.
+
+"Who are you?", the voice from the cove had returned.
+
+<!-- Ch26 annui meeting -->
 
 <!-- The following is bent on a crossing, but idk. It's also just a really good scene. -->
 <!--
