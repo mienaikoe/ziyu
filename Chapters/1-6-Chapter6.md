@@ -1,12 +1,9 @@
-
-
 ## Chapter 6
 
+There was a constant reverberant murmur that filled the hall as a fidelant was talking about her city's proposal for a new academy of arts. I was between two elevated seating areas, so I was hidden from the view of most senators. A few senators glanced at me for a second and returned their view as if nothing had happened. I stopped to notice a faint glow from the walls on the left that got brighter as it grew to become the ceiling. _Thin. The ceiling is thin so it lets in light and isn't heavy._
+I was on the Heiko side of the hall so I figured Melna would be somewhere close by. The hall was constructed so that senators would start at the center before going further up to their desks. I would have to do the same, probably bringing a decent amount of attention to myself in the process. Luckily the center area was large so I might get away with it if I stayed quiet and slow. I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. My anxiety rushed in more with every step toward the center of the hall, but I kept my stride by counting my steps. Right as I entered the center area, I turned to the left and kept walking to make it look like I knew where I was going. _The speaker is continuing. Good._ There were steps going upward immediately to my left, so I took them and raised my gaze to look for Melna. I couldn't find her to my right, but I saw the back of her head in the front row on the other side of the entryway. _I chose the wrong side._ I could feel the eyes of the senators locked on me now, and I was drawing attention. I would have to go back to the center again. I would really draw attention then. My pounding heart and ringing ears were deafening and I was picking up my pace to get to Melna as quickly as possible.
 
-There was a constant reverberant murmur that filled the hall as a fidelant was talking about her city's proposal for a new academy of arts. I was between two elevated seating areas, so I was hidden from the view of most senators. A few senators glanced at me for a second and returned their view as if nothing had happened. I stopped to notice a faint glow from the walls on the left that got brighter as it grew to become the ceiling. *Thin. The ceiling is thin so it lets in light and isn't heavy.*
-I was on the Heiko side of the hall so I figured Melna would be somewhere close by. The hall was constructed so that senators would start at the center before going further up to their desks. I would have to do the same, probably bringing a decent amount of attention to myself in the process. Luckily the center area was large so I might get away with it if I stayed quiet and slow. I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. My anxiety rushed in more with every step toward the center of the hall, but I kept my stride by counting my steps. Right as I entered the center area, I turned to the left and kept walking to make it look like I knew where I was going. *The speaker is continuing. Good.* There were steps going upward immediately to my left, so I took them and raised my gaze to look for Melna. I couldn't find her to my right, but I saw the back of her head in the front row on the other side of the entryway. *I chose the wrong side.* I could feel the eyes of the senators locked on me now, and I was drawing attention. I would have to go back to the center again. I would really draw attention then. My pounding heart and ringing ears were deafening and I was picking up my pace to get to Melna as quickly as possible.
-
-"Are you lost?" A different voice interrupted the speaker and addressed me directly. *That must be the mediator.*
+"Are you lost?" A different voice interrupted the speaker and addressed me directly. _That must be the mediator._
 
 Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I had to say something.
 
@@ -18,7 +15,7 @@ Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I 
 
 "You are in corruption of the Senate. You do not belong here. Leave or you will be forced to leave."
 
-*The mediator was shutting me up, as expected. But I was too far from Melna to get her help.*
+_The mediator was shutting me up, as expected. But I was too far from Melna to get her help._
 
 "Please, allow hae to speak" A familiar voice boomed through the microphone. It was Mel but I had never heard her voice so loudly before.
 
@@ -50,9 +47,7 @@ The mediator simply pointed, and the guards began walking toward me. I had to sp
 
 The senate was in an uproar as Tinpo and Padji came closer to me. Mel yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms with a the tightest grip I had felt before and thrust me out of my chair and into the walkway. I screamed, "No!" and reached for the paper, but he was stronger than me. Mel quickly grabbed the paper and chased after me. She gripped my hand and said, "Don't worry, I will read your message. I'll come for you after we adjourn." Padji turned around and held Mel back as gently as she could. My last view of the senate was of Mel, in her robes, standing strong as always, with the message grasped firmly in her hand.
 
-
-*************
-
+---
 
 My cell was dark and dusty. I was tempted several times to lay down on the dusty floor, but I talked myself out of it each time. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, a beetle stumbling on a rock, even the racing thoughts in my mind made an audible buzz. I was prepared for Ulukoma, but not for the gnawing anxiety and guilt I felt sitting in a cell alone. I wondered in an almost-prayer if the Senate would believe Mel. If they would ridicule her for allowing her jund to break into the Senate and address everyone. And where was Fajro? How did he think this would work? He couldn't have stood there distracting them forever.
 
@@ -76,7 +71,7 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 "But we only stockpile enough for 30 tova."
 
-"I know. Heikoans would be the first to die if we did that."
+"I know. Heikoans would be the first to die if we did that. We will focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
 
 "You can't let them push us around like that!"
 
@@ -140,7 +135,7 @@ I was surprised that Mel had this reaction to him, and before I could explain, h
 
 "Surely the untouchable fidelant would make for a better hero."
 
-*Untouchable?*
+_Untouchable?_
 
 "You don't become untouchable by making yourself vulnerable, Mel. You should know that."
 
@@ -164,7 +159,7 @@ He stared at her for a moment, with the same unfazed and perceptive look he alwa
 
 "I guess we'll talk later then," he said.
 
-Mel turned back to me, still talking to him, and said, "Another lie."
+Melna turned back to me, still talking to him, and said, "Another lie."
 
 When he had finally closed the door on his way out, Mel came in closer to me and asked me under her breath, "How did you meet Fajro?"
 
@@ -188,7 +183,7 @@ Her free hand was holding hard on my shoulder now, and she saw that I was uncomf
 
 I felt scared and alone again. "Where are you going?"
 
-"I'm sorry, ena. I have to prepare for tomorrow's session."
+"I'm sorry. I have to prepare for tomorrow's session."
 
 "Stay with me. Just for one more minute."
 

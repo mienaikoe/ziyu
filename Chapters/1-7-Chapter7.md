@@ -1,37 +1,34 @@
-
-
 ## Chapter 7
 
-
-*"Do you hear it"*
+_"Do you hear it"_
 
 I paused, listening intently for the sound.
 
-*"The tree... do you hear it?"*
+_"The tree... do you hear it?"_
 
 I looked up at my mother's chin, illuminated by the low sun of morning, and then out to the leaves on the tree swaying in the dim light.
 
-*"The ziyu speaks"*
+_"The ziyu speaks"_
 
 "In the silence," I finished hae sentence.
 
 Thi held me closer but felt cold and fragile, like oversaturated clay. Thi kept a smile on her face as thi began to disintegrate between my fingers.
 
-*"silence,"* thi whispered, and I could no longer distinguish her voice from the wind.
+_"silence,"_ thi whispered, and I could no longer distinguish her voice from the wind.
 
 "Mama, Where are you going?!" I said, bewildered.
 
-*"silence."*
+_"silence."_
 
-Thi sublimated and coalesced into a cloud and vanished into the tree, turning its bark an earthen orange. The breeze picked up and the song of the Ziyu sang loudly all around me as I lay grasping the roots where my mother last spoke. I listened closer to the sound; closer than before. *What am I listening for?*
+Thi sublimated and coalesced into a cloud and vanished into the tree, turning its bark an earthen orange. The breeze picked up and the song of the Ziyu sang loudly all around me as I lay grasping the roots where my mother last spoke. I listened closer to the sound; closer than before. _What am I listening for?_
 
 "Good Morning, Liffa."
 
-I woke in startled moans, *am I at home?*
+I woke in startled moans, _am I at home?_
 
 "Sorry Liffa, hope I didn't scare you."
 
-*The darkness. The hard floor. Where am I?*
+_The darkness. The hard floor. Where am I?_
 
 "I'm the magistrate for your case. They told you I would be here, no?"
 
@@ -41,7 +38,7 @@ It all came back to me and my heart dropped again. I sat up and brushed off my b
 
 "It is tomorrow morning."
 
-*Ohh*
+_Ohh_
 
 He continued, "I can come back once you're fully awake."
 
@@ -87,7 +84,7 @@ I was a bit surprised, but stammered an "Okay" in my sleepy stupor. He hung the 
 
 "Did the senate agree?"
 
-"I'm not sure. I think you'll find many who did."
+"It's uncertain. I think you'll find many who did."
 
 He finished jotting his notes and then turned the page for the next question.
 
@@ -105,7 +102,7 @@ He finished jotting his notes and then turned the page for the next question.
 
 "Well, not anymore," he said under his breath, and continued.
 
-"So why was it delivered to you?"
+"So why was this message delivery delegated to you, Liffa?"
 
 "It was intended for Melna, my jundwoman."
 
@@ -127,7 +124,7 @@ He stared at me, while I hesitated.
 
 He said, "Come on, Liffa. I've got no intention of nabbing your friend. There's nothing illegal about an ex-fidelant walking the grounds."
 
-I thought about what Mel said about him. To never trust him. Perhaps the truth would help me more than protecting him would.
+I thought about what Melna said about him. To never trust Fajro. Perhaps the truth would help me more than protecting him would.
 
 "Fajro. He was a fidelant for Holrag."
 
@@ -199,7 +196,7 @@ He replied, "I understand. I hope only that you give a lighter sentence in light
 
 "Well, the codex of the senate has pretty clear guidelines on sentencing for interruption. I would be risking my post if I let hae free without punishment."
 
-Kip, turned to the magistrate and pleaded to him, "Please. Lif had every positive intention. Thi doesn't deserve to be thrown to Ulu."
+Kip, turned to the magistrate and pleaded to him, "Please. Lif had every positive intention. Thi doesn't deserve to be shipped off to Ulukoma."
 
 Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is beneficial to both Liffa and all of Palinan."
 
@@ -263,13 +260,13 @@ I reached for his shoulders under a thin, tightly woven tunic that he usually wo
 
 "No... I didn't know about that."
 
-"Did you know that he had a major falling out with Mel?"
+"Did you know that he had a major falling out with Melna?"
 
 "I didn't know about any of that... That means he could have planned this. I could have sent you into a trap."
 
 "That's what I mean. His offer is suspiciously generous. I think he needs me but I don't know what for."
 
-"Maybe to get back at Mel."
+"Maybe to get back at Melna."
 
 "No that's too petty. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
 
@@ -297,7 +294,7 @@ I answered him, "I'd like to ask Fajro about the study he's conducting."
 
 "Like I said, you would be a communications liaison between The Heiko and Holrag scientists."
 
-"I'm not much of a talker, and we all speak the same language here. What do you *really* need me for?"
+"I'm not much of a talker, and we all speak the same language here. What do you _really_ need me for?"
 
 He sighed and looked at the lantern light against the dusty ground.
 
@@ -307,7 +304,7 @@ He sighed and looked at the lantern light against the dusty ground.
 
 Our eyes met and he looked at me intently. "We need you up there, Lif."
 
-Like electric rails from one mind to the next, I finally saw the dream that he saw. The danger, the pride. The whole planet. *I could die. I could die!* I shouted inside my head. I wasn't afraid.
+Like electric rails from one mind to the next, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head. I wasn't afraid.
 
 Meanwhile, Kip had grown impatient. He grabbed Fajro by his tunic and got in his face.
 
@@ -329,11 +326,11 @@ Kip wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walk
 
 The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kip by the arm and took him to the outer room.
 
-*Kip, what have you done?*
+_Kip, what have you done?_
 
 "Fajro?" I called. He didn't answer.
 
-I stared at his sleeping face. It was wrinkled with the smiles of the past. *Were they genuine? Are you simply misunderstood?*.
+I stared at his sleeping face. It was wrinkled with the smiles of the past. _Were they genuine? Are you simply misunderstood?_.
 
 The magistrate came back in with a strong-scented cloth and some water in a small bowl.
 
@@ -379,7 +376,7 @@ He stood up and walked over to me.
 
 "He's going to Ulu."
 
-My heart sank. *Dammit, you fool.*.
+My heart sank. _Dammit, you fool._.
 
 He turned to walk out the door and said to me, "I'm going to handle Kip's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
 
@@ -417,7 +414,7 @@ I was tempted to defend Kip, but this was not the time.
 
 "And you're still bitter about it."
 
-"Damn right I am. We needed to study more about space when we had the chance. We have no clue what's up there. I moved to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'to.  Now Palinan is powerless, huddling in the dark with no plan but to wait it out."
+"Damn right I am. We needed to study more about space when we had the chance. We have no clue what's up there. I moved to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'to. Now Palinan is powerless, huddling in the dark with no plan but to wait it out."
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoan hero for all the PR."
 
@@ -455,7 +452,7 @@ I answered, "Yes, magistrate. You are generous."
 
 He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
 
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma *or* a period of one La'To under the command of Fajro Um Holrag. Do you understand?"
+"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma _or_ a period of one La'To under the command of Fajro Um Holrag. Do you understand?"
 
 "I do."
 
