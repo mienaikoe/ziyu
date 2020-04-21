@@ -1,4 +1,3 @@
-
 ## Chapter 15
 
 <!--
@@ -12,7 +11,6 @@
 
 - Get sleep.
 -->
-
 
 "Melna, I think you should see something."
 
@@ -66,25 +64,25 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "Perhaps you're right. But we have no other option."
 
-Mel sighed, exasperated at how she let things go this far. "We need to find a way to force Holrag to speak. They are hiding something."
+Mel sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag to speak. They are hiding something."
 
-"Your pleading will be met with hostility, Melna."
+"Pleading directly to them will be met with nothing more than hostility."
 
-"Do you suggest we cower in fear, waiting for the day Holrag saves us all?"
+"What do you suggest then? We cower in fear, waiting for the day Holrag saves us all?"
 
-"There is much to lose and very little to gain by bothering them," she said. "Why don't we focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
+"There is much to lose and very little to gain by bothering them," she said.
 
-"And what if the obstruction decides to disperse one day? We'll all be roasted alive out there."
+"And what if the obstruction decides to disperse one day while we're stuck out there? We'll all be burned alive."
 
 "And we will have starved to death long before that happens if we stay here. We can only do what is within our power."
 
 Melna sighed, letting her internal frustration simmer down and settle.
 
-"Ask me tomorrow. I have to go home."
+"I have to go home."
 
 Pomri threw her hands up in disappointment as Melna reached for a thick felted black shawl and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
 
-Melna turned back to her and said, "Meet me tomorrow at the first train to Shaki. Bring observer Shimla's findings."
+Melna turned back to her and said, "Meet me tomorrow at the train station. Bring observer Thimlu's findings."
 
 "But the trains aren't running to Heiko."
 
@@ -98,7 +96,7 @@ A small enclosed oil lantern hung beside the door, which she picked up and lit w
 
 At the foot of the hill stood Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
-"Come on Laen-Laen, let's go home."
+"Come, Laen-Laen. Let's go home."
 
 He whimpered a little, a suspicious complaint for a freezing saffa.
 
@@ -122,15 +120,13 @@ The kaln could only muster a whisper through hae raspy voice, so Melna bent down
 
 "Lin... Yu."
 
-
-********
-
+---
 
 Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Mel sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
 "You must be thirsty, Linyu. Have some water."
 
-At first Linyu hesitated, staying still with the cup next to hae eyes, Mel holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it  and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
+At first Linyu hesitated, staying still with the cup next to hae eyes, Mel holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
 
 "You have a lot of swelling here. What happened?"
 
@@ -180,7 +176,7 @@ Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your 
 
 Linyu paused for a moment to interpret the strangeness of what Melna had just said, and then continued setting down the trinket on the ground near hae and then feeling hae way back to the washroom. Hesitantly, Melna moved her gaze to the trinket. It was wooden with metal rod sticking out and intricate carvings on the top that seemed to have survived through a great number of trouble. She turned it over to find three jagged holes drilled into the bottom.
 
-*What is this thing?*
+_What is this thing?_
 
 She faintly heard some noise coming from it, and hesitantly put it up to her ear. The sound was static at first, but she continued to listen closer as the observers taught her to do with the projectors at the observatory, and through the static she began to make out the tones and rhythms of a voice.
 
@@ -206,7 +202,7 @@ There was no response.
 
 "Knock once if you want me to leave. Twice if you'd rather I stay here."
 
-After a long stillness there came a shuffling and then a knocking against the door. *Tap...Tap.*
+After a long stillness there came a shuffling and then a knocking against the door. _Tap...Tap._
 
 Slightly relieved, she responded, "Okay. I'll stay then."
 
@@ -238,17 +234,9 @@ Before sleep, thi interlocked hae hands with Melna's and mouthed to her a silent
 
 Thi held a moment of mental silence to internalize the promise, and then rolled back over, thinking about tomorrow.
 
-
 <!--
 and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger.
 -->
-
-
-
-
-
-
-
 
 <!-- are listeners small or big? Are their ears small or big? -->
 <!-- potential child nudity. uh... what do i do? -->
