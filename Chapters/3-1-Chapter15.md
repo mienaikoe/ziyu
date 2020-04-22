@@ -58,25 +58,27 @@ Thimlu scurried away to fetch some empty film plates while Pomri rose from her d
 
 "This goes beyond my relationship with Liffa. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they refuse to share anything."
 
-"This is their plan. We must play by their rules."
+"Holrag has a plan. We must play by their rules."
 
-"That is far too much power for one province to hold."
+"The fate of the world is far too much power for one province alone."
 
 "Perhaps you're right. But we have no other option."
 
-Mel sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag to speak. They are hiding something."
+Mel sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag's hand."
 
-"Pleading directly to them will be met with nothing more than hostility."
+"Pleading directly to them will be met with nothing more than hostility. There is far too much to lose and very little to gain by bothering them"
 
 "What do you suggest then? We cower in fear, waiting for the day Holrag saves us all?"
 
-"There is much to lose and very little to gain by bothering them," she said.
+"You bowed to them when you sacrificed our grain. You bowed to them when you sent your own bundsmaman into their experiment. What did it gain for us?"
 
-"And what if the obstruction decides to disperse one day while we're stuck out there? We'll all be burned alive."
+Melna looked at her with smoldering eyes.
 
-"And we will have starved to death long before that happens if we stay here. We can only do what is within our power."
+"Our position in the senate has been maintained through the worst of times. The nations continue to share knowledge and wealth to the benefit of everyone."
 
-Melna sighed, letting her internal frustration simmer down and settle.
+"The senate? You don't find it strange that the conduit has been quiet lately?"
+
+Melna sighed, letting her internal frustration simmer and settle.
 
 "I have to go home."
 
@@ -94,13 +96,13 @@ Mel closed the door behind her, ignoring Pomri's complaints.
 
 A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
-At the foot of the hill stood Laen-Laen, rolled up to keep out the cold, and napping as usual.
+At the foot of the hill was Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
 "Come, Laen-Laen. Let's go home."
 
 He whimpered a little, a suspicious complaint for a freezing saffa.
 
-"Laen-Laen, what's wrong?"
+"Laen, what's wrong?"
 
 He shifted his legs a little to reveal a maman, aged somewhere between a child and an adult, dressed in strange kelp clothing and curled into a ball at Laen-Laen's belly.
 

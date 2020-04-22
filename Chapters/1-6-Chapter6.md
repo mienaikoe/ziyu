@@ -67,13 +67,17 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 "Mel, you aren't..."
 
-"Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A fidelant from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 90 tova."
+"Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A fidelant from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 30 days."
 
-"But we only stockpile enough for 30 tova."
+"But we only stockpile enough for ourselves for 60 days."
 
-"I know. Heikoans would be the first to die if we did that. We will focus on rebuilding our grain reserves in the steppe. We've lost half to politics. We could afford to build more."
+"I know. But we must do this if we are to maintain our position in the senate. We will focus on rebuilding our grain reserves in the steppe."
 
-"You can't let them push us around like that!"
+"And what if the obscura decides to disperse one day while we're stuck out there? We'll all be burned alive."
+
+"And we will have starved to death long before that if we don't."
+
+You can't let them push us around like that!"
 
 "Lif... It's not that easy."
 

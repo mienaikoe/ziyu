@@ -1,5 +1,5 @@
-
 ## Palinan
+
 - A planet about 1.3x larger than Earth.
 - Palinan's orbital period is about 5 Earth days.
 - There is one continental land mass and one big ocean. The planet is 65% ocean.
@@ -8,8 +8,6 @@
 - There is tectonic action and a magnetic field due to tidal forces. This also gives rise to large mountains on the bright side and splotched islands amidst a vast sea on the dark side.
 - Winds at the surface flow from the cold side to the warm side
 
-
-
 ## Solar System
 
 Palinan is an earth-sized tidally locked planet with an elliptical orbit around a white dwarf.
@@ -17,50 +15,46 @@ Ara is the white dwarf. They also use this term to refer to the bright half of t
 The Palinians call the dark direction of the sky Ulu. They use these for cardinal directions as well.
 the solar horizon is marked by the Black Crown. A large ring of black debris from a calamity that happened millions of years ago. (Protection of the planet from the impending planetary nebula)
 
-
 ## Time
 
 Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
 There are names for the various time divisions, which are tabulated here:
 
-Sa'To(va)   12 Ka'to      ~170.4 Earth years
-Ka'To(va)   12 Na'to      ~14.2 Earth years
-Na'To(va)   12 La'to      ~1.18 Earth years
-La'To(va)   12 Tova       ~36 Earth days
-Tova/Day    1 orbit       ~3 earth days
-(To)Va'la   1/12 Tova     ~6 earth hours
-(To)Va'na   1/12 Va'la    ~30 minutes
-(To)Va'ka   1/12 Va'na    ~2.5 minutes
-(To)Va'sa   1/12 Va'ka    ~12.5 seconds
+- Sa'To(va) 12 Ka'to ~288 Earth years
+- Ka'To(va) 12 Na'to ~24 Earth years
+- Na'To(va) 12 La'to ~2 Earth years
+- La'To(va) 12 Tova ~60 Earth days
+- Tova/Day 1 orbit ~5 earth days
+- (To)Va'la 1/12 Tova ~10 earth hours
+- (To)Va'na 1/12 Va'la ~50 minutes
+- (To)Va'ka 1/12 Va'na ~4.2 minutes
+- (To)Va'sa 1/12 Va'ka ~21 seconds
 
 This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
 X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
-
 
 ## Distance
 
 Distance is measured in ratios of circumference of the planet, and divided in twelves.
 
-Lao/Arc   1 circumference       ~18,000 miles, roughly between mars and earth
-Lao'la    1/12 circumference    ~1500 miles, roughly miami -> new york
-Lao'na    1/12 Lao'la           ~125 miles, roughly cleveland -> ohio
-Lao'ka    1/12 Lao'na           ~10 miles, roughly manhattan -> flushing
-Lao'sa    1/12 Lao'ka           ~0.86 miles, roughly a mile
-Lao'va    1/12 Lao'sa           ~380 feet, roughly a football field
-Lao'ta    1/12 Lao'va           ~31 feet, roughly 5 people height
-Lao'cha   1/12 Lao'ta           ~2.6 feet, also called a pace
+- Lao/Arc 1 circumference ~18,000 miles, roughly between mars and earth
+- Lao'la 1/12 circumference ~1500 miles, roughly miami -> new york
+- Lao'na 1/12 Lao'la ~125 miles, roughly cleveland -> ohio
+- Lao'ka 1/12 Lao'na ~10 miles, roughly manhattan -> flushing
+- Lao'sa 1/12 Lao'ka ~0.86 miles, roughly a mile
+- Lao'va 1/12 Lao'sa ~380 feet, roughly a football field
+- Lao'ta 1/12 Lao'va ~31 feet, roughly 5 people height
+- Lao'cha 1/12 Lao'ta ~2.6 feet, also called a pace
 
 ## Urban Planning
 
 Cities and living areas are typically formed near the sea, and the remaining area at the habitable line is typically farmland where there are solar-facing hills, and residences of those nearby areas. There are solar-thermal power stations at the solar-facing edge of the habitable line and near cities. Trains typically travel from power station to power station across the habitable line. Most food storage is in the dark edge of the habitable line.
 
-
-
 ### Provinces
 
 **Heiko Province**
 A province on the southeast coast. This is where the story begins.
-Heiko province is the agricultural and forestry center of the whole planet. Heiko is a more democratic communist society. There is very little sense of imbalance or crime amongst the people, so there is not a need for centralized government or  As a society, they haven't grown much in a century. There is no military threat, so they have little in the way of defenses. However, if attacked it is assumed they could defend themselves fairly well, as they have a very ordered way of conveying information and organizing the public. They also are pretty good at physics as they have the best observatory in the land.
+Heiko province is the agricultural and forestry center of the whole planet. Heiko is a more democratic communist society. There is very little sense of imbalance or crime amongst the people, so there is not a need for centralized government or As a society, they haven't grown much in a century. There is no military threat, so they have little in the way of defenses. However, if attacked it is assumed they could defend themselves fairly well, as they have a very ordered way of conveying information and organizing the public. They also are pretty good at physics as they have the best observatory in the land.
 
 Heikoans live comfortably in temperature fluctuations and do well for themselves in outdoor environments. Heikoans live happily with the amount of technology they feel they need. They don't feel the need to use economic tools like investing. They instead, choose to give their efforts and products to people they see as worthy. This includes supplying food to the capital for their machines and technical know-how. Heiko's education system is pretty good when it comes to classical studies such as math, science, philosophy, but doesn't cover practical ideas like engineering and economics as much.
 
@@ -92,7 +86,6 @@ Of interesting note is the bluekelp which grows abundantly in the waters near an
 <!--
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members.
 -->
-
 
 ## The Black Crown (Heigi)
 

@@ -135,15 +135,21 @@ Then she continued, "She's in there somewhere. I have to find her," and continue
 
 This was truly the darkest place in Palinan. I could no longer see anything save for glimpses of rock and Pomri – whatever her lantern revealed.
 
-"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. Pomri's light danced around in the distance, growing smaller, quieter, more erratic, and I briefly panicked at the distance between her and me. I could no longer remember the ground where she ran, but I slogged through it anyway, tripping and shifting and stumbling about until I fell to the ground and could no longer keep up. I looked up to find her, and saw her light making a turn toward the water, bounding down the outside of the crater as if she'd seen something.
+"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. Pomri's light danced around in the distance, growing smaller, quieter, more erratic. As the distance between us grew, I could no longer remember the path where she ran, but I slogged through it anyway, tripping and shifting and stumbling about until all I could see of her was her lantern. It made a turn toward the water, bounding down the outside of the crater as if to notice something specific.
 
-_What is she doing?_ I wondered, then in an instant I saw a saffa. _That must be Boon-Boon. What's she-?_ I was startled from my focus by the sound of quick movements behind me, but before I could move a hand covered my mouth and held me still. My muscles froze in terror, unable to look backward at the entity that had surely come to take my life. Except the hands were held gentler than I'd expect, positioned only to suspend fear, not increase it.
+_What is Pomri up to now?_ I wondered, following her carefully down the outside of the crater.
 
-"The maman that came before me was named Ginnu," thi said.
+The light stopped in front of a badly broken wooden column protruding from the ocean and rock where the pier used to be. Pomri sat quietly in front of it, resting her head, speaking to an old friend she'd lost too soon.
 
-_Ginnu!_, I thought. _Came before?_
+<!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->
 
-"I am _Annui_, one without a name."
+<!--
+
+ then in an instant I saw a saffa. _That must be Boon-Boon. What's she doing out here?_
+
+I was startled from my focus by the sound of quick movements behind me, but before I could move a hand covered my mouth and held me still. My muscles froze in terror, unable to look backward at the entity that had surely come to take my life. Except the hands were held gentler than I'd expect, positioned only to suspend fear, not increase it.
+
+*The maman from the cove!* -->
 
 <!-- Ch26 annui meeting -->
 
@@ -154,21 +160,4 @@ She paused for a moment, thinking of another way. She set down her lantern and p
 "In case you fall in," she said. I remembered what it felt to fall into a crater, to drown in the dark, and I wasn't keen on doing either of those things again.
 
 She led us over the rocks, jagged, and wet with the rushing of waves. Her spear became a pole to stabilize us on the treacherous jumps between rocks. I was thankful for the durability of my shoes.
--->
-
-<!--
-Pomri secretly is betraying Linyu?
-  Why tho?
-    Secretly wants radio for rudjan
-  How would Ginnu know that?
-    pieces of what Melna told hae to get set up on the ship
-    The congress was disbanded but Pomri sent her there anyway
-
-  Pomri guilt of coming back to the crater
--->
-
-<!--
-Pomri's lantern-lit face at the foot of a hill with a heavily damaged sign beside the path. *eik...servatory... A*.
-
-"Come on. The quicker we reach the top, the quicker we can ."
 -->
