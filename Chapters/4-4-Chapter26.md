@@ -18,13 +18,12 @@ With one hand, she broke off the long piece of wood that said "Ara" and cut it i
 
 "Come on," she said. "The quicker we move, the quicker we rest."
 
-My legs ached twice as much when I presented them with the idea of walking vertically, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
+My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
 
-The hill was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, making sure to keep up with her pace despite the aches in my legs.
+The hill was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet.
 
-"You should get a
+Halfway to the top, Pomri's lantern started to flicker and fade.
 
-Pomri's lantern seemed to be flickering and fading. "Ay. Damn this thing," she said, holding it up in her right hand.
-"Never enough fuel for anything useful."
+"Ay. Damn this thing," she said, holding it up in her right hand. "Never enough fuel."
 
-I sped up a bit to approach her, and replaced the lantern with my own hand, holding the lantern
+I ran to approach her, aware of the danger darkness would have on this hill if I was alone. She looked at me as if she was surprised and slowed her pace, expressionless, but perhaps I moved her to slow.
