@@ -142,22 +142,3 @@ _What is Pomri up to now?_ I wondered, following her carefully down the outside 
 The light stopped in front of a badly broken wooden column protruding from the ocean and rock where the pier used to be. Pomri sat quietly in front of it, resting her head, speaking to an old friend she'd lost too soon.
 
 <!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->
-
-<!--
-
- then in an instant I saw a saffa. _That must be Boon-Boon. What's she doing out here?_
-
-I was startled from my focus by the sound of quick movements behind me, but before I could move a hand covered my mouth and held me still. My muscles froze in terror, unable to look backward at the entity that had surely come to take my life. Except the hands were held gentler than I'd expect, positioned only to suspend fear, not increase it.
-
-*The maman from the cove!* -->
-
-<!-- Ch26 annui meeting -->
-
-<!-- The following is bent on a crossing, but idk. It's also just a really good scene. -->
-<!--
-She paused for a moment, thinking of another way. She set down her lantern and produced a rope from her satchel, tying it first around herself, then around me.
-
-"In case you fall in," she said. I remembered what it felt to fall into a crater, to drown in the dark, and I wasn't keen on doing either of those things again.
-
-She led us over the rocks, jagged, and wet with the rushing of waves. Her spear became a pole to stabilize us on the treacherous jumps between rocks. I was thankful for the durability of my shoes.
--->

@@ -18,9 +18,13 @@ Holragi is digging shelter in Heiko, because they need shelter from the coming n
 They are driven into the desert
  -->
 
-"Are you worried?"
+Pomri was late, naturally, but she came prepared with a lantern in hand, and a large durable bag on her back. When she arrived, she set down her lantern and produced a rope from the bag, tying it first around herself, then around me.
 
-"No," she said. Their breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. I sat behind, adding my effort and trying to keep up with Pomri, but her height and strength eclipsed my own.
+"In case you fall in," she said. I remembered what it felt like to drown in the ocean, and I wasn't keen on doing it again.
+
+"Are you worried?" I asked as we pushed off.
+
+"About what?"
 
 "What if we find her?"
 
@@ -38,7 +42,7 @@ Presently, Kipnu came to my mind, then Melna. I imagined them side by side in th
 
 "Sorry," I said hurriedly, and snapped out of my trance.
 
-We paddled until a sliver of the remaining light of Ara peeked through the horizon, then Pomri called for a break and we happily took our paddles into the boat.
+Our breaths were punctuated by gentle strokes of a two-sided paddle. With each one I could feel the boat inch ahead and new air fill my lungs. I sat behind, adding my effort and trying to keep up with Pomri, but her height and strength eclipsed my own. We paddled until a sliver of the remaining light of Ara peeked through the horizon, a signal for Pomri to call for a break. I happily took my paddles into the boat and caught my breath.
 
 "You ought to be stronger than me," she said to me, hardly winded, "kaln like you has unlimited energy."
 
@@ -110,9 +114,9 @@ The opening of the cove was wide and tall enough for a whole freighter. It opene
 
 "Oi, let's head toward the wall to the left," she said, "This place is big."
 
-We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a sand-and-pebble jetty with a loud _shhhh-ch_, and stopped abruptly. Pomri wasted no time.
+We turned and paddled softly, but it didn't take long for us to hit ground. The boat slid ashore onto a sand-and-pebble jetty with a loud _shhhh-ch_, and stopped abruptly. Pomri wasted no time untying the rope and hopping out.
 
-"Let's go," she said, already off the boat, and I instinctively clambered to the front, trying to keep my balance.
+"Let's go," she said, already off the boat, and I instinctively clambered to the front, trying to keep my balance. I could tell she was agitated, that she felt vulnerable in a place like this.
 
 "Aye. I'm coming," I said.
 
