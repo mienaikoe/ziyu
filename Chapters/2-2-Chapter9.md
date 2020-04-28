@@ -4,13 +4,9 @@ In the rape scene or afterward, depict Setre as feeling disgusting a little bit
 
 -->
 
-
-
-
 ## Chapter 9
 
-
-Setre led Kip from behind, with the darkness playing the role of both binding and blindfold. Kip searched through the darkness to spot more of the patterns on tree branches as they approached the fire. The branches and patterns seemed to become much bigger as they went on. *Copper is so rare. What are they doing wrapping it around trees?* As they approached the fire, he could hear the familiar sounds of civilization: wood chopping, steam pipes, but oddly very little conversation. As he got closer he realized almost everyone here was in kanosin withdraw just like his own group. He balked at the thought of what the social hierarchy here might look like. Clearly his new friend wasn't a working class junkie like the rest of them.
+Setre led Kip from behind, with the darkness playing the role of both binding and blindfold. Kip searched through the darkness to spot more of the patterns on tree branches as they approached the fire. The branches and patterns seemed to become much bigger as they went on. _Copper is so rare. What are they doing wrapping it around trees?_ As they approached the fire, he could hear the familiar sounds of civilization: wood chopping, steam pipes, but oddly very little conversation. As he got closer he realized almost everyone here was in kanosin withdraw just like his own group. He balked at the thought of what the social hierarchy here might look like. Clearly his new friend wasn't a working class junkie like the rest of them.
 
 "Who are these people?" He asked.
 
@@ -68,13 +64,13 @@ Setre moved the syringe to his chest, away from his hearts, and punctured his sk
 
 He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immovable, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
 
-"There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. There was an internal tension brewing inside between his self-identity and his suppressed hedonistic desires. He put his hand around the pendant on his neck.
+"There you go," Lissa said while thi laid him down on the floor. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. His self-identity began to blur: he wasn't sure where his self ended and Lissa or Setre began. He put his hand around the pendant on his neck.
 
 "Lif...Mel," he called out.
 
 "Shh," Lissa said as thi moved on top of him, "We are all children of Ulu."
 
-The floor became an ocean of silk and he was sinking deeper into it with every movement. *"All of your fantasies."* Joined people from his home didn't have fantasies like this, or they didn't talk about them. But he knew that he did. How he longed to shut off all of his inhibitions and responsibilities and submit to his body. He reached out to Lissa to touch hae blue luminating skin and pull hae closer.
+The floor became an ocean of silk and he was sinking deeper into it with every movement. _"All of your fantasies."_ He reached out to Lissa to touch hae blue luminating skin, his mind struggling to regain control of his newly autonomous body.
 
 Thi said, "Never forget... I own you."
 
@@ -82,9 +78,9 @@ The rest faded into the night, hidden forever from the mind where the luckiest o
 
 ---
 
-*Where am I?*
+_Where am I?_
 
-Kip opened his eyes and found himself floating alone on an ocean of thick black fluid. The dark of Ulu lie above him, and a faint halo of light surrounded the horizon. He tried to lift himself up, but the ocean held fast. *Is this the afterlife? Have I died? This feels too real to be a dream.* Slowly, the fluid turned into hundred hands and began to pull him down. He tried fighting against them, but they held on tighter. He held his breath while sinking into the abyss until he couldn't hold it any longer. *Drowning would be ok. Ending would be ok.* His lungs let go, and he let the dark flow in, permeating his blood, until he couldn't feel anything.
+Kip opened his eyes and found himself floating alone on an ocean of thick black fluid. The dark of Ulu lie above him, and a faint halo of light surrounded the horizon. He tried to lift himself up, but the ocean held fast. _Is this the afterlife? Have I died? This feels too real to be a dream._ Slowly, the fluid turned into hundred hands and began to pull him down. He tried fighting against them, but they held on tighter. He held his breath while sinking into the abyss until he couldn't hold it any longer. _Drowning would be ok. Ending would be ok._ His lungs let go, and he let the dark flow in, permeating his blood, until he couldn't feel anything.
 
 He woke up again, but this time he was suspended above Palinan with the full brightness of Ara behind him. Lif was in a small metal capsule directly in front of him. Thi was screaming trying to tell him something, but he couldn't hear hae.
 
@@ -92,7 +88,7 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
 
-"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's hands. The hands of warmth he had such desire for, were now cold as death in the last remaining memories he had. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its depths.
+"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Lissa's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its depths.
 
 "Kipnu! Get up!" A voice called to him from the other room. It was Setre.
 
@@ -112,9 +108,9 @@ She pulled out a cloth wrapping from her sling bag and threw it at him.
 
 "You won't be talking."
 
-She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. *This must be some initiation or something.* He stood himself up and walked to the curtains, reaffirming his own existence before he went into the next room.
+She left the room, leaving the still naked Kip bleeding and bandaging himself. He bandaged the wound the way he had done for many of his patients, but it was decidedly more difficult doing it on himself. Once bandaged, he realized that he was still freezing and without clothing. _This must be some initiation or something._ He stood himself up and walked to the curtains, reaffirming his own existence before he went into the next room.
 
-The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was their prize animal. *Why is everyone here? What are they looking at me for?*
+The room had nearly a hundred people forming two lines that surrounded Lissa and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was their prize animal. _Why is everyone here? What are they looking at me for?_
 
 Lissa and hae crew sat where he entered the yurt yesterday, the rest forming a two lines, a tunnel of people surrounding him on both sides.
 
@@ -140,7 +136,7 @@ The crowd filled with murmurs before he was done talking.
 
 Lissa gestured to them to quiet down and addressed Kip directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new owner stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kip as their guardian must trade something of their own."
 
-Thi paused and looked out at the crowd in anticipation. *Is this an auction?*
+Thi paused and looked out at the crowd in anticipation. _Is this an auction?_
 
 "Let the bidding begin!"
 

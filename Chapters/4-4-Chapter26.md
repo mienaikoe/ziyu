@@ -28,4 +28,4 @@ Halfway to the top, Pomri's lantern started to flicker and fade.
 
 I ran to approach her, aware of my dependence on her guidance. She looked at me as if she was surprised and slowed her pace, expressionless, but perhaps a I struck one of her hearts. I barely saw her face before the lantern fizzled out and we were stuck in the muddy twilight, unable to see where the path ended and where it began.
 
-"Our lives for a damn lantern," she said, setting it down harshly. I could tell she wanted to kick it down the hill, but found restraint.
+"I am not wasting my life because of a damn lantern," she said, setting it down harshly. I could tell she wanted to toss it down the hill, but she settled for staring at it in angry deliberation on what to do. My own deliberations were fixated on a few glowing glass ampules in my satchel. I wasn't sure if this was the best use for them.
