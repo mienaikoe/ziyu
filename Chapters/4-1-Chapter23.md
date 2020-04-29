@@ -82,7 +82,7 @@ I nodded in approval, taking up post in my usualy crevasse during talks. She sto
 
 "Alright everyone, it's time we explained to you what's happening."
 
-Her voice was strong, but carried the slightest hint of quiver. Unnoticeable to the crowd, but obvious to anyone who knew her well. *She still doesn't see herself as a leader.*
+Her voice was strong, but carried the slightest hint of quiver. Unnoticeable to the crowd, but obvious to anyone who knew her well. _She still doesn't see herself as a leader._
 
 "You are currently sitting upon the grounds of the Great Pavilion of Ulukoma. You've been brought here by those who call this place home. Not as slaves, but as refugees."
 
@@ -116,7 +116,7 @@ My nather's hand led me along toward the snow-covered pillars that would soon be
 
 "Yes ma'am," said a maman. Thi had shell-shocked eyes and was shivering slightly in the cold. "The engineers are bound to protect the city. We are just apprentices."
 
-Melna looked frustrated. *What a ridiculous law*, she could have thought.
+Melna looked frustrated. _What a ridiculous law_, she could have thought.
 
 "Very well. What do you know how to do?"
 
@@ -130,7 +130,7 @@ All in the group hesitated, and Melna grew more frustrated. This was basic work 
 
 She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
 
-Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly  hesitant but an older Ulukoman maman assured her that the drug would work.
+Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukoman maman assured her that the drug would work.
 
 "Setre's kaln, I reckon," she greeted me as I approached. "I'm Fanla."
 
@@ -152,7 +152,7 @@ She shifted herself without standing, making way for me to crouch beside her. Sh
 
 "Hold hae body like this so I can make the injection. Steady now."
 
-The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized blue. Shaki titanium working, if I'd ever seen it. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the glowing blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of the kanosin were pushed into hae hydroderm where they spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
+The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized blue. Shaki titanium working. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of kanosin were pushed into hae hydroderm where they glowed and spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
 
 "You've... done this before?"
 
@@ -164,13 +164,13 @@ I gently laid the maman back down and took up the syringe for rinsing and sanita
 
 "Kanosin," I said, slowly rinsing the syringe in a basin of ocean water. I pulled the plunger out to fill it and pushed it again to empty.
 
-"Why are you using a narcotic on injuries and hypoxia?"
+"The narcotic? Why are you using Kanosin on injuries and hypoxia?"
 
 "Because it works."
 
-"Yes, but how?" she implored.
+She gaped, both astonished and deeply horrified. I stopped the rinsing and walked a few paces to fetch a long monobodied forcep, placing the syringe into the end and immersing it into the fire. I didn't speak. My mother had taught me to be discerning about who I told about Kanosin; only those those who would use the knowledge well and accept its truth deserved to know. Pomri would barely accept what she saw herself.
 
-"I stopped the rinsing and walked a few paces to fetch a long monobodied forcep. I placed the syringe into the end and immersed it into the fire. I didn't speak. My mother had taught me to be discerning about who I told; only those those who would use the knowledge well and accept its impossible truth deserved to know. Pomri would only accept what she saw herself.
+"How does it work?" she implored.
 
 "I don't know," I said. A practiced lie, but a good one.
 
@@ -182,6 +182,6 @@ I glowered at her, at the ease with which she went behind my nather's back. But 
 
 "Mid-day's nap. Find me on the beach where we landed."
 
-*Why did I say that?!*, I thought. But I didn't stop myself. I wasn't bound by regret, only worry for my nather. She nodded back with that same intensity.
+_Why did I say that?!_, I thought. But I didn't stop myself. I wasn't bound by regret, only worry for my nather. She nodded back with that same intensity.
 
 Pomri returned to the maman she was monitoring to take hae vitals and ensure thi was warm. With a quick twist, I secured a cover onto the syringe and placed it in the basket with the others, giving a nod to the old guardian. A deep sense of guilt overshadowed my thoughts and drew my eyes toward the pavilion. Impatiently, she darted here and there like a tilmarim in the dark, teaching people how to construct a truss from tarred wooden posts. For the moment I let her fire into me, felt it cleanse the guilt from my heart. Our divergence was inevitable, but I remembered that we had the same goal: to outlast the obscura.

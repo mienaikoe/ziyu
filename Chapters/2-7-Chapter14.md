@@ -269,11 +269,11 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     *Thi's bleeding from an artery under the broken bone.*
 
-    He opened the pouch that Fanla had given him and used his fingers to examine its contents. *unloaded syringe, Kanosin ampule...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
+    He opened the pouch that Fanla had given him and used his fingers to examine its contents. *syringe, kanosin ampule...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
 
     He took one more observation of hae vitals while repeatedly pressing the plunger to warm it up, "convulsions; pulse fast; pressure high; temperature high."
 
-    The plunger was hot and he first rubbed it across his small finger while wincing in pain to quickly sanitize, and then wedged it into the space hae fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
+    The plunger was hot enough to singe his finger when he slid it over the tip to check. He winced and waved the finger to cool it down, then wedged a different finger into the space hae fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
     He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kip stopped and jumped off of Ginnu and away from an arm trying to grab him out of the darkness. It was Ramne, by the looks of his markings, pacing toward him.
 
     "Who're you?! What are you doing with Ginnu?!" Ramne demanded.
@@ -282,7 +282,7 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     "I need to help hae," Kip asserted.
 
-    "You're that doctor that ran off. The fuck you think you're doing down here?"
+    "You're that doctor that ran off, aren't you? I know better than to bid on arrogant pricks like you. The fuck are you doing down here?"
 
     Kip didn't respond, but held his stance and his look of disdain.
 
@@ -330,7 +330,7 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     He scrambled to find the hot tip in the dust and caught it with a finger. From a satchel at his waist, he produced some kelp collagen Casra had given him, and applied it to the wound. She said it would melt over a wound, but he wasn't sure if it would do the trick with one so big and full of blood. Without being able to see the wound, he imagined the vasculature system in the area, as he was trained to do. He positioned the hot tip and melted the collagen over the artery exactly where the fractured skull piece would have punctured it. The cauterizing procedure was nearly instant; he had been rehearsing it in his head while talking to Ramne.
 
-    *Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the syringe and glowing ampule. It took only a few presses to warm the hot tip enough to sanitize the needle. He punctured the wax seal of the ampule with the syringe, and set the puncture lever to let the glowing blue liquid enter the needle. *It's ready.* He pulled hae shirt down to expose hae chest and plunged the kanosin into it over one of hae hearts. The blue streaks radiated across hae pallid skin as they had for Kip a single night ago. Hae eyes gazed forward and inward, sitting lifeless in the cradles of a face that had been alive moments ago. Kip watched as they dilated ever so slightly, but didn't move.
+    *Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the syringe and ampule. It took only a few presses to warm the hot tip enough to sanitize the needle. He punctured the wax seal of the ampule with the syringe, and set the puncture lever to let the translucent blue liquid enter the needle. *It's ready.* He pulled hae shirt down to expose hae chest and plunged the kanosin into it over one of hae hearts. Glowing blue streaks radiated underneath hae pallid skin as they had for Kip a single night ago. Hae eyes gazed forward and inward, sitting lifeless in their cradles where they had been alive moments ago. Kip watched as they dilated ever so slightly, but didn't move.
 
     He checked her vitals again, "Unconscious. Temperature lower. Pulse...No no no!"
 
