@@ -66,16 +66,20 @@ I hesitated, remembering my mother's direction. But I felt that I could trust he
 
 "It reverses death."
 
-"You're saying that this substance literally makes you immortal, and you just use it as a flow tattoo?"
+Pomri paused, doubtful. "You're saying that this substance literally makes you immortal, and you just use it as a flow tattoo?"
 
 "How else would we get up the mountain?"
 
-"Fuck the mountain; we should be giving this to everyone on Pangum! This could be how we survive the obscura!"
+"Quit lying, Linyu. Death is final. You can't reverse it."
 
-My face went cold. I sinched my satchel and stood up, walking ahead of her.
+My face went cold. I sinched my satchel and stood up, walking ahead and away.
 
-"Wait! Linyu, where are you going?"
+"Linyu, where are you going?"
 
-"To the observatory," I said harshly.
+I didn't respond. A tower cannot be reasoned with.
 
-"Let's go back to Ulukoma."
+"If you truly believed yourself," she yelled to me, "you'd be sharing it with the world."
+
+"Your people are no better than the Holragi! You think it's fun to prey on people's false hopes like that?"
+
+My feet took me round a corner where I stopped them and leaned against a tree to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest, deepest waters, lit only by the light from her skin. She would take them to my mother who cleared the water and recalled them back to life with kanosin. And I would have grown out of those stories had I not experienced them for myself. I looked down at the bright streaks of kanosin on my legs, and did not feel shame. Kanosin would never take me.
