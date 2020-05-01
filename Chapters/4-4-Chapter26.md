@@ -50,7 +50,7 @@ She watched patiently as I pulled an ampule and neatly injected it into the hydr
 
 "Kanosin has many uses."
 
-Pomri was confused and apprehensive. She'd only known it as an addictive narcotic, a substance used by lowbrow peddlers and clandestine organizations to coerce the desparate to do their bidding. She was even convinced that Holragi had used it to enslave entire tribes of the desert to work on the spacerail, but few had ever left the project to confirm it. But today, she had seen physicians using it as a life-saving drug, she saw a kaln inject it into hae skin without ill-effects, and it made her worried.
+Pomri was confused and apprehensive. She'd only known it as an addictive narcotic, a substance used by lowbrow peddlers and clandestine organizations to coerce the desparate to do their bidding. She was even convinced that Holragi had used it to enslave entire tribes of the desert to work on the spacerail, though few had ever left the project to confirm it. But today, she had seen physicians using it as a life-saving drug, she saw a kaln inject it into hae skin without ill-effects.
 
 "What is Kanosin?" she asked me; almost demanding an answer.
 
@@ -62,24 +62,40 @@ I hesitated, remembering my mother's direction. But I felt that I could trust he
 
 "It..."
 
-"Speak!"
+"Go on."
 
 "It reverses death."
 
-Pomri paused, doubtful. "You're saying that this substance literally makes you immortal, and you just use it as a flow tattoo?"
+Pomri paused, doubtful. "You're saying that this substance literally makes you immortal?"
+
+"Well... not exactly."
+
+"And you just used it as a flow tattoo?"
 
 "How else would we get up the mountain?"
 
-"Quit lying, Linyu. Death is final. You can't reverse it."
+"Linyu, you could save the world with this. Why aren't you sharing it with the world?"
 
-My face went cold. I sinched my satchel and stood up, walking ahead and away.
+I responded with a feeling that had yet to find a reason for, "This world has damned itself."
+
+"Who are you to judge that?"
+
+My face flushed with frustration. I stood up, sinching my satchel closed, and continued up the path we had been on.
 
 "Linyu, where are you going?"
 
-I didn't respond. A tower cannot be reasoned with.
+"To the observatory."
 
-"If you truly believed yourself," she yelled to me, "you'd be sharing it with the world."
+"Fuck the observatory, why won't you give me a straight answer?"
 
-"Your people are no better than the Holragi! You think it's fun to prey on people's false hopes like that?"
+I didn't respond. A rock cannot be reasoned with.
 
-My feet took me round a corner where I stopped them and leaned against a tree to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest, deepest waters, lit only by the light from her skin. She would take them to my mother who cleared the water and recalled them back to life with kanosin. And I would have grown out of those stories had I not experienced them for myself. I looked down at the bright streaks of kanosin on my legs, and did not feel shame. Kanosin would never take me.
+"Just like that? You're going to walk away just like that?"
+
+Her voice started to break.
+
+"You could have saved Kipnu! You could have saved Melna!"
+
+"You people are no better than the Holragi!"
+
+My feet took me round a corner where I stopped them and leaned against a tree to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, reason would have led me to dismiss these stories, but experience has only reinforced them. I looked down at the bright streaks of kanosin on my legs, and felt no shame. I'd been to that hell and come back alive.
