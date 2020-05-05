@@ -54,11 +54,11 @@ Pomri was confused and apprehensive. She'd only known it as an addictive narcoti
 
 "What is Kanosin?" she asked me; almost demanding an answer.
 
-I hesitated, remembering my mother's direction. But I felt that I could trust her.
+I hesitated, remembering my mother's strict instruction not to tell anyone. But I felt that I could trust Pomri.
 
-"It's a chemical harvested from kelp in the volcanic ocean."
+"It's a chemical. From volcanic kelp."
 
-"Yes but... what does it do? How does it actually work?"
+"Yes but... what does it actually do?"
 
 "It..."
 
@@ -66,31 +66,33 @@ I hesitated, remembering my mother's direction. But I felt that I could trust he
 
 "It reverses death."
 
-Pomri paused, doubtful. "You're saying that this substance literally makes you immortal?"
+Pomri paused, doubtful. "Kanosin... makes you immortal?"
 
 "Not exactly."
 
-"And you just used it as a flow tattoo?"
+"And you use it as a flow tattoo?"
 
-"How else would we get up the mountain?"
+"We had no other light. How else would we get up the mountain?"
 
-She held her head in disbelief. "You could have saved countless people with this. Why aren't you sharing it with the world?"
+She held her head in disbelief. "You could save countless lives with this. Why aren't you sharing it with the world?"
 
 "This world can't be saved. The obscura was a convenient distraction for Holrag. Now they control everything."
 
-She grasped my arm, trying eagerly to be convincing, "Who are you to judge the future of the world? There are people in Rudjan – innocent people – that could be saved from the obscura."
+She grasped my arm, trying eagerly to be convincing, "Who are you to judge the future of the world? There are people in Rudjan who despise the Holragi. People that could be saved from the obscura."
 
-"They can't!" I plead.
+"They can't! They can't be saved!" I plead.
 
 "Why not?!"
 
-My face flushed with frustration. I had learned of the world from my parents and all the Ulukomans who told stories than anyone my age ought to have. Even my father knew the dangers of kanosin flooding.
+My face flushed with frustration. I had learned of the dark side of this world from my parents and all the stories told by the forgotten people of Ulukoma.
 
-"Ulukomans discussed this long ago and they made up their minds," I said, "Kanosin is far too dangerous to give to the entire world."
+I said, desparately, "The old tribes of Ulukoma discussed this long ago and we reached a conclusion. My mother's research on Kanosin is far too dangerous to spread beyond Ulukoma."
 
-"Kanosin is not yours to rule. No one power can be the gatekeeper of life and death."
+"Your tribes cannot be the gatekeeper of life and death."
 
-"That's exactly why we cannot spread it," I said. With a heavy sigh I stood up, sinching my satchel closed, and continued up the path we had been on.
+"We must," I said. "If more people discover what we know, the Holragi will get wind of it and invade. They will take everything we have including the land we live on. Then they will be the gatekeepers."
+
+With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. I felt a strong urge to get away, nestled deeply within a pool of guilt.
 
 "Where are you going Linyu?"
 
@@ -98,7 +100,7 @@ My face flushed with frustration. I had learned of the world from my parents and
 
 "Fuck the observatory. Whatever Jesse has to say can wait."
 
-I didn't respond. A rock cannot be reasoned with.
+I didn't respond.
 
 "Just like that? You're going to walk away just like that?"
 
@@ -108,6 +110,6 @@ Her voice started to break.
 
 "You people are no better than the Holragi!"
 
-My feet took me round a corner where I stopped them and leaned against a tree to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, reason would have led me to dismiss these stories, but experience has only reinforced them. I looked down at the bright streaks of kanosin on my legs, and felt no shame. I'd been to that hell and come back alive.
+I saw a tree nearly fifty paces away and nearly ran to it. The trunk made a good place to hide and sit to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, reason would have led me to dismiss these stories, but experience has only reinforced them. I looked down at the bright streaks of kanosin on my legs, and felt no shame. I'd been to that hell and come back alive.
 
-Pomri showed no signs of following me up the hill, so I turned my head upward onto the path to the observatory, and refused to feel alone.
+There were no footsteps to be heard from Pomri's direction. So I turned my head upward onto the path to the observatory, and refused to feel alone.
