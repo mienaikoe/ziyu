@@ -92,7 +92,7 @@ I said, desparately, "The old tribes of Ulukoma discussed this long ago and we r
 
 "We must," I said. "If more people discover what we know, the Holragi will get wind of it and invade. They will take everything we have including the land we live on. Then they will be the gatekeepers."
 
-With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. I felt a strong urge to get away, nestled deeply within a pool of guilt.
+With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. Instead, a strong urge to get away from Pomri was growing, deep within a pool of guilt. And so I began to walk.
 
 "Where are you going Linyu?"
 
@@ -110,6 +110,14 @@ Her voice started to break.
 
 "You people are no better than the Holragi!"
 
-I saw a tree nearly fifty paces away and nearly ran to it. The trunk made a good place to hide and sit to calm down. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, reason would have led me to dismiss these stories, but experience has only reinforced them. I looked down at the bright streaks of kanosin on my legs, and felt no shame. I'd been to that hell and come back alive.
+A tree grew from between the rocks a few paces ahead, big enough to sit and hide behind, and I nearly ran to it in panic. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, I would have dismissed the stories as hyperbolic, but experience has only reinforced them for me. _Kanosin is a beast, not a demon,_ I recalled one of my mother's sayings. _We must tame it, not destroy it._ I looked down at the bright streaks of kanosin on my legs, so alike to the patterns of my nather's skin, and I felt no shame.
 
-There were no footsteps to be heard from Pomri's direction. So I turned my head upward onto the path to the observatory, and refused to feel alone.
+I heard footsteps carefully finding their way and for a moment I thought of fleeing off into the night and leaving Pomri to find her own way. But instead of approaching, they drifted off, back down the mountain.
+
+"Guess she's leaving then."
+
+I could only look forward now. Toward the path to the observatory. With my remaining strength I pushed myself to the summit and refused to feel alone.
+
+---
+
+_Knock Knock._
