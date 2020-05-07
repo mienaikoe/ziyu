@@ -1,123 +1,71 @@
-## Chapter 26
+Ahead and above in the distance, I heard the cries of a man, interspersed with fits of coughing – an even split of the two. At first I thought my ears betrayed me, but as we approached, the sound grew in volume. I traced it to a direction nearer Ara and took off. Pomri was behind me screaming "Wait!" but I did not stop.
 
-Pomri's lantern illuminated a heavily damaged sign beside the path. _eik...servato... Ara_
+The ground began to absolutely teem with rocks as it sloped upward. _This hill wasn't here before. Heiko is a flat grassland._ I reached a point where the rocks continued but the land leveled off again. A few paces away, I saw him through the dust. He knealt with his hands behind his head, nodding his torso back and forth. I came to him, yelling, "Aey-o. you alright?" but suddenly a rock below me gave way, and I stumbled. My reflexes lurched my hands towards the closest rocks, scraping them as they clambered for a solid grasp. Below me was a sudden drop and a black void. Its depth was unknowable, but I knew I would certainly die if I let go now.
 
-She looked it over in detail and said, "looks like it's far enough from the city that the explosion left it intact for the most part."
+"Got you," she said, grasping my wrist. "What are you thinking running off in the dark like that?"
 
-"I've been here before," I said, remembering bits and pieces from that night.
+My breath and my words were paused in shock as she pulled me back onto the clifftop.
 
-"Melna mentioned that she found you somewhere around here."
+"We've reached the crater. Try your best not to fall into it again."
 
-I only spoke when I knew something, and there was very little for me to speak of.
+As I caught my breath, I shushed Pomri to listen for the sounds of the man that led me here. Still he was crying, close to us yet unaware of me or Pomri.
 
-She approached the sign and said, "before we go,"
+"Who's there?" she asked harshly. But he didn't respond. She approached the sound carefully.
 
-With one hand, she broke off the long piece of wood that said "Ara" and cut it into a thinner piece with the blade of her spear, making sure to smooth out any potential splinters or hanging sharp bits.
+"Speak!" she tried being demanding, but still he didn't respond.
 
-"Use this for stability," she said, holding one of the pieces out to me. I took it in my hands and looked for the word. It too, had been smoothed out.
+She laid a hand on his shoulder and he panicked, stumbling on himself and wheezing heavily as he backed away. His eyes were bloodshot, and his face caked with black ash.
 
-"Come on," she said. "The quicker we move, the quicker we rest."
+"I have nothing to give you," he said staring at her feet. "Take my life or leave me to my grief," he said.
 
-My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
+"Jesse? Is that you?"
 
-The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet.
+He remained there, motionless, fighting back a cough and holding his hand to the back of his head.
 
-Halfway to the top, Pomri's lantern started to flicker and fade.
+"How did you survive?"
 
-"Ay. Damn this thing," she said, holding it up in her right hand. "Never enough fuel."
+But still he did not move.
 
-I ran to approach her, aware of my dependence on her guidance. She looked at me as if she was surprised and slowed her pace, expressionless, but perhaps a I struck one of her hearts. I barely saw her face before the lantern fizzled out and we were stuck in the muddy twilight, unable to see where the path ended and where it began.
+"He can't hear you," I chimed.
 
-"I am not wasting my life because of a damn lantern," she said, setting it down harshly. I could tell she wanted to toss it down the mountain, but she settled for staring at it in angry deliberation. My own deliberations were fixated on a few glass ampules and a syringe in a small writers bag in my satchel. I wasn't sure if this was the best use for them or what Pomri would think, but somehow I found the bag in my hands anyway holding them out for Pomri to feel for.
+Pomri glanced back at me, apprehensive. Instead of fighting with her, I approached him slowly and held out my hand, to which he responded with his own. Upon his palm, I placed a finger and drew the words I wanted to say. _L-I-N-Y-U_, first, and then pointed to myself. Then _P-O-M-R-I_. His eyes lit up ever so slightly as if he knew that name, but he didn't look in her direction, only at me.
 
-"What is this?"
+"I know Pomri. She warned us early. Got most of us out."
 
-"Kanosin."
+It occured to me that he may not yet have realized that he had gone deaf and partially blind.
 
-"Oi put that away! What would you bring something like that out here for?"
+"Ask him what happened," Pomri asked.
 
-"It can light the way."
+_W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
 
-"What are you on about now?"
+"I was at the observatory when Holragi landed. Thimlu had a message he wanted to send, that he entrusted me to bring wherever you were going. But I didn't make it, did I?... That's okay though, because now you're here."
 
-She watched patiently as I pulled an ampule and neatly injected it into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I fetched another ampule and did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's face in the illumination, wide-eyed and unbelieving.
+"That's great, Jesse," said Pomri, "What was the message?"
 
-"W... What is this?"
+_W-H-A-_
 
-"My people live in darkness. We had to find some way to see light."
+"...I...I can't remember."
 
-"So you used the same narcotic you use to treat injuries?"
+"You can't remember?"
 
-"Kanosin has many uses."
+She stooped down, holding the lantern to her face so he could read her lips.
 
-Pomri was confused and apprehensive. She'd only known it as an addictive narcotic, a substance used by lowbrow peddlers and clandestine organizations to coerce the desparate to do their bidding. She was even convinced that Holragi had used it to enslave entire tribes of the desert to work on the spacerail, though few had ever left the project to confirm it. But today, she had seen physicians using it as a life-saving drug, she saw a kaln inject it into hae skin without ill-effects.
+"Try to remember," she demanded.
 
-"What is Kanosin?" she asked me; almost demanding an answer.
+"I can't remember!" he cried. "I can't...my..."
 
-I hesitated, remembering my mother's strict instruction not to tell anyone. But I felt that I could trust Pomri.
+His pupils began to constrict and we watched as his mind began to slip backward in time.
 
-"It's a chemical. From volcanic kelp."
+"Wait... who are you?... I have nothing to give you. Go away!"
 
-"Yes but... what does it actually do?"
+He turned and shuffled away from us with his hand still holding the back of his head. With a fit, he coughed loudly as if he had been struggling to hold it in. Black mucus appeared on his hand.
 
-"It..."
+"Leave me be," he said to us.
 
-"Go on."
+We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance.
 
-"It reverses death."
+_I need to get moving_
 
-Pomri paused, doubtful. "Kanosin... makes you immortal?"
-
-"Not exactly."
-
-"And you use it as a flow tattoo?"
-
-"We had no other light. How else would we get up the mountain?"
-
-She held her head in disbelief. "You could save countless lives with this. Why aren't you sharing it with the world?"
-
-"This world can't be saved. The obscura was a convenient distraction for Holrag. Now they control everything."
-
-She grasped my arm, trying eagerly to be convincing, "Who are you to judge the future of the world? There are people in Rudjan who despise the Holragi. People that could be saved from the obscura."
-
-"They can't! They can't be saved!" I plead.
-
-"Why not?!"
-
-My face flushed with frustration. I had learned of the dark side of this world from my parents and all the stories told by the forgotten people of Ulukoma.
-
-I said, desparately, "The old tribes of Ulukoma discussed this long ago and we reached a conclusion. My mother's research on Kanosin is far too dangerous to spread beyond Ulukoma."
-
-"Your tribes cannot be the gatekeeper of life and death."
-
-"We must," I said. "If more people discover what we know, the Holragi will get wind of it and invade. They will take everything we have including the land we live on. Then they will be the gatekeepers."
-
-With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. Instead, a strong urge to get away from Pomri was growing, deep within a pool of guilt. And so I began to walk.
-
-"Where are you going Linyu?"
-
-"To the observatory."
-
-"Fuck the observatory. Whatever Jesse has to say can wait."
-
-I didn't respond.
-
-"Just like that? You're going to walk away just like that?"
-
-Her voice started to break.
-
-"You could have saved Kipnu! You could have saved Melna!"
-
-"You people are no better than the Holragi!"
-
-A tree grew from between the rocks a few paces ahead, big enough to sit and hide behind, and I nearly ran to it in panic. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, I would have dismissed the stories as hyperbolic, but experience has only reinforced them for me. _Kanosin is a beast, not a demon,_ I recalled one of my mother's sayings. _We must tame it, not destroy it._ I looked down at the bright streaks of kanosin on my legs, so alike to the patterns of my nather's skin, and I felt no shame.
-
-I heard footsteps carefully finding their way and for a moment I thought of fleeing off into the night and leaving Pomri to find her own way. But instead of approaching, they drifted off, back down the mountain.
-
-"Guess she's leaving then."
-
-I could only look forward now. Toward the path to the observatory. With my remaining strength I pushed myself to the summit and refused to feel alone.
+My legs began to move, but I was still in my mind, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
 
 ---
-
-_Knock Knock._

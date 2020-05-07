@@ -29,116 +29,126 @@ She glanced at me, hearing my curiosity.
 
 She looked at me again, this time she held her stare.
 
-"Why do you ask such questions?"
+"A damn metal ball hit it. Why do you ask such questions?"
 
-I had an answer but she wasn't looking for one.
+"I meant... after..."
 
-"You'll find out soon enough. Best not to dwell on thoughts like that. Focus on the task at hand."
+"You'll find out soon enough. Best not to dwell on thoughts like that."
 
 "Maybe we can find survivors quicker if we can figure out what areas were hit the hardest."
 
-She turned to stop me, putting her hand on my shoulder.
+She turned to stop me with a palm on my arm, clearly agitated, not annoyed.
 
-"Look around, Linyu! You think someone could survive this chaotic mess?"
+"Look around, Linyu. You think someone could survive this chaotic mess?"
 
 She lifted her hands and turned back toward the darkness.
 
-"We're here for confirmation. For our own closure. Nothing more."
+"We're here for confirmation. To pay our respects and provide closure for the people who left loved ones behind. Nothing more."
 
-I wanted to cry, but got angry instead and took off walking in front of her. My tears were not for her to see.
+I wanted to cry, but I had come to despise the wastefulness of tears.
 
-Ahead and above in the distance, I heard the cries of a man, interspersed with fits of coughing – an even split of the two. At first I thought my ears betrayed me, but as we approached, the sound grew in volume. I traced it to a direction nearer Ara and took off. Pomri was behind me screaming "Wait!" but I did not stop.
-
-The ground began to absolutely teem with rocks as it sloped upward. _This hill wasn't here before. Heiko is a flat grassland._ I reached a point where the rocks continued but the land leveled off again. A few paces away, I saw him through the dust. He knealt with his hands behind his head, nodding his torso back and forth. I came to him, yelling, "Aey-o. you alright?" but suddenly a rock below me gave way, and I stumbled. My reflexes lurched my hands towards the closest rocks, scraping them as they clambered for a solid grasp. Below me was a sudden drop and a black void. Its depth was unknowable, but I knew I would certainly die if I let go now.
-
-"Got you," she said, grasping my wrist. "What are you thinking running off in the dark like that?"
-
-My breath and my words were paused in shock as she pulled me back onto the clifftop.
-
-"We've reached the crater. Try your best not to fall into it again."
-
-As I caught my breath, I shushed Pomri to listen for the sounds of the man that led me here. Still he was crying, close to us yet unaware of me or Pomri.
-
-"Who's there?" she asked harshly. But he didn't respond. She approached the sound carefully.
-
-"Speak!" she tried being demanding, but still he didn't respond.
-
-She laid a hand on his shoulder and he panicked, stumbling on himself and wheezing heavily as he backed away. His eyes were bloodshot, and his face caked with black ash.
-
-"I have nothing to give you," he said staring at her feet. "Take my life or leave me to my grief," he said.
-
-"Jesse? Is that you?"
-
-He remained there, motionless, fighting back a cough and holding his hand to the back of his head.
-
-"How did you survive?"
-
-But still he did not move.
-
-"He can't hear you," I chimed.
-
-Pomri glanced back at me, apprehensive. Instead of fighting with her, I approached him slowly and held out my hand, to which he responded with his own. Upon his palm, I placed a finger and drew the words I wanted to say. _L-I-N-Y-U_, first, and then pointed to myself. Then _P-O-M-R-I_. His eyes lit up ever so slightly as if he knew that name, but he didn't look in her direction, only at me.
-
-"I know Pomri. She warned us early. Got most of us out."
-
-It occured to me that he may not yet have realized that he had gone deaf and partially blind.
-
-"Ask him what happened," Pomri asked.
-
-_W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
-
-"I was at the observatory when Holragi landed. Thimlu had a message he wanted to send, that he entrusted me to bring wherever you were going. But I didn't make it, did I?... That's okay though, because now you're here."
-
-"That's great, Jesse," said Pomri, "What was the message?"
-
-_W-H-A-_
-
-"...I...I can't remember."
-
-"You can't remember?"
-
-She stooped down, holding the lantern to her face so he could read her lips.
-
-"Try to remember," she demanded.
-
-"I can't remember!" he cried. "I can't...my..."
-
-His pupils began to constrict and we watched as his mind began to slip backward in time.
-
-"Wait... who are you?... I have nothing to give you. Go away!"
-
-He turned and shuffled away from us with his hand still holding the back of his head. With a fit, he coughed loudly as if he had been struggling to hold it in. Black mucus appeared on his hand.
-
-"Leave me be," he said to us.
-
-We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance.
-
-"Hey. We need to get moving."
-
-My legs began to move, but I was still in my mind, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
-
----
-
-We followed the crater edge toward the harbor, making a note of its size by tracking our paces from the long road to the Ulu road. The immensity of the crater was unsettling. If not for the dust, the realization of an absence the size of a city may have paralyzed me the way it had Jesse. But Pomri kept me going. And I wondered what kept her.
+We followed the crater edge toward the harbor, making a note of its size by tracking our paces from the long road to the Ulu road. The immensity of the crater was unsettling. If not for the dust, an absence the size of a city may have paralyzed me. But Pomri kept me going. And I wondered what kept her.
 
 This place seemed so alien to me, even though I had been there just a day before. I struggled to understand even the minute parts of it: why were the rocks so jagged and the dust so incessant? were there others like Jesse, living only to die slowly? But I knew that if I asked she would say _"Oi, kaln. Now is not the time."_. So I did what my mother taught me to do once. I closed my eyes and saw myself through the dust from above, weaving perception together with inference to hold all of Heiko in my awareness. I saw it as I understood it – in the absence of sight, I could paint the image of my world on my mind. I saw a deep hole; as deep as the tallest tree is tall. A sword falling from the sky, turning the earth into dust, pushing it out in every direction. It was the concrete of their homes, the boulders upon which they built, cracked and heated and pulverized into trillions of rocks and pebbles and specks of dust. We were but a ship of the living making our way across an ocean of the dead.
 
-"Lin, what're you doing?"
+"She's in there somewhere. I have to find her."
 
-I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her. The dust was thinner here, as I presumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
+I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her, and I saw the crater bowing its proud lip into the ocean, having erased any memory of the harbor that came before it. save for a few jagged, broken posts. The dust was thinner here, as I assumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
 
-"The crater continues into the water," she said. "There's nothing left."
+She had stopped halfway through a stride, holding her lantern up to her face.
 
-Then she continued, "She's in there somewhere. I have to find her," and continued walking up the crater rim.
+"Ay. Damn this thing." The flame began to flicker and fade. "Never enough fuel."
 
-"Pomri, there's nothing over there!" I said in futility. But I had to follow her to make sure she was safe.
+I moved closer to her, suddenly aware of my dependence on her light. She glanced back at me as if she was surprised, expressionless. I barely saw her face before the lantern fizzled out and we were stuck in the muddy twilight, unable to see where the path ended and where it began.
 
-This was truly the darkest place in Palinan. I could no longer see anything save for glimpses of rock and Pomri – whatever her lantern revealed.
+"I am not wasting my life because of a damn lantern," she said, setting it down harshly. I could tell she wanted to toss it into the crater, but she settled for staring at it in angry deliberation. My own deliberations were fixated on a few glass ampules and a syringe in a small writers bag in my satchel. I wasn't sure if this was the best use for them or what Pomri would think, but somehow I found the bag in my hands anyway holding them out for Pomri to feel for.
 
-"Come on, Lin," she told me often. Her pace was far quicker than mine now, dodging and weaving through rocks. I stumbled through the same, having little time to adjust. Pomri's light danced around in the distance, growing smaller, quieter, more erratic. As the distance between us grew, I could no longer remember the path where she ran, but I slogged through it anyway, tripping and shifting and stumbling about until all I could see of her was her lantern. It made a turn toward the water, bounding down the outside of the crater as if to notice something specific.
+"What is this?"
 
-_What is Pomri up to now?_ I wondered, following her carefully down the outside of the crater.
+"Kanosin."
 
-The light stopped in front of a badly broken wooden column protruding from the ocean and rock where the pier used to be. Pomri sat quietly in front of it, resting her head, speaking to an old friend she'd lost too soon.
+"Oi put that away! What would you bring something like that out here for?"
+
+"It can light the way."
+
+"What are you on about now?"
+
+She watched patiently as I pulled an ampule and neatly injected it into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I fetched another ampule and did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's face in the illumination, wide-eyed and unbelieving.
+
+"W... What is this?"
+
+"My people live in darkness. We had to find some way to see light."
+
+"So you used the same narcotic you use to treat injuries?"
+
+"Kanosin has many uses."
+
+Pomri was confused and apprehensive. She'd only known it as an addictive narcotic, a substance used by lowbrow peddlers and clandestine organizations to coerce the desparate to do their bidding. She was even convinced that Holragi had used it to enslave entire tribes of the desert to work on the spacerail, though few had ever left the project to confirm it. But today, she had seen physicians using it as a life-saving drug, she saw a kaln inject it into hae skin without ill-effects.
+
+"What is Kanosin?" she asked me; almost demanding an answer.
+
+I hesitated, remembering my mother's strict instruction not to tell anyone. But I felt that I could trust Pomri.
+
+"It's a chemical. From volcanic kelp."
+
+"Yes but... what does it actually do?"
+
+"It..."
+
+"Go on."
+
+"It reverses death."
+
+Pomri paused, doubtful. "Kanosin... makes you immortal?"
+
+"Not exactly."
+
+"And you use it as a flow tattoo?"
+
+"We had no other light. How else would we continue?"
+
+She held her head in disbelief. "You could save countless lives with this. Why aren't you sharing it with the world?"
+
+"This world can't be saved. The obscura was a convenient distraction for Holrag. Now they control everything."
+
+She grasped my arm, trying eagerly to be convincing, "Who are you to judge the future of the world? There are people in Rudjan who despise the Holragi. People that could be saved from the obscura."
+
+"They can't! They can't be saved!" I plead.
+
+"Why not?!"
+
+My face flushed with frustration. I had learned of the dark side of this world from my parents and all the stories told by the forgotten people of Ulukoma.
+
+I said, desparately, "The old tribes of Ulukoma discussed this long ago and we reached a conclusion. My mother's research on Kanosin is far too dangerous to spread beyond Ulukoma."
+
+"Your tribes cannot be the gatekeeper of life and death."
+
+"We must," I said. "If more people discover what we know, the Holragi will get wind of it and invade. They will take everything we have including the land we live on. Then they will be the gatekeepers."
+
+With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. Instead, a strong urge to get away from Pomri was growing, deep within a pool of guilt. And so I began to walk.
+
+"Where are you going Linyu?"
+
+"To the observatory."
+
+"Fuck the observatory. Whatever Jesse has to say can wait."
+
+I didn't respond.
+
+"Just like that? You're going to walk away just like that?"
+
+Her voice started to break.
+
+"You could have saved Kipnu! You could have saved Melna!"
+
+"You're no better than the Holragi!"
+
+A tree grew from between the rocks a few paces ahead, big enough to sit and hide behind, and I nearly ran to it in panic. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, I would have dismissed the stories as hyperbolic, but experience has only reinforced them for me. _Kanosin is a beast, not a demon,_ I recalled one of my mother's sayings. _We must tame it, not destroy it._ I looked down at the bright streaks of kanosin on my legs, so alike to the patterns of my nather's skin, and I felt no shame.
+
+Curiosity turned my eyes toward where she used to be, where I saw her stumbling in the dark down the crater toward the last remnants of the harbor.
+
+"There's nothing down there. Melna is gone," I said to myself. But I had to follow her to make sure she was safe.
+
+She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate, painfully blind. But she made it down to the waterline all the same, with me observing from above. A badly broken wooden column stood proud where the pier used to be: the last of its kind. Pomri sat quietly in front of it, resting her head, speaking to an old friend she'd lost too soon.
 
 <!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->
