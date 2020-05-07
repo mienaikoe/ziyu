@@ -16,7 +16,7 @@
 
 Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescopic projector pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
-"Okay Thimlu, lead the way," Melna asked.
+"Okay Jesse, lead the way," Melna asked.
 
 "Look for a line of small dots rising up from the horizon."
 
@@ -44,15 +44,15 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Jesse is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
+"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Thimlu is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
 
 "We shall keep a constant eye."
 
-"And Thimlu," she recalled, "Keep your lines open. Communication is the only way we'll get through this."
+"And Jesse," she recalled, "Keep your lines open. Communication is the only way we'll get through this."
 
 "You have my word, žah."
 
-Thimlu scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
+Jesse scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
@@ -84,7 +84,7 @@ Melna sighed, letting her internal frustration simmer and settle.
 
 Pomri threw her hands up in disappointment as Melna reached for a thick felted black shawl and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
 
-Melna turned back to her and said, "Meet me tomorrow at the train station. Bring observer Thimlu's findings."
+Melna turned back to her and said, "Meet me tomorrow at the train station. Bring observer Jesse's findings."
 
 "But the trains aren't running to Heiko."
 

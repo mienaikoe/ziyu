@@ -1,7 +1,7 @@
 <!--
 
 - Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
-- Melna goes to see Jesse, and Linyu is there
+- Melna goes to see Thimlu, and Linyu is there
 - Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
 - The two travel to Rudjan and talk on the way.
 - At Rudjan, they meet Ramne and Ginnu
@@ -10,239 +10,233 @@
 
 ## Chapter 16
 
-
 <!-- TODO: Add Linyu to this chapter -->
 
-  Mel awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Lif at the front door watching hae garden in the light while Kip lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind. A million thirsty mouths quenched by countless tiny droplets dancing to and fro, dampening the noise of their goings and doings. But something was amiss in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up with Kip beside her and looked toward Lif at the door, looking back at the two of them with tears in hae eyes.
+Mel awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Lif at the front door watching hae garden in the light while Kip lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind. A million thirsty mouths quenched by countless tiny droplets dancing to and fro, dampening the noise of their goings and doings. But something was amiss in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up with Kip beside her and looked toward Lif at the door, looking back at the two of them with tears in hae eyes.
 
-  "Kipnu... Melna... I love you." Thi turned and left, shutting the door behind hae.
+"Kipnu... Melna... I love you." Thi turned and left, shutting the door behind hae.
 
-  "Where are you going?" She called to hae, but thi had gone and the room was empty. She sat up and looked toward the door, still closed, and found herself on the floor near the washroom, dressed in an overly wrinkled version of the clothes she wore the day before. *Why am I on the floor?*
+"Where are you going?" She called to hae, but thi had gone and the room was empty. She sat up and looked toward the door, still closed, and found herself on the floor near the washroom, dressed in an overly wrinkled version of the clothes she wore the day before. _Why am I on the floor?_
 
-  "Linyu?" She called loudly, suddenly remembering hae. "Linyu?!"
+"Linyu?" She called loudly, suddenly remembering hae. "Linyu?!"
 
-  She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. Liffa's robes had been left in the washroom and there was no other sign of Linyu.
+She lifted herself up by one arm and scurried around the house looking for where Linyu might have gone. Liffa's robes had been left in the washroom and there was no other sign of Linyu.
 
-  With little time to spare that day, she resolved to carry on with her day and have Jesse, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
+With little time to spare that day, she resolved to carry on with her day and have Thimlu, the operator, send a message to look for hae. Pomri would give her an earful on the whole journey if she was late for her own appointment. She quickly grabbed her senate robes from the bedroom and filled a copper canteen of water, stuffing them in her bag, and walked outside into the foggy morning.
 
-  She approached the stable, calling, "Laen-Laen," but she heard nothing. She checked the stable and Laen-Laen was gone.
+She approached the stable, calling, "Laen-Laen," but she heard nothing. She checked the stable and Laen-Laen was gone.
 
-  She panicked and called again, louder and further than before, "Laen-Laen!"
+She panicked and called again, louder and further than before, "Laen-Laen!"
 
-  There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's ziyu tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
+There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's ziyu tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
 
-  "Why are you all the way out here, Linyu?" She asked before seeing Linyu curled up between Linyu's stretching legs and beginning to awaken. The wooden listener was still on hae ear.
+"Why are you all the way out here, Linyu?" She asked before seeing Linyu curled up between Linyu's stretching legs and beginning to awaken. The wooden listener was still on hae ear.
 
-  "Linyu, what are you doing out here?"
+"Linyu, what are you doing out here?"
 
-  Thi started to talk but remembered the pain in hae throat as only a whisper emerged. Thi cleared it gently and tried again.
+Thi started to talk but remembered the pain in hae throat as only a whisper emerged. Thi cleared it gently and tried again.
 
-  "Tree," thi said with only the scratch of a voice, holding haeself up against the ground.
+"Tree," thi said with only the scratch of a voice, holding haeself up against the ground.
 
-  "I was so worried where you had gone."
+"I was so worried where you had gone."
 
-  "Why?" thi asked, and surprised her.
+"Why?" thi asked, and surprised her.
 
-  "Why? Because you're... alone. And I have no clue where your parents are... And you can't call for help."
+"Why? Because you're... alone. And I have no clue where your parents are... And you can't call for help."
 
-  "Am. Fine," thi said with conviction. Melna's preplexion was renewed. Such an independent child could surely not have come from Heiko. *But then how did thi get here?*, she thought.
+"Am. Fine," thi said with conviction. Melna's preplexion was renewed. Such an independent child could surely not have come from Heiko. _But then how did thi get here?_, she thought.
 
-  "Well, anyway, I need to take Laen on a big trip to Shaki today."
+"Well, anyway, I need to take Laen on a big trip to Shaki today."
 
-  "Shaki?"
+"Shaki?"
 
-  "Yes. It's quite far and there are a few things I must attend to there, so I might not be back for a while. I know someone in the city who can look after you while I'm gone."
+"Yes. It's quite far and there are a few things I must attend to there, so I might not be back for a while. I know someone in the city who can look after you while I'm gone."
 
-  "With. You," thi said.
+"With. You," thi said.
 
-  "You want to go with me?"
+"You want to go with me?"
 
-  Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
+Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
 
-  "No. It's much too dangerous. It's better if you stay here with Jesse."
+"No. It's much too dangerous. It's better if you stay here with Thimlu."
 
-  Thi stood up now and approached her. "With. You," thi insisted.
+Thi stood up now and approached her. "With. You," thi insisted.
 
-  She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
+She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
 
-  "I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a fidelant from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
+"I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a fidelant from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
 
-  Thi nodded back.
+Thi nodded back.
 
-  "Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
+"Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
 
-  "You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.
+"You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.
 
-  "Let's find you a couple big ones... wow these are all pretty big. And they seem pretty healthy even in the cold."
+"Let's find you a couple big ones... wow these are all pretty big. And they seem pretty healthy even in the cold."
 
-  She plucked a couple big ones at the low point of the field and quickly dusted them off, storing them in her bag.
+She plucked a couple big ones at the low point of the field and quickly dusted them off, storing them in her bag.
 
-  "Here you are," she said, tossing two of the largest ones to him. He chomped down on them, splashing droplets of a sweet white liquid in a circle around his mouth, and the sweet aroma of fresh pohua and not-so-fresh saffa breath filled their noses. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light.
+"Here you are," she said, tossing two of the largest ones to him. He chomped down on them, splashing droplets of a sweet white liquid in a circle around his mouth, and the sweet aroma of fresh pohua and not-so-fresh saffa breath filled their noses. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light.
 
-  "Our grain stores are practically empty from ration sharing. I guess we'll have to get something to eat in town," she told a disappointed Linyu. The quicker we ride out there, the quicker we get to eat.
+"Our grain stores are practically empty from ration sharing. I guess we'll have to get something to eat in town," she told a disappointed Linyu. The quicker we ride out there, the quicker we get to eat.
 
-  She led them to the stable where she fetched a thick linen riding cloth and wrapped securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
+She led them to the stable where she fetched a thick linen riding cloth and wrapped securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
 
-  "Here," she said to Linyu, stooping to fetch a small mycoleather travel bag. "Keep this with you. It's waterproof and keeps its shape well so it's great for storing food.
+"Here," she said to Linyu, stooping to fetch a small mycoleather travel bag. "Keep this with you. It's waterproof and keeps its shape well so it's great for storing food.
 
-  With a firm grab of his neck hair, she hopped onto Laen's back and settled herself in. Then, holding her arms out to Linyu, she said, "Come on, I'll pull you up," and with a firm grip she lifted hae up to sit in front of her.
+With a firm grab of his neck hair, she hopped onto Laen's back and settled herself in. Then, holding her arms out to Linyu, she said, "Come on, I'll pull you up," and with a firm grip she lifted hae up to sit in front of her.
 
-  "Alright, Laen-Laen. Let's take a steady trip to the station."
+"Alright, Laen-Laen. Let's take a steady trip to the station."
 
-  He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Mel focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
+He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Mel focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
 
-  The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
+The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
 
-  She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. *Guess I'm not the only late one.* She hopped off of Laen-Laen and patted the saffa's cheek and turning to Linyu.
+She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. _Guess I'm not the only late one._ She hopped off of Laen-Laen and patted the saffa's cheek and turning to Linyu.
 
-  "Stay here, Linyu. I'll be right back."
+"Stay here, Linyu. I'll be right back."
 
-  She approached the pair in the corner wearing an impeccable posture in lieu of her robes. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a maman about his height and build, twiddling with a small steel bar with a bend at the end.
+She approached the pair in the corner wearing an impeccable posture in lieu of her robes. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a maman about his height and build, twiddling with a small steel bar with a bend at the end.
 
-  She greeted them, "Hi there. Do you know if this is when the train typically arrives?"
+She greeted them, "Hi there. Do you know if this is when the train typically arrives?"
 
-  They gave them a once-over and the man asked, "No trains today. Get out of here."
+They gave them a once-over and the man asked, "No trains today. Get out of here."
 
-  "I'm just looking for the time," she persisted, now suspicious of them.
+"I'm just looking for the time," she persisted, now suspicious of them.
 
-  The two glanced at each other and the maman approached her with a swagger meant to intimidate.
+The two glanced at each other and the maman approached her with a swagger meant to intimidate.
 
-  Thi said, "You look familiar," and glanced at her bag from which hastily-packed robes were peaking out.
+Thi said, "You look familiar," and glanced at her bag from which hastily-packed robes were peaking out.
 
-  "You're the fidelant who gave away all our food."
+"You're the fidelant who gave away all our food."
 
-  Mel suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
+Mel suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
 
-  "Wonder if you hoarded any," thi said, as thi grasped for the bag. Melna pulled it away from hae fingers, but then she felt the cold touch of the steel bar across her neck and she stopped from fleeing. Linyu, who was listening intently, panicked tried to get Laen's attention.
+"Wonder if you hoarded any," thi said, as thi grasped for the bag. Melna pulled it away from hae fingers, but then she felt the cold touch of the steel bar across her neck and she stopped from fleeing. Linyu, who was listening intently, panicked tried to get Laen's attention.
 
-  She tried to reason with them, "We have no food. Only robes and water."
+She tried to reason with them, "We have no food. Only robes and water."
 
-  "Your saffa will do", the man said, looking at Laen-Laen. "Call it over."
+"Your saffa will do", the man said, looking at Laen-Laen. "Call it over."
 
-  "You would kill a saffa to eat?"
+"You would kill a saffa to eat?"
 
-  "If we have nothing to eat, how will we survive? We don't have the luxury of choice," he said in his most scornful tone. It was clear he had been waiting for a moment to take his revenge.
+"If we have nothing to eat, how will we survive? We don't have the luxury of choice," he said in his most scornful tone. It was clear he had been waiting for a moment to take his revenge.
 
-  Mel hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
+Mel hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
 
-  "Hurry it up!" The maman demanded with the bar still at Melna's neck.
+"Hurry it up!" The maman demanded with the bar still at Melna's neck.
 
-  Suddenly, a voice called from behind them, "Melna. glad I found you."
+Suddenly, a voice called from behind them, "Melna. glad I found you."
 
-  The pair turned around to find Pomri, on her own saffa, holding a titanium sword to the maman's neck.
+The pair turned around to find Pomri, on her own saffa, holding a titanium sword to the maman's neck.
 
-  "Looks like you've made some friends," she addressed Melna.
+"Looks like you've made some friends," she addressed Melna.
 
-  The maman tugged on the man's arm and they dashed away from the station as fast as they could.
+The maman tugged on the man's arm and they dashed away from the station as fast as they could.
 
-  "You're woefully unprepared," said Pomri.
+"You're woefully unprepared," said Pomri.
 
-  Melna was furious. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
+Melna was furious. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
 
-  Pomri suspended her disagreement and aimed her tongue elsewhere. "Who's this kaln?" she asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
+Pomri suspended her disagreement and aimed her tongue elsewhere. "Who's this kaln?" she asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
 
-  "This is Linyu."
+"This is Linyu."
 
-  Pomri patiently waited for more details.
+Pomri patiently waited for more details.
 
-  Melna started again, "I found hae with Laen-Laen, voiceless and blind. Now they're pretty much inseparable. I don't know where thi came from, or how thi got into such a state."
+Melna started again, "I found hae with Laen-Laen, voiceless and blind. Now they're pretty much inseparable. I don't know where thi came from, or how thi got into such a state."
 
-  "And you're taking hae with us to Shaki? Isn't there someone here to take care of hae?"
+"And you're taking hae with us to Shaki? Isn't there someone here to take care of hae?"
 
-  "I think thi might know something about Holrag that we don't know."
+"I think thi might know something about Holrag that we don't know."
 
-  Pomri wore a blank stare in an attempt to hide her frustration.
+Pomri wore a blank stare in an attempt to hide her frustration.
 
-  "You never run out of strange ideas, do you?" she asked in an antagonizing tone.
+"You never run out of strange ideas, do you?" she asked in an antagonizing tone.
 
-  Mel let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
+Mel let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
 
-  "I only hope that we don't run out of time," she rebuked.
+"I only hope that we don't run out of time," she rebuked.
 
-  "Time... Never been fond of it. I find that I get more done when I don't have time to complain about how little time I have."
+"Time... Never been fond of it. I find that I get more done when I don't have time to complain about how little time I have."
 
-  "Oiii. Sometimes I wonder how you became a fidelant with such blind convictions."
+"Oiii. Sometimes I wonder how you became a fidelant with such blind convictions."
 
-  "I build my trust around those who see what I can't."
+"I build my trust around those who see what I can't."
 
+---
 
-*************
+The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced.
 
+Pomri took out her canteen and took a gulp of water before looking over to Linyu.
 
-  The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced.
+"You thirsty, Linyu? Boon-Boon filled up on plenty so she won't be needing much."
 
-  Pomri took out her canteen and took a gulp of water before looking over to Linyu.
+Thi didn't answer, but threw back a scowl of distrust in Pomri's direction.
 
-  "You thirsty, Linyu? Boon-Boon filled up on plenty so she won't be needing much."
+Pomri's hand receded and twisted the vessel closed. "Your pride will be your death," she said. Linyu's gaze of hearing had already diverted back toward the road.
 
-  Thi didn't answer, but threw back a scowl of distrust in Pomri's direction.
+A soft hand rested on hae shoulder, and thi snapped out of hae thoughts, "Hey, you ok?"
 
-  Pomri's hand receded and twisted the vessel closed. "Your pride will be your death," she said. Linyu's gaze of hearing had already diverted back toward the road.
+Thi straightened hae back and let out a gentle sigh, bringing a hand to meet hers.
 
-  A soft hand rested on hae shoulder, and thi snapped out of hae thoughts, "Hey, you ok?"
+Melna said, "Pomri might be a bit harsh, but she means well. We're about Va'na to Rudjan, and Shaki is still further. We need to keep hydrated out here."
 
-  Thi straightened hae back and let out a gentle sigh, bringing a hand to meet hers.
+She extended her own canteen to hae, and thi begrudgingly took a sip, a pause, and then another before giving it back to Melna.
 
-  Melna said, "Pomri might be a bit harsh, but she means well. We're about Va'na to Rudjan, and Shaki is still further. We need to keep hydrated out here."
+"Laen," thi whispered hae concern to her.
 
-  She extended her own canteen to hae, and thi begrudgingly took a sip, a pause, and then another before giving it back to Melna.
+"Saffas drink a lot of water and hold it for much longer. We'll give him some once we reach Rudjan."
 
-  "Laen," thi whispered hae concern to her.
+Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear; the things she heard, and the things she might be missing.
 
-  "Saffas drink a lot of water and hold it for much longer. We'll give him some once we reach Rudjan."
+"Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck and the craftwork of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother, and she didn't want to take that away.
 
-  Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear; the things she heard, and the things she might be missing.
+"It's.. It's nothing. Never mind," she said.
 
-  "Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck and the craftwork of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother, and she didn't want to take that away.
+Linyu relaxed again while Melna kept looking toward Rudjan, troubled by a question she didn't know how to ask. _When we stop at Rudjan. I need to know._
 
-  "It's.. It's nothing. Never mind," she said.
+---
 
-  Linyu relaxed again while Melna kept looking toward Rudjan, troubled by a question she didn't know how to ask. *When we stop at Rudjan. I need to know.*
+Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed its remaining light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city that hung above it. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
 
+"Linyu, do you know much about Rudjan?"
 
-*************
+Linyu looked in her direction with a vacant face, annoyed that she was talking again.
 
+"Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
 
-  Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed its remaining light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city that hung above it. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
+"It wasn't very safe from saffa," Melna butted in.
 
-  "Linyu, do you know much about Rudjan?"
+Pomri shot her a glare, and continued teaching.
 
-  Linyu looked in her direction with a vacant face, annoyed that she was talking again.
+"The saffa and tilmarim that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained to live in peace."
 
-  "Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
+"The settlers tricked them into fighting each other."
 
-  "It wasn't very safe from saffa," Melna butted in.
+"Melna! Let me tell the story!"
 
-  Pomri shot her a glare, and continued teaching.
+"Linyu doesn't need fog in hae water."
 
-  "The saffa and tilmarim that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained to live in peace."
+"How would you know this story anyway?"
 
-  "The settlers tricked them into fighting each other."
+"I hear it everytime I come here with a Rudjanese."
 
-  "Melna! Let me tell the story!"
+"Good. Then let Linyu hear it too."
 
-  "Linyu doesn't need fog in hae water."
+Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
 
-  "How would you know this story anyway?"
+"Now that you know about our history, let me tell you about the bridge we're crossing."
 
-  "I hear it everytime I come here with a Rudjanese."
+Linyu leaned back against Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
 
-  "Good. Then let Linyu hear it too."
+"By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a stone in the desert."
 
-  Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
+She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothing that life had swept her way.
 
-  "Now that you know about our history, let me tell you about the bridge we're crossing."
+"Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
 
-  Linyu leaned back against Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
-
-  "By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a stone in the desert."
-
-  She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothing that life had swept her way.
-
-  "Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
-
-  Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Boon-Boon joined him and together they announced their presence to the wetlands of Rudjan.
-
+Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Boon-Boon joined him and together they announced their presence to the wetlands of Rudjan.
 
 <!--
 

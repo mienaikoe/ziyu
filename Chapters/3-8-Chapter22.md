@@ -12,7 +12,7 @@ the heikoans flee to the south, and Holrag can't catch up. Some are lost by musk
 
  -->
 
-*Plink... Plink.*
+_Plink... Plink._
 
 The door above Melna dripped directly onto her head on the short ride to Heiko in a small submersible. Her mind was wandering upon that maman's path. Jumping off of Shinna's boat. Swimming through the kind of cold most Pangum would certainly perish in. She wondered if thi made it to shore or if the water had folded hae spirit into itself. Thi deserved to be a tall one, sweeping fishers and kelpers off their feet when they weren't paying attention. They would know hae well when thi came around. They would listen to hae when thi was speaking.
 
@@ -82,7 +82,7 @@ He tossed up his hands and said, "Suit yourself," then gestured to two soldiers 
 
 A soldier from their submersible shoved her forward and she began walking across the beach toward the point where the sand met one side of the grand pier. The sand that had always been kind to tread upon now filled her feet with cold, traveling along the marrow and the empty spaces in her shins and stiffening her joints with each step. She watched with anger as the people of Heiko's city center were summoned from their homes, sometimes forcefully, and gathered at the mouth of the pier. They were visibly malnourished, relying only on new crops that grew under the light of the obscura and what little stockpiles of dried stone fruits had remained of their last shipment from Yansha. Her face flushed with tiny tears from the pores in her hydroderm, but she stopped herself lest Fajro use it against her.
 
-As she approached the pier, the people were aghast at seeing Melna dressed in robes amongst hostile company. Some of them heckled her, calling her "traitor!" and "coward!". But others could see through to what was really happening, and they cried for her. From the crowd she spotted Thimlu, the astronomer, and Jesse, the messenger who put their hands on their chests in solidarity with her. She quickly warmed her face and gave them a nod as if to communicate a secret. They did not know the secret she was speaking of, but had a feeling that things were not as simple as they seemed.
+As she approached the pier, the people were aghast at seeing Melna dressed in robes amongst hostile company. Some of them heckled her, calling her "traitor!" and "coward!". But others could see through to what was really happening, and they cried for her. From the crowd she spotted Jesse, the astronomer, and Thimlu, the messenger who put their hands on their chests in solidarity with her. She quickly warmed her face and gave them a nod as if to communicate a secret. They did not know the secret she was speaking of, but had a feeling that things were not as simple as they seemed.
 
 Upon the first few staves of the fog-worn pier, a small group of soldiers had gathered around a table to set up some strange electrical equipment that had wires running to their small submersible docked to the pier.
 
@@ -124,7 +124,7 @@ A soldier came up to Fajro and said, "Sir, we are ready for the broadcast."
 
 He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She settled into a pocket of the crowd near the center, never taking her eyes off of Melna even as Fajro began.
 
-"Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." *Former?* "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
+"Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." _Former?_ "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
 
 He smiled at the crowd, expecting looks of awe and wonder, but only receiving the blank stares of worry. He quickly stopped smiling and continued.
 
@@ -132,7 +132,7 @@ He smiled at the crowd, expecting looks of awe and wonder, but only receiving th
 
 Some in the crowd had become joyful at this news, but most remained skeptical, waiting for Melna to comment before judging its trustworthiness.
 
-"As part of this effort, the world must unite. To pool our resources into a project larger than anything this planet has ever seen. In an act of unity, Heiko has pledged its service to Holrag," *He wants to enslave all of us* "forging a strong alliance to help us all accomplish this herculean effort in time. Together, we will build a fortress in the sand. It will be a shelter for all the world's inhabitants where we can wait comfortable until the obscura subsides. I'd like to invite Melna who will now speak about this historic alliance."
+"As part of this effort, the world must unite. To pool our resources into a project larger than anything this planet has ever seen. In an act of unity, Heiko has pledged its service to Holrag," _He wants to enslave all of us_ "forging a strong alliance to help us all accomplish this herculean effort in time. Together, we will build a fortress in the sand. It will be a shelter for all the world's inhabitants where we can wait comfortable until the obscura subsides. I'd like to invite Melna who will now speak about this historic alliance."
 
 He passed the microphone listener to Melna who manufactured the best smile of acceptance she could muster.
 
@@ -142,7 +142,7 @@ He replied, "You never would have said yes."
 
 He walked behind her and stood very close in case she tried anything again. Beside him stood one of the soldiers from their submersible who he turned to and whispered into hae ear, "Be ready to cut on my signal."
 
-Melna rose the listener to her mouth and looked at her people. *This will be my last address to them*, she thought. *Best not to hesitate*.
+Melna rose the listener to her mouth and looked at her people. _This will be my last address to them_, she thought. _Best not to hesitate_.
 
 She began.
 

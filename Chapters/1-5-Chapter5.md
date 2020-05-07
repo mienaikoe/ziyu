@@ -1,9 +1,6 @@
-
-
 ## Chapter 5
 
-
-The city was carved from the body a long-dead volcano, curled upward as if the land was an ocean wave. Massive veins of white marble meandered between gray, banded rock, striping through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. *It must have taken ages*.
+The city was carved from the body a long-dead volcano, curled upward as if the land was an ocean wave. Massive veins of white marble meandered between gray, banded rock, striping through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. _It must have taken ages_.
 
 "Been a while, has it?" Fajro said once we got off.
 
@@ -63,11 +60,9 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
+---
 
-*************
-
-
-The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Jesse, and of the Throngia who were counting on me. Turning back was not an option.
+The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Thimlu, and of the Throngia who were counting on me. Turning back was not an option.
 
 We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
 
@@ -85,7 +80,7 @@ She deliberated with her partner, and glanced at me once, sending a shock of wor
 
 "You are permitted to go, but your attendant cannot come with you."
 
-*NO*
+_NO_
 
 He replied, "My... attendant helps me walk on account of my injured knee. I really can't go anywhere without help these days."
 
@@ -123,7 +118,7 @@ I began to relish in Fajro's slow walking speed, imagining how I might slip by t
 
 At about ten paces away from the guards one of them called out, "The Deliberation Hall is closed. Turn around."
 
-Fajro didn't stop and kept eye contact with them while they approached. I fell behind a bit, hiding behind him. *What was he going to do?*
+Fajro didn't stop and kept eye contact with them while they approached. I fell behind a bit, hiding behind him. _What was he going to do?_
 
 The guard called out again, "You two, turn around and go back where you came from!"
 
@@ -135,7 +130,7 @@ Fajro responded to him confidently, "Tinpo, it's been a while, hasn't it."
 
 "... Fajro? What are you doing here?" The guard called out and stopped.
 
-*The guard is his nephew?!*
+_The guard is his nephew?!_
 
 Fajro stopped in front of Tinpo and looked him up and down.
 

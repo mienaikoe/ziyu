@@ -97,7 +97,7 @@ _W-H-A-_
 
 "You can't remember?"
 
-She stooped down, holding the lantern to his face, and shook his hand eagerly.
+She stooped down, holding the lantern to her face so he could read her lips.
 
 "Try to remember," she demanded.
 

@@ -1,224 +1,217 @@
-
 ## Chapter 3
 
 <!--
 
   In this chapter, I'm exploring the first instance of action writing.
 
-  The messenger, Jesse is delivering a note from a local observatory
+  The messenger, Thimlu is delivering a note from a local observatory
   that has found evidence of a peculiar sunspot that doesn't move and is growing.
 
   He doesn't know what's in the message. Only that there has been an ongoing correspondence between Mel and observer Shib, and that this message was urgent.
 
-  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Jesse nor Lif can understand it.
+  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Thimlu nor Lif can understand it.
 
   Lif decides to go to the city (about 100km - 5 clicks away) to find out more. Once she gets there, she is stopped and told to wait as the meeting is already underway. Lif uses her agility and stealth to snoop on the meeting after Mel has delivered her news. The meeting is still tough to understand as there is heated argument and debate about what to do. The chapter ends on a pivotal reveal of the plot driver
 
 -->
 
-  "Ara? Why would Mel need to know about that?"
+"Ara? Why would Mel need to know about that?"
 
-  "The observers on Falni Peak are doing some study about the stellar surface and they said they've found something big and need to tell the senate right away"
+"The observers on Falni Peak are doing some study about the stellar surface and they said they've found something big and need to tell the senate right away"
 
-  *She's keeping a secret*
+_She's keeping a secret_
 
-  "Well, if she's not here, I should go back to call the capital."
+"Well, if she's not here, I should go back to call the capital."
 
-  "Wait. Let me go with you."
+"Wait. Let me go with you."
 
-  "Oh that's really not necessary -"
+"Oh that's really not necessary -"
 
-  "I need to know more; I won't slow you down" I pleaded to him while I ran off to fetch a new pair of trousers as quickly as I could.
+"I need to know more; I won't slow you down" I pleaded to him while I ran off to fetch a new pair of trousers as quickly as I could.
 
+---
 
--------
+The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Thimlu and me.
 
+"Laen-Laen, good morning!"
 
-  The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jesse and me.
+He gave out a whoop as he woke up from his half-nap.
 
-  "Laen-Laen, good morning!"
+"Laen-Laen, you're still asleep?"
 
-  He gave out a whoop as he woke up from his half-nap.
+A loud "Ooo" sound filled the room as he stood up and yawned in my face.
 
-  "Laen-Laen, you're still asleep?"
+"Hey grass-breath, can you take me to Heiko central?"
 
-  A loud "Ooo" sound filled the room as he stood up and yawned in my face.
+He snorted his disapproval with his fuzzy ears turned backward.
 
-  "Hey grass-breath, can you take me to Heiko central?"
+"We can stop by Gilli's and get a cake."
 
-  He snorted his disapproval with his fuzzy ears turned backward.
+"Whoop whoop whoop!" He said as he perked up and twisted his head left and right.
 
-  "We can stop by Gilli's and get a cake."
+"There we go. Now lets get you ready."
 
-  "Whoop whoop whoop!" He said as he perked up and twisted his head left and right.
+I took a soft linen blanket from the wall and paused a moment to remember when Thimlu and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
 
-  "There we go. Now lets get you ready."
+_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Thimlu was waiting for me.
 
-  I took a soft linen blanket from the wall and paused a moment to remember when Jesse and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+"Didn't think we would be doing this again, " he said.
 
-  *Not the time for memories*. I snapped out and hopped on while rushing to the front gate where Jesse was waiting for me.
+"Well, I never thought we would be delivering a message to the senate."
 
-  "Didn't think we would be doing this again, " he said.
+"Sometimes you're just a barrel of surprises, Lif."
 
-  "Well, I never thought we would be delivering a message to the senate."
+---
 
-  "Sometimes you're just a barrel of surprises, Lif."
+The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wondered if the stars could die like we did.
 
+At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen-Laen. I gave him a thankful pat on the neck and he gave me back a small whoop of acknowledgement.
 
--------
+When I entered, Thimlu was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
+"Shaki Conduit, This is Heiko Conduit."
 
-  The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wondered if the stars could die like we did.
+Another caller delivered a message, but none from Shaki. He waited a tick and then repeated.
 
-  At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen-Laen. I gave him a thankful pat on the neck and he gave me back a small whoop of acknowledgement.
+"Shaki Conduit, This is -"
 
-  When I entered, Jesse was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+"Heiko, this is Shaki. Please remember to speak in your turn."
 
-  "Shaki Conduit, This is Heiko Conduit."
+"Shaki, we are requesting priority. This is an urgent call to the Court."
 
-  Another caller delivered a message, but none from Shaki. He waited a tick and then repeated.
+There was silence for a moment as all of the operators paused to listen in.
 
-  "Shaki Conduit, This is -"
+"Heiko, which conduit in the court are you requesting connection to?"
 
-  "Heiko, this is Shaki. Please remember to speak in your turn."
+"The Heiko senator's private conduit, please."
 
-  "Shaki, we are requesting priority. This is an urgent call to the Court."
+The conduit operator paused.
 
-  There was silence for a moment as all of the operators paused to listen in.
+"Heiko, I assume you have a damn good reason for that."
 
-  "Heiko, which conduit in the court are you requesting connection to?"
+"Yes, I do."
 
-  "The Heiko senator's private conduit, please."
+He paused and sighed.
 
-  The conduit operator paused.
+"Transferring you to Heiko Senate. Please wait a moment."
 
-  "Heiko, I assume you have a damn good reason for that."
+I took the moment of silence to shift to a chair and sit down close to Thimlu. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-  "Yes, I do."
+The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
 
-  He paused and sighed.
+"Clerk Pomri, I have an urgent message for Melna."
 
-  "Transferring you to Heiko Senate. Please wait a moment."
+"Fidelant Melna is currently in assembly."
 
-  I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
+"When will she be out?"
 
-  The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
+"It can last anywhere from 2 va'na to the whole day."
 
-  "Clerk Pomri, I have an urgent message for Melna."
+"This will likely affect today's deliberations. Is there any way you can get this to her?"
 
-  "Fidelant Melna is currently in assembly."
+"It's unlawful to interrupt the assembly"
 
-  "When will she be out?"
+"Surely you can make an exception"
 
-  "It can last anywhere from 2 va'na to the whole day."
+"And I would surely be imprisoned for it."
 
-  "This will likely affect today's deliberations. Is there any way you can get this to her?"
+He sighed in frustration burying his eyes in his hand.
 
-  "It's unlawful to interrupt the assembly"
+He replied, "This is outrageous. You can't interrupt the assembly for something that pertains to it? What kind of law is that?"
 
-  "Surely you can make an exception"
+"It's a law. If that's all, I have some other things to attend to."
 
-  "And I would surely be imprisoned for it."
+He sighed, "Yea. I guess that's it," and turned off the microphone.
 
-  He sighed in frustration burying his eyes in his hand.
+I built some resolve and double checked that the line was off.
 
-  He replied, "This is outrageous. You can't interrupt the assembly for something that pertains to it? What kind of law is that?"
+"I'll go," I said.
 
-  "It's a law. If that's all, I have some other things to attend to."
+"What are you talking about?"
 
-  He sighed, "Yea. I guess that's it," and turned off the microphone.
+"I'll interrupt the Senate"
 
-  I built some resolve and double checked that the line was off.
+"That's crazy, you'll be sent to Ulukoma."
 
-  "I'll go," I said.
+"If this is as important as you say, then it would be worth a few days in the cold."
 
-  "What are you talking about?"
+He shouted, "More than just a few!"
 
-  "I'll interrupt the Senate"
+I was astonished. He was always so laid back and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had worked from.
 
-  "That's crazy, you'll be sent to Ulukoma."
+I tried to convince him again, "I can't think of any better way to do it"
 
-  "If this is as important as you say, then it would be worth a few days in the cold."
+"You are sacrificing too much. The bureaucracy behind the court is impossible."
 
-  He shouted, "More than just a few!"
+"If this is as important as you say, then there will be a lot of chatter for the next few days. Someone has to keep the communication lines open amidst all that chaos."
 
-  I was astonished. He was always so laid back and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had worked from.
+He seemed defeated but looked up into my eyes and we locked gazes for a while.
 
-  I tried to convince him again, "I can't think of any better way to do it"
+"If you pull this off, we will all petition for your return."
 
-  "You are sacrificing too much. The bureaucracy behind the court is impossible."
+"Don't worry. I've got a coat."
 
-  "If this is as important as you say, then there will be a lot of chatter for the next few days. Someone has to keep the communication lines open amidst all that chaos."
+---
 
-  He seemed defeated but looked up into my eyes and we locked gazes for a while.
+"Aey? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
 
-  "If you pull this off, we will all petition for your return."
+"Hey I'm sorry to wake you but I need to talk."
 
-  "Don't worry. I've got a coat."
+He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
 
+"Lif? Oh, you surprised me. What brings you here?"
 
--------
+"I'm going on a trip to the capital."
 
+"What? Why?" He asked, his eyes now completely open.
 
-  "Aey? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
+"It's just something between Mel and me"
 
-  "Hey I'm sorry to wake you but I need to talk."
+"You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
 
-  He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
+"It's... a long story"
 
-  "Lif? Oh, you surprised me. What brings you here?"
+"You mean you don't want to tell me"
 
-  "I'm going on a trip to the capital."
+I paused, dumbstruck and scrambling for words.
 
-  "What? Why?" He asked, his eyes now completely open.
+"You're keeping a secret. Tell me what's going on-"
 
-  "It's just something between Mel and me"
+I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be at the station."
 
-  "You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
+I turned to walk out the door, and he grabbed my wrist. I winced and looked back at his eyes. They were pleading, worried.
+"We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
 
-  "It's... a long story"
+"You can't be involved."
 
-  "You mean you don't want to tell me"
+"I already am."
 
-  I paused, dumbstruck and scrambling for words.
+He released his grip, and I stood just outside the door, still vying with my own thoughts.
 
-  "You're keeping a secret. Tell me what's going on-"
+_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land_
 
-  I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be at the station."
+He pushed again, "If you won't tell me, then I'm going with you to find out myself."
 
-  I turned to walk out the door, and he grabbed my wrist. I winced and looked back at his eyes. They were pleading, worried.
-  "We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
+"You couldn't - you have patients to see"
 
-  "You can't be involved."
+"They can wait a va'ala until I return"
 
-  "I already am."
+"Kip-"
 
-  He released his grip, and I stood just outside the door, still vying with my own thoughts.
+"You really don't want me to go, do you?"
 
-  *I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land*
+"Kip...if you go with me, it will be a long time before you come back."
 
-  He pushed again, "If you won't tell me, then I'm going with you to find out myself."
+"What are you talking about? The trains run four times a day."
 
-  "You couldn't - you have patients to see"
+"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
 
-  "They can wait a va'ala until I return"
+"Stop being cryptic. What are you planning, Lif?"
 
-  "Kip-"
+His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
 
-  "You really don't want me to go, do you?"
+_It's clear_
 
-  "Kip...if you go with me, it will be a long time before you come back."
+"Goodbye," I said.
 
-  "What are you talking about? The trains run four times a day."
-
-  "This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
-
-  "Stop being cryptic. What are you planning, Lif?"
-
-  His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
-
-  *It's clear*
-
-  "Goodbye," I said.
-
-  I hopped onto Laen-Laen and didn't look back.
+I hopped onto Laen-Laen and didn't look back.

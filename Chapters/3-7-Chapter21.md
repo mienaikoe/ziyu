@@ -228,7 +228,7 @@ Fajro gestured to a man at the far side of the room, who approached her with a l
 
 He said to her calmly, "You disrespect me, Melna. I didn't want to resort to this, but this is the only thing that will keep your schemes in check."
 
-She stared at him intently, trying to figure out his angle. *He needs me,* she thought. *He wouldn't put all this together and muffle me just to toy with me.*
+She stared at him intently, trying to figure out his angle. _He needs me,_ she thought. _He wouldn't put all this together and muffle me just to toy with me._
 
 Fajro regained his stance, keeping Melna in the corner of his eye, and took up the microphone and listener again.
 
@@ -316,8 +316,6 @@ Fajro took one step toward her, letting the light illuminate the creases of his 
 
 "I'll do it."
 
-
-
 <!-- NOTES -->
 <!--
 Fajro gives Melna a chance to save Liffa and let Heiko die (weapons meant for obscura skip it and hit Heiko), or save Heiko(and the world) by killing Liffa (destroying the obscura). If she saves the world, she must submit her people to slavery. She chooses to kill Liffa (but the silence is a red herring).
@@ -328,7 +326,7 @@ If Liffa lies instead, and says it's just a big rock in the way, Fajro will be s
 - knows there are bombs on her Trajectory
 - could have calculated or heard from Setre that Heiko would be where they land.
   - Setre would have to know trajectories, which her army isn't trained to do.
-  - Jesse, Thimlu, or Melna would have to tell hae somehow.
+  - Thimlu, Jesse, or Melna would have to tell hae somehow.
 
 Tenets
 - Liffa does not have knowledge of Linyu, Setre.
@@ -349,14 +347,9 @@ Melna's last sight is seeing her people safely outrun this giant blockade with a
 
 <!-- Laen is found wrapped around Melna's body in the beginning of Linyu's part -->
 
-
-
-
-
 <!-- Thi placed hae hands behind hae back, spread hae legs slightly, and stood in an old naval posture that Melna didn't quite understand. She looked around awkwardly as the rest of the crew saw Shinna and one-by-one followed hae in the same silent stance. Ramne, still nursing his burns, looked on in ridicule at the display until a maman standing next to him pulled him up by the arm to join. But instead of joining, he yanked his arm back and walked off to the stern of the boat.
 
 The crew stayed in this state for a pause that felt sufficient to say their peace. Then Shinna shouted, "Oyy," to which the whole crew responded in unison, "Hah!" and resumed what they were doing. -->
-
 
 <!--
 "All done," thi said, and Melna turned around to face hae. Shinna's lantern lit both of their faces, hers adorned with strength, and haes filled with awe.
