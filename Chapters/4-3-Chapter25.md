@@ -147,8 +147,10 @@ A boulder appeared a few paces ahead, big enough to sit and hide behind, and I n
 
 Curiosity turned my eyes toward where she used to be, where I saw her stumbling in the dark down the crater toward the last remnants of the harbor.
 
-"There's nothing down there. Melna is gone," I said to myself. But I had to follow her to make sure she was safe.
+"There's nothing left," I said to myself. But I had to follow her to make sure she was safe.
 
-She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate, painfully blind. But she made it down to the waterline all the same, with me observing from above. A badly broken wooden column stood proud where the pier used to be: the last of its kind. Pomri sat quietly in front of it, resting her head, speaking to an old friend she'd lost too soon.
+She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate, painfully blind. But with great patience, she made it down to the waterline all the same, me observing from above.
+
+The stub of a wooden column pointed toward the sky where the pier used to be, its proud top severed and washed away. It was the last of its kind. Pomri waded until the frigid water covered her legs and wetted her waist. And she let her hands and head rest softly against its wetted side, speaking to an old friend she'd lost too soon.
 
 <!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->
