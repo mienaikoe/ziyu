@@ -1,28 +1,29 @@
-const fs = require('fs');
-const path = require('path');
-const wordcount = require('wordcount');
+const fs = require("fs");
+const path = require("path");
+const wordcount = require("wordcount");
 
 const COMMENT_REGEX = /<!--[\S\s]*?-->/g;
 
 var total = 0;
 
-function countWords( filename ){
-  var file = fs.readFileSync( path.join("Chapters", filename), "utf8");
-  file = file.replace(COMMENT_REGEX,"");
+function countWords(filename) {
+  var file = fs.readFileSync(path.join("Chapters", filename), "utf8");
+  file = file.replace(COMMENT_REGEX, "");
   var count = wordcount(file);
   total += count;
   let tabs = "\t";
-  if( filename.length < 15 ){
+  if (filename.length < 15) {
     tabs += "\t";
   }
   console.log(`${filename}:${tabs}${count} words`);
 }
 
-
-fs.readdir( path.join(".", "Chapters"), function(err, items) {
-  for( let ix in items ){
+fs.readdir(path.join(".", "Chapters"), function (err, items) {
+  for (let ix in items) {
     let item = items[ix];
-    countWords(item);
+    if (item.match(/\d-\d-.*?/g)) {
+      countWords(item);
+    }
   }
 
   let now = new Date().toString();

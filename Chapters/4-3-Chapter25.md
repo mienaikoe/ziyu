@@ -73,21 +73,27 @@ I moved closer to her, suddenly aware of my dependence on her light. She glanced
 
 "What are you on about now?"
 
-She watched patiently as I pulled an ampule and neatly injected it into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I fetched another ampule and did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's face in the illumination, wide-eyed and unbelieving.
+She watched patiently as I pulled the ampules out and neatly injected one into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's face in the illumination, wide-eyed and unbelieving.
 
 "W... What is this?"
 
 "My people live in darkness. We had to find some way to see light."
 
-"So you used the same narcotic you use to treat injuries?"
+"So you used Kanosin?"
 
-"Kanosin has many uses."
+"It has many uses."
 
-Pomri was confused and apprehensive. She'd only known it as an addictive narcotic, a substance used by lowbrow peddlers and clandestine organizations to coerce the desparate to do their bidding. She was even convinced that Holragi had used it to enslave entire tribes of the desert to work on the spacerail, though few had ever left the project to confirm it. But today, she had seen physicians using it as a life-saving drug, she saw a kaln inject it into hae skin without ill-effects.
+"And Fajro used it to enslave the tribes of Holrag."
 
-"What is Kanosin?" she asked me; almost demanding an answer.
+"But, Fajro has never been to Ulukoma."
 
-I hesitated, remembering my mother's strict instruction not to tell anyone. But I felt that I could trust Pomri.
+"He didn't need to."
+
+She eyed one of the ampules in my hand. I held it in my hand with much deliberation, gesturing for her to take it – an offer to which she obliged, holding it up to her eye to look at closer. The outline of her face was widened through the translucent inactivated liquid, and I giggled internally.
+
+"What is Kanosin?" she asked me.
+
+I hesitated, remembering my mother's strict instruction not to tell anyone the truth about Kanosin. But I felt that I could trust Pomri.
 
 "It's a chemical. From volcanic kelp."
 
@@ -125,7 +131,7 @@ I said, desparately, "The old tribes of Ulukoma discussed this long ago and we r
 
 "We must," I said. "If more people discover what we know, the Holragi will get wind of it and invade. They will take everything we have including the land we live on. Then they will be the gatekeepers."
 
-With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. Instead, a strong urge to get away from Pomri was growing, deep within a pool of guilt. And so I began to walk.
+With great anxiety I stood up, sinching my satchel closed while Pomri sat stewing in rage. I didn't have the strength to look in her eye. Instead, a strong urge to get away from Pomri was growing, deep within a pool of guilt. And so I left the vials, the syringe, and began to walk.
 
 "Where are you going Linyu?"
 
@@ -145,12 +151,12 @@ Her voice started to break.
 
 A boulder appeared a few paces ahead, big enough to sit and hide behind, and I nearly ran to it in panic. Such words could be taken easily from a stranger, but not from a friend. I opened my hands and looked at the empty ampules. I had found them so often as toddler in Rudjan. My mother was too absent for even her best intentions to manifest. Kanosin had become an enemy. But when I met my nather, I was in awe at the brightly colored flow tattoos on her chest. She told me stories of fetching drowned fishers from the darkest waters, lit only by the light from her skin. She brought their bodies to my mother who cleared the water from their airways and recalled them back to life with kanosin. Eventually, I would have dismissed the stories as hyperbolic, but experience has only reinforced them for me. _Kanosin is a beast, not a demon,_ I recalled one of my mother's sayings. _We must tame it, not destroy it._ I looked down at the bright streaks of kanosin on my legs, so alike to the patterns of my nather's skin, and I felt no shame.
 
-Curiosity turned my eyes toward where she used to be, where I saw her stumbling in the dark down the crater toward the last remnants of the harbor.
+Curiosity turned my eyes backward, where I saw her stumbling in the dark down the crater toward the last remnants of the harbor. Very faintly, I saw a blue light radiating from her left foot and left arm.
 
 "There's nothing left," I said to myself. But I had to follow her to make sure she was safe.
 
 She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate, painfully blind. But with great patience, she made it down to the waterline all the same, me observing from above.
 
-The stub of a wooden column pointed toward the sky where the pier used to be, its proud top severed and washed away. It was the last of its kind. Pomri waded until the frigid water covered her legs and wetted her waist. And she let her hands and head rest softly against its wetted side, speaking to an old friend she'd lost too soon.
+Pomri stepped into the frigid water and waded out until covered her legs and wetted her waist. Ahead of her, the stub of a wooden column pointed toward the sky where the pier used to be, its proud top severed and washed away. Alone it stood as the last of its kind. She let her hands and head rest softly against its side, and spoke to an old friend she'd lost too soon.
 
 <!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->
