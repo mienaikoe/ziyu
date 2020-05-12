@@ -1,18 +1,18 @@
 ## Chapter 26
 
-The light in Pomri's hand illuminated a heavily damaged sign beside the path. _eik...servato... Ara_
+The blue light in Pomri's hand illuminated a heavily damaged sign beside the path. _eik...servato... Ara_
 
 She looked it over in detail and said, "looks like it's far enough from the city that the explosion left it intact for the most part."
 
-"I've been here before," I said, remembering bits and pieces from that night.
+"I've been here before," I said, remembering bits and pieces from the night I was found.
 
 "Melna mentioned that she found you somewhere around here."
 
-I only spoke when I knew something, and there was very little for me to speak of.
+She approached the sign and prefaced her actions
 
-She approached the sign and said, "before we go,"
+"Before we go..."
 
-With one hand, she broke off the long piece of wood that said "Ara" and cut it into a thinner piece with the blade of her spear, making sure to smooth out any potential splinters or hanging sharp bits.
+With one hand, she broke off the long piece of wood that said _eik_ and cut it into a thinner piece with the blade of her spear, making sure to smooth out any potential splinters or hanging sharp bits.
 
 "Use this for stability," she said, holding one of the pieces out to me. I took it in my hands and looked for the word. It too, had been smoothed out.
 
@@ -70,15 +70,19 @@ She stooped down, holding the lantern to her face so he could read her lips.
 
 "Try to remember," she demanded.
 
-"I can't remember!" he cried. "I can't...my..."
+"I can't remember!" he cried. "I can't...can't..."
 
 His pupils began to constrict and we watched as his mind began to slip backward in time.
 
-"Wait... who are you?... I have nothing to give you. Go away!"
+"Who are you?... I have nothing to give you. Go away!"
 
-He turned and shuffled away from us with his hand still holding the back of his head. With a fit, he coughed loudly as if he had been struggling to hold it in. Black mucus appeared on his hand.
+He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in. On his hand, black mucus.
 
 "Leave me be," he said to us.
+
+Pomri was insistent, saying "Jesse, we need to know more."
+
+But I knew it was
 
 We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance.
 
