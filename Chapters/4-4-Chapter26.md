@@ -22,21 +22,21 @@ My legs ached twice as much when I presented them with the idea of walking upwar
 
 The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet.
 
-I was the first to hear the cries of a man in the distance, interspersed with fits of coughing. At first I thought my ears betrayed me, but as we approached, the sound grew in volume. Instinctively, I took off after the sound. Pomri was behind me screaming "Wait!" but I did not stop. It was merely a few paces before I saw him through the dust, knealing with his hands behind his head, nodding his torso back and forth. I came to him, yelling, "Aey. you alright?" but suddenly a rock below me gave way. My reflexes lurched my hands towards the closest bit of land, scraping my hands as they clambered for a solid grasp. I looked below me at a black void, its depth was unknowable, but I knew I would certainly die if I let go.
+In the distance, the cries of a man in distress resounded against the mountain wall, interspersed with fits of coughing. I looked to Pomri, who hadn't heard anything, and at first I thought my ears betrayed me. But as we approached, the sound grew in volume and I was compelled by instinct to find the source and help. Pomri was behind me screaming "Wait!" but I did not stop. It was merely a lao'ta before I saw him through the dust, knealing with his hands behind his head and nodding his torso back and forth. I came upon him, yelling, "Aey. you alright?" but there was no answer. It was no longer clear if he was laughing or crying.
 
-"Got you," she said, grasping my wrist. "What are you thinking running off in the dark like that?"
+I illuminated his figure with the light of my legs. Deep scrapes and cuts marred his clothes and skin. Some were superficial, but most showed signs of blood loss. His eyes were bloodshot, and his face caked with black ash. It took him a moment to stop his nodding and realize a presence.
 
-My breath and my words were still recovering as she pulled me back onto the clifftop, but once I had a moment I shushed Pomri to listen for the sounds of the man that led me here. Still he was crying, close to us yet unaware of me or Pomri.
+Through trembling lips, he stammered, "W...Who..?" but his eyes only fixated on the light. Suddenly, his hands lurched forward and grasped my ankles tightly. A reflex jolted me backward, falling to the ground, with half of my body hanging over a cliff, my hands scraping and clambering for a solid bit of land. I looked below me into a black void, its depth was unknowable, but I knew I would certainly die if he let go.
 
-"Who's there?" she asked harshly, covering her illuminated leg and hand. But he didn't respond. Carefully, she approached the sound, signalling for me to follow.
+"DIE HOLRAGI!" He roared at me as he pushed my legs and let go. For a single point in time, I hung in the air, the assurance of death nestling me to its bosom. I knew this feeling when my legs went numb in the waters of Ulukoma. When I first experienced Kanosin as a curious child in my mother's bedroom. It was familiar, neither friend nor enemy. More of a conjuring, an apparition that revealed itself from time to time. But then each time a hand reached out, pulling me from the figment of death. Setre, Kipnu.
 
-"Speak!" she tried being demanding, but still he didn't respond.
+This time it was Pomri, grasping my wrist just in time. She barely exerted herself pulling me up with one arm, and quickly pivoting to restrain the mysterious man. She grappled him by his arm and he panicked, stumbling on himself and wheezing heavily as he tried to get away.
 
-She laid a hand on his shoulder and he panicked, stumbling on himself and wheezing heavily as he backed away. His eyes were bloodshot, and his face caked with black ash.
+"Speak!" she demanded, but still he didn't respond.
 
-"I have nothing to give you," he said staring at her feet. "Take my life or leave me to my grief," he said.
+"I have nothing to give you," he said staring at her feet. "Take my life or leave me to my suffering," he said.
 
-"Jesse? Is that you?"
+"Jesse?" she asked, bewildered at seeing his face again, "Is that you?"
 
 He remained there, motionless, fighting back a cough and holding his hand to the back of his head.
 
@@ -50,44 +50,48 @@ Pomri glanced back at me, apprehensive. Instead of fighting with her, I approach
 
 "I know Pomri. She warned us early. Got most of us out."
 
+"Jesse... how did?" Pomri said. She was moved to tears.
+
 It occured to me that he may not yet have realized that he had gone deaf and partially blind.
 
 "Ask him what happened," Pomri asked.
 
 _W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
 
-"I was at the observatory when Holragi landed. I had a message to send; a message of great importance. But I didn't make it, did I?... That's okay though, because now you're here."
+"I was at the observatory when–," he winced at some pain in his body. "...when Holragi landed. I had a message to send; a message of great importance. But I didn't make it, did I?... That's okay though, because now you're here."
 
 "That's great, Jesse," said Pomri, "What was the message?"
 
-_W-H-A-_
+_W-H-A-T-W-A-S-M-E-S_
 
-"...I...I can't remember."
+"The message?...The message..."
 
-"You can't remember?"
+"You can't remember?" said Pomri, urgently.
 
-She stooped down, holding the lantern to her face so he could read her lips.
+She moved closer to him, holding the illuminated hand to her face so he could read her lips.
 
 "Try to remember," she demanded.
 
 "I can't remember!" he cried. "I can't...can't..."
 
-His pupils began to constrict and we watched as his mind began to slip backward in time.
+His pupils began to constrict and I watched as his mind began to slip backward in time.
 
-"Who are you?... I have nothing to give you. Go away!"
+"Just try, Jesse."
 
-He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in. On his hand, black mucus.
+"Who are you?!... I have nothing to give you – go away!"
 
-"Leave me be," he said to us.
+He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in and he was forced to rest against the mountainside to regain his breath, still holding his free hand out to ward us off.
 
-Pomri was insistent, saying "Jesse, we need to know more."
+"Leave me be," he begged, almost whispering.
 
-But I knew it was
+Pomri was insistent. She approached him, trying to reassure him that she was not there to hurt him. But he refused her, curling up into himself. With each refusal, she broke down a little bit more until she finally knealt before him and wept. At a safe distance, he resumed his nodding and gesticulating, a hand still behind his head.
 
-We stood there for a while, letting go of him and his fate. Then Pomri interjected, "Let's go," and took off toward Ulu. I lingered, though I knew it was impossible to help. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance.
+I knealt near Pomri a while with my hand on her back, imagining the kind of man he might have been, who he might have loved. I didn't know Jesse, but Pomri seemed to hold him in high regard.
 
-_I need to get moving_
+"There is no punishment great enough," she said under her breath. "No justice to deliver; no greater good that could ever make this right."
 
-<!-- Wait, but why? Wouldn't they try to help him along a bit more? -->
+<!-- Don't change this^ sentence. It's amazing. -->
 
-My legs began to move, but I was still in my mind, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his ashen face, and internalized the broken person that I saw there. And I promised myself never to forget.
+My voice remained silent. I could feel the weight of her words, invoke the same fire and vitriol that she felt in her heart. Our lives and the lives of everyone that comes after would never be the same.
+
+Then Pomri stood up, interjecting, "Let's go." I followed her, but lingered on the sight of Jesse, no different than how we found him. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance. My legs began to move, but in my mind, I was still there, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
