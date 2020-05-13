@@ -88,7 +88,7 @@ Pomri was insistent. She approached him, trying to reassure him that she was not
 
 I knealt near Pomri a while with my hand on her back, imagining the kind of man he might have been, who he might have loved. I didn't know Jesse, but Pomri seemed to hold him in high regard.
 
-"There is no punishment great enough," she said under her breath. "No justice to deliver; no greater good that could ever make this right."
+"There is no punishment great enough," she said under her breath. "No justice to deliver. No greater good that could ever make this right."
 
 <!-- Don't change this^ sentence. It's amazing. -->
 
