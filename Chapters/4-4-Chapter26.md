@@ -38,7 +38,7 @@ This time it was Pomri, grasping my wrist just in time. She barely exerted herse
 
 "Jesse?" she asked, bewildered at seeing his face again, "Is that you?"
 
-He remained there, motionless, fighting back a cough and holding his hand to the back of his head.
+He remained there, motionless, fighting back a cough and holding his right hand to the back of his head.
 
 "How did you survive?"
 
@@ -84,14 +84,24 @@ He turned and shuffled away from us with his hand still holding the back of his 
 
 "Leave me be," he begged, almost whispering.
 
-Pomri was insistent. She approached him, trying to reassure him that she was not there to hurt him. But he refused her, curling up into himself. With each refusal, she broke down a little bit more until she finally knealt before him and wept. At a safe distance, he resumed his nodding and gesticulating, a hand still behind his head.
+Pomri was insistent. She approached him, trying to reassure him that she was not there for malice. But he refused her, curling up into himself. With each refusal, she broke down a little bit more until she finally knealt before him and wept. At a safe distance, he resumed his nodding and gesticulating, a hand still behind his head.
 
 I knealt near Pomri a while with my hand on her back, imagining the kind of man he might have been, who he might have loved. I didn't know Jesse, but Pomri seemed to hold him in high regard.
 
-"There is no punishment great enough," she said under her breath. "No justice to deliver. No greater good that could ever make this right."
+"There is no justice to deliver," she said under her breath. "No greater good that could ever make this right."
 
-<!-- Don't change this^ sentence. It's amazing. -->
+I could feel the weight of her words stirring the same fire and vitriol that she felt in her own heart. If this was the end of life on Palinan, we would not surely not go out as a flickering flame, but as frozen statues on a battlefield of our creation.
 
-My voice remained silent. I could feel the weight of her words, invoke the same fire and vitriol that she felt in her heart. Our lives and the lives of everyone that comes after would never be the same.
+Then Pomri asked me, "Linyu. Do you have any more kanosin?"
 
-Then Pomri stood up, interjecting, "Let's go." I followed her, but lingered on the sight of Jesse, no different than how we found him. I couldn't will myself to let him go. A hand rested on my shoulder and broke me from my trance. My legs began to move, but in my mind, I was still there, helplessly grasping at a thousand failures to help. Before the dust swallowed him, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
+I hesitated, confused for a moment. Then realizing her plan, I produced a vial without word or question and filled my syringe with it. She tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. With little difficulty she bound his arms behind him and laid him on the ground, elevating his head with her satchel below his neck. He was not fighting now. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand reluctantly, but perhaps she understood now the limits of law.
+
+"The left heart," I said, reassuringly. "Directly in."
+
+She nodded, doing exactly as I said. Jesse's eyes began to fizzle, and his muscles relaxed.
+
+Pomri stood up, interjecting, "Let's go." I followed her toward the observatory, but lingered on the sight of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
+
+---
+
+We decided to be polite for some reason, knowing full well the building was empty. Pomri jostled the wooden entry bell and called out at the door, but there was no answer, as expected. Aside from her,
