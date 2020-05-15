@@ -94,13 +94,43 @@ I could feel the weight of her words stirring the same fire and vitriol that she
 
 Then Pomri asked me, "Linyu. Do you have any more kanosin?"
 
-I hesitated, confused for a moment. Then realizing her plan, I produced a vial without word or question and filled my syringe with it. She tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. With little difficulty she bound his arms behind him and laid him on the ground, elevating his head with her satchel below his neck. He was not fighting now. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand reluctantly, but perhaps she understood now the limits of law.
+I hesitated, confused for a moment.
 
-"The left heart," I said, reassuringly. "Directly in."
+"It... it won't work"
 
-She nodded, doing exactly as I said. Jesse's eyes began to fizzle, and his muscles relaxed.
+"Won't work. What do you mean?"
 
-Pomri stood up, interjecting, "Let's go." I followed her toward the observatory, but lingered on the sight of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
+"Kanosin... can reverse death of the body. But the mind..."
+
+<!-- Would Linyu know this? Hae mother is Casra... -->
+
+"He can make new memories, in a life without pain."
+
+I knew the truth of his future, but couldn't bear to tell her. Instead I dug into my satchel, taking stock of the remaining vials of Kanosin – two – and I produced one with the accompanying syringe. I filled the syringe while she tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. A brief struggle found him on his side as she bound his arms behind him and elevated his head with her satchel below his neck. He no longer fought. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand reluctantly, but perhaps she understood now that the virtue of a thing is in its use.
+
+"The left heart, five fingers from the center," I said, reassuringly. "Directly in."
+
+She nodded, measuring with her fingers, priming the syringe, and plunging the needle into his heart. Jesse's eyes began to dilate as a faint blue glow, obscured by skin, filled his body and all of his muscles settled into the land.
+
+"What happens now?"
+
+I knew not to tell her the truth.
+
+"Sleep. For a whole day."
+
+"And then he rises?"
+
+"And then he rises."
+
+Pomri unbound his wrists and wrapped the cloth around Jesse's head wound to cushion it. With a quick lift, she held his body over her shoulder.
+
+"We should take him back to his home."
+
+I followed her toward the observatory,
+
+<!-- Below is when they leave the observatory-->
+
+but lingered on the image of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
 
 ---
 
