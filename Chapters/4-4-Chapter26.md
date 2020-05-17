@@ -1,40 +1,18 @@
 ## Chapter 26
 
-The blue light in Pomri's hand illuminated a heavily damaged sign beside the path. _eik...servato... Ara_
-
-She looked it over in detail and said, "looks like it's far enough from the city that the explosion left it intact for the most part."
-
-"I've been here before," I said, remembering bits and pieces from the night I was found.
-
-"Melna mentioned that she found you somewhere around here."
-
-She approached the sign and prefaced her actions
-
-"Before we go..."
-
-With one hand, she broke off the long piece of wood that said _eik_ and cut it into a thinner piece with the blade of her spear, making sure to smooth out any potential splinters or hanging sharp bits.
-
-"Use this for stability," she said, holding one of the pieces out to me. I took it in my hands and looked for the word. It too, had been smoothed out.
-
-"Come on," she said. "The quicker we move, the quicker we rest."
-
-My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
-
-The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet.
-
-In the distance, the cries of a man in distress resounded against the mountain wall, interspersed with fits of coughing. I looked to Pomri, who hadn't heard anything, and at first I thought my ears betrayed me. But as we approached, the sound grew in volume and I was compelled by instinct to find the source and help. Pomri was behind me screaming "Wait!" but I did not stop. It was merely a lao'ta before I saw him through the dust, knealing with his hands behind his head and nodding his torso back and forth. I came upon him, yelling, "Aey. you alright?" but there was no answer. It was no longer clear if he was laughing or crying.
+In the distance, the somber cries of a man resounded from the crater, interspersed with fits of coughing. I stopped in my tracks and looked to Pomri who was close behind. She hadn't heard a thing. At first I thought my ears betrayed me, but as we kept walking, the sound grew in volume and I was compelled by instinct to run toward the cry and help. Pomri was behind me screaming "Wait!" but I did not stop. It was merely a lao'ta before I saw him through the dust, knealing with his hands behind his head and nodding his torso back and forth. I came upon him, yelling, "Aey. you alright?" but there was no answer. It was no longer clear if he was laughing or crying.
 
 I illuminated his figure with the light of my legs. Deep scrapes and cuts marred his clothes and skin. Some were superficial, but most showed signs of blood loss. His eyes were bloodshot, and his face caked with black ash. It took him a moment to stop his nodding and realize a presence.
 
-Through trembling lips, he stammered, "W...Who..?" but his eyes only fixated on the light. Suddenly, his hands lurched forward and grasped my ankles tightly. A reflex jolted me backward, falling to the ground, with half of my body hanging over a cliff, my hands scraping and clambering for a solid bit of land. I looked below me into a black void, its depth was unknowable, but I knew I would certainly die if he let go.
+Through trembling lips, he stammered, "W...Who..?" but his eyes only fixated on the light. Suddenly, his hands lurched forward and grasped my ankles tightly. A reflex jolted me backward, falling to the ground, with half of my body hanging over the crater edge, my hands scraping and clambering for a solid bit of land. I looked below me into a black void, its depth was unknowable, but I knew I would certainly die if he let go.
 
-"DIE HOLRAGI!" He roared at me as he pushed my legs and let go. For a single point in time, I hung in the air, the assurance of death nestling me to its bosom. I knew this feeling when my legs went numb in the waters of Ulukoma. When I first experienced Kanosin as a curious child in my mother's bedroom. It was familiar, neither friend nor enemy. More of a conjuring, an apparition that revealed itself from time to time. But then each time a hand reached out, pulling me from the figment of death. Setre, Kipnu.
+"DIE HOLRAGI!" He roared at me as he pushed me away. For a single point in time, I hung in the air, the assurance of death wrestling me down to its bosom. I knew this feeling when my legs went numb in the waters of Ulukoma. When I first experienced Kanosin as a curious child in my mother's bedroom. It was familiar, neither friend nor enemy. More of a conjuring, an apparition that revealed itself from time to time. But then each time a hand reached out, pulling me from the figment of death. Setre, Kipnu.
 
 This time it was Pomri, grasping my wrist just in time. She barely exerted herself pulling me up with one arm, and quickly pivoting to restrain the mysterious man. She grappled him by his arm and he panicked, stumbling on himself and wheezing heavily as he tried to get away.
 
 "Speak!" she demanded, but still he didn't respond.
 
-"I have nothing to give you," he said staring at her feet. "Take my life or leave me to my suffering," he said.
+"I have nothing to give you, Holragi scum," he said staring at her feet. "Take my life or leave me to my suffering," he said.
 
 "Jesse?" she asked, bewildered at seeing his face again, "Is that you?"
 
@@ -80,7 +58,7 @@ His pupils began to constrict and I watched as his mind began to slip backward i
 
 "Who are you?!... I have nothing to give you – go away!"
 
-He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in and he was forced to rest against the mountainside to regain his breath, still holding his free hand out to ward us off.
+He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in and he was forced to rest against a boulder to regain his breath, still holding his free hand out to ward us off.
 
 "Leave me be," he begged, almost whispering.
 
@@ -100,13 +78,15 @@ I hesitated, confused for a moment.
 
 "Won't work. What do you mean?"
 
-"Kanosin... can reverse death of the body. But the mind..."
+"Kanosin... can reverse death. But memories..."
 
 <!-- Would Linyu know this? Hae mother is Casra... -->
 
-"He can make new memories, in a life without pain."
+She spoke in earnest, "He can make new memories. In a new life. One without pain."
 
-I knew the truth of his future, but couldn't bear to tell her. Instead I dug into my satchel, taking stock of the remaining vials of Kanosin – two – and I produced one with the accompanying syringe. I filled the syringe while she tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. A brief struggle found him on his side as she bound his arms behind him and elevated his head with her satchel below his neck. He no longer fought. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand reluctantly, but perhaps she understood now that the virtue of a thing is in its use.
+"Without pain..." I murmured.
+
+I dug into my satchel, taking stock of the remaining vials of Kanosin – two – and I produced one with the accompanying syringe. I filled the syringe while she tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. A brief struggle found him on his side as she bound his arms behind him and elevated his head with her satchel below his neck. He no longer fought. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand with no sign of reluctance. Perhaps she had come to understood that the virtue of a thing is in its use.
 
 "The left heart, five fingers from the center," I said, reassuringly. "Directly in."
 
@@ -122,16 +102,84 @@ I knew not to tell her the truth.
 
 "And then he rises."
 
-Pomri unbound his wrists and wrapped the cloth around Jesse's head wound to cushion it. With a quick lift, she held his body over her shoulder.
+Pomri unbound his wrists and wrapped the cloth around Jesse's head to cushion against the wound. With a quick lift, she lofted him up and let him rest gently over her shoulder.
 
-"We should take him back to his home."
+"Let's take him home."
 
-I followed her toward the observatory,
+The blue light in Pomri's hand illuminated a heavily damaged sign beside the path. _eik...servato... Ara_
+
+She looked it over in detail and said, "looks like it's far enough from the city that the explosion left it intact for the most part."
+
+"I've been here before," I said, remembering bits and pieces from the night I was found.
+
+"Melna mentioned that she found you somewhere around here."
+
+She approached the sign and prefaced her actions
+
+"Before we go..."
+
+With one hand, she broke off the long piece of wood that said _eik_ and cut it into a thinner piece with the blade of her spear, making sure to smooth out any potential splinters or hanging sharp bits.
+
+"Use this for stability," she said, holding one of the pieces out to me. I took it in my hands and looked for the word. It too, had been smoothed out.
+
+"Come on," she said. "The quicker we move, the quicker we rest."
+
+My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
+
+The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet. A few times, We paused for Pomri to take a break and change how she carried Jesse.
+
+"The mountain was shorter a day ago," she said, resentful.
+
+I was confused. "Shorter? How?"
+
+She chuckled as she took a sip from her canteen. "No.. It's a joke."
+
+"I don't get it." I really didn't.
+
+"It's..." she sighed, "Nevermind."
+
+I spent the rest of the climb imagining how a mountain could grow overnight.
+
+The observatory was not as I expected it. There were no windows to be broken or walls to be split. It had been built into the ground, or perhaps the ground had been built around it. A set of three large metallic hatches protruded from the ground on the side facing Ara, closed to the elements. On the Ulu-side was a simple-looking wooden entryway with a wooden bell hung from a thick rope. Whether out of habit or the desire for some normalcy, Pomri jostled the wooden bell three times. Eager to rest, I lifted the latch and opened the door before she could finish her announcement of arrival.
+
+I found a warm area in middle of the room and laid on the floor, removing my face covering.
+
+"I'm sooo tiiiired," I said.
+
+Pomri knealt down beside me and gently rested Jesse on the ground. Our heavy breathing was more noticeable in the quiet of the place.
+
+"You can sleep later," she said. "Come, we need to look for the message."
+
+She pulled her empty lantern out and rummaged through the place, moving quickly in the dark but somehow never missing a step, as if she'd been here many times.
+
+"Ah!" she exclaimed, moving to a workbench. "With the alignment mechanism."
+
+She pulled a large metal canister from a pile of things and popped a cork with her fingers. As she poured its contents into the lantern's upper tank, a distinctively floral aroma filled the room.
+
+"What _is_ that?" I asked.
+
+"Oil of Anomin. It's a thick oil from the husk of anomin grains. We use it to lubricate machines, and..." With a hot tip just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosni blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
+
+"Right then. Let's find those notes."
+
+"Pomri," I said with pause.
+
+She took a moment to glance at me, as if to hurry me without words.
+
+"I... can't read."
+
+"You. Oh," as if to realize the faults in her assumptions.
+
+"Here, let me. Uhh."
+
+She walked to the back of the room, where the strange protrusions from the outside entered the room. A row of desks stood below them, their tops made of smoothly ground stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon one of the plates.
+
+"This is a telescopic projector for Ara. I haven't the slightest clue how it works, but play around with it. Maybe you'll find something."
+
+The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
 <!-- Below is when they leave the observatory-->
 
 but lingered on the image of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
 
 ---
-
-We decided to be polite for some reason, knowing full well the building was empty. Pomri jostled the wooden entry bell and called out at the door, but there was no answer, as expected. Aside from her,
