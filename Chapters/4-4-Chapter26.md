@@ -172,11 +172,15 @@ She took a moment to glance at me, as if to hurry me without words.
 
 "Here, let me. Uhh."
 
-She walked to the back of the room, where the strange protrusions from the outside entered the room. A row of desks stood below them, their tops made of smoothly ground stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon one of the plates.
+She walked to the back of the room, where the strange protrusions from the outside entered the room as a row of metal cylinders. Below each one was a large table, with a top made of smoothly ground patternless stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon one of the plates.
 
 "This is a telescopic projector for Ara. I haven't the slightest clue how it works, but play around with it. Maybe you'll find something."
 
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
+
+I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal tab that seemed to fasten something. I pulled the tab and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. She was far-away and upside-down, and I giggled at the silliness of it.
+
+I set the lens down and searched for somewhere I might find more. Below the table was a box marked "Lenses".
 
 <!-- Below is when they leave the observatory-->
 
