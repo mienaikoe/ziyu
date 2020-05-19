@@ -178,9 +178,21 @@ She walked to the back of the room, where the strange protrusions from the outsi
 
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
-I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal tab that seemed to fasten something. I pulled the tab and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. She was far-away and upside-down, and I giggled at the silliness of it.
+I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal tab that seemed to fasten something. I pulled the tab and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
 
-I set the lens down and searched for somewhere I might find more. Below the table was a box marked "Lenses".
+I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on them. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image, a small but clear pattern emerged.
+
+"Pomri," I called to her fearfully.
+
+She came to my side and gasped at what she saw. Thousands of tiny circles of darkness dotted the table, nearly blotting the light of Ara out completely.
+
+"That's. The obscura?" she asked.
+
+"I think so."
+
+"By Ara..."
+
+The immensity held us in disbelief. It was one thing to know the obscura as an event, a phenomenon that would come and go just as an earthquake or a cloud. But to see it, the perfection of the shapes, the overpowering weight of it all, it was too much.
 
 <!-- Below is when they leave the observatory-->
 
