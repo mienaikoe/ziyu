@@ -160,39 +160,57 @@ She pulled a large metal canister from a pile of things and popped a cork with h
 
 "Oil of Anomin. It's a thick oil from the husk of anomin grains. We use it to lubricate machines, and..." With a hot tip just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosni blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
 
-"Right then. Let's find those notes."
+"Right then. Let's find this message."
 
-"Pomri," I said with pause.
+I groaned in agony. She took a moment to glance at me, as if to hurry me without words.
 
-She took a moment to glance at me, as if to hurry me without words.
-
-"I... can't read."
-
-"You. Oh," as if to realize the faults in her assumptions.
-
-"Here, let me. Uhh."
+"Sorry, o supreme leader, but your nap will have to wait."
 
 She walked to the back of the room, where the strange protrusions from the outside entered the room as a row of metal cylinders. Below each one was a large table, with a top made of smoothly ground patternless stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon one of the plates.
 
 "This is a telescopic projector for Ara. I haven't the slightest clue how it works, but play around with it. Maybe you'll find something."
 
+She turned to move away, but stopped herself and said, "Oh, and don't touch the glass. Jesse would be furious."
+
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
 I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal tab that seemed to fasten something. I pulled the tab and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
 
-I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on them. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image, a small but clear pattern emerged.
+I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image, a small but clear pattern emerged.
 
 "Pomri," I called to her fearfully.
 
-She came to my side and gasped at what she saw. Thousands of tiny circles of darkness dotted the table, nearly blotting the light of Ara out completely.
+She came to my side and looked intently at the table. Thousands of miniscule circles of light dotted the table in a staggered formation.
 
-"That's. The obscura?" she asked.
+"What kind of lens is that?"
 
-"I think so."
+"It's... a plain lens."
+
+She gasped. "That's. The obscura?"
+
+She moved closer and turned the focus knob to clarify the image, looking for some detail to make sense of the pattern.
 
 "By Ara..."
 
-The immensity held us in disbelief. It was one thing to know the obscura as an event, a phenomenon that would come and go just as an earthquake or a cloud. But to see it, the perfection of the shapes, the overpowering weight of it all, it was too much.
+The perfection of the shape, the enormity of the structure, it was like a dream of surreality within reality. The obscura was merely a figment before, some cartoonish cloud in space. But this is the moment when the weight of the obscura was unmistakeably, suffocatingly present. This was not a passing phenomenon; there was no enemy to fight or details to negotiate. This was an insuperable wall without a builder, and we stood alone in its shadow.
+
+Pomri whispered, "Liffa."
+
+Confused, I looked up to watch her staring deeply into the light, her finger pointing to one of the circles near the center. I leaned in to get a closer and sure enough, I saw a dot in front of one of the circles.
+
+"Liffa," I said in response. "Liffa is coming home!"
+
+"Jesse," Pomri had a smirk on her face, "That bastard always had an eye for hae."
+
+"You don't suppose that was the message, do you?" I asked.
+
+"'A message of great importance'," she said out loud. "It must be something else. Did you see any papers on this table?"
+
+"I saw a black lens in the box," I told her. "There was a paper tied to it, but I didn't think much of it at the time."
+
+"Show it to me."
+
+I went over to the box again and pulled out the lens. It was also in a darker kelp envelope.
 
 <!-- Below is when they leave the observatory-->
 
