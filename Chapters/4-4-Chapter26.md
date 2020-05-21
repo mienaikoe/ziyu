@@ -174,7 +174,7 @@ She turned to move away, but stopped herself and said, "Oh, and don't touch the 
 
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
-I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal tab that seemed to fasten something. I pulled the tab and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
+I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box attached to the cylinder. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal lever that seemed to fasten something. I pulled the lever and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
 
 I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image, a small but clear pattern emerged.
 
@@ -206,11 +206,37 @@ Confused, I looked up to watch her staring deeply into the light, her finger poi
 
 "'A message of great importance'," she said out loud. "It must be something else. Did you see any papers on this table?"
 
-"I saw a black lens in the box," I told her. "There was a paper tied to it, but I didn't think much of it at the time."
+"I saw a black lens in the box," I told her. "There was a lot of writing on it."
 
 "Show it to me."
 
-I went over to the box again and pulled out the lens. It was also in a darker kelp envelope.
+I went over to the box again and pulled out the lens. It was in a darker kelp envelope with an ashwritten table of numbers on the one side. The other side was blank.
+
+"Days and times," said Pomri, "What were they tracking?"
+
+Her eyes moved to the last known values in the table. They were circled and much larger than the others.
+
+"Something happened recently," she said, "Linyu, put this into the chamber. Let's see what Jesse and the others saw."
+
+I took the lens, consciously feeling its weight to ensure I didn't drop it, and noticed that it was lighter than the others. Raising my hands, I prepared to take the big lens out but before I pulled the lever I noticed another one, blue and apparently new, hidden in the darkness further up the cylinder. I stared at it, confused.
+
+"Everything ok?" she asked.
+
+"It's a strange lens, this black glass. Don't you think?"
+
+"Very strange. Never seen it before. Must be a custom piece that Jesse had made recently."
+
+On a gut feeling, I held the black lens up to the light shining on the table, and all of the light disappeared, as expected.
+
+"This doesn't make sense," I said.
+
+Pomri moved the envelope closer to read the table again and find some sort of clue and at the corner, a green speck of light appeared where the projector had shone before.
+
+"Pomri! Move the envelope into the light," I said.
+
+and as she shifted it, the same patterns as before began to emerge in green light, but blurry and hazy.
+
+"Ah!" I said as I turned to reach for the blue lever. With a great deal of effort, I flipped it open to reveal an empty chamber and loaded the black glass in. Immediately the pattern emerged again.
 
 <!-- Below is when they leave the observatory-->
 
