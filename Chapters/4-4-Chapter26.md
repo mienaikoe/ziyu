@@ -210,7 +210,7 @@ Confused, I looked up to watch her staring deeply into the light, her finger poi
 
 "Show it to me."
 
-I went over to the box again and pulled out the lens. It was in a darker kelp envelope with an ashwritten table of numbers on the one side. The other side was blank.
+I went over to the box again and pulled out the lens. It was in a darker kelp envelope with an ashwritten table of numbers on the one side. _Ash. A strange choice._ The other side was blank.
 
 "Days and times," said Pomri, "What were they tracking?"
 
@@ -236,7 +236,32 @@ Pomri moved the envelope closer to read the table again and find some sort of cl
 
 and as she shifted it, the same patterns as before began to emerge in green light, but blurry and hazy.
 
-"Ah!" I said as I turned to reach for the blue lever. With a great deal of effort, I flipped it open to reveal an empty chamber and loaded the black glass in. Immediately the pattern emerged again.
+"Ah!" I said as I turned to reach for the blue lever. With a great deal of effort, I flipped it open to reveal an empty chamber and loaded the black glass. Immediately the pattern emerged on the envelope in the same green hue.
+
+"Invisible light," I said aloud. My mind was full of connections.
+
+"Hm. What's this?" said Pomri, her hand in the envelope. A collection of blank papers appeared in her hand, with minor folds and indents that seemed to suggest that there was some sort of writing on it.
+
+"Put it in the light," I suggested. She did so, and writing appeared on the papers in that green hue.
+
+Pomri read the message out loud:
+
+"
+
+```
+Obscura + 2 days, 5-la, 6-na.
+An Observation and an Inference
+Jesse Um-Heiko
+
+Two tova-na ago, I measured it again. The ultraviolet emmission of Ara has skyrocketed, and without a doubt its temperature has increased.  It seems to be increasing exponentially with the surface area of the obscura, which continues to grow linearly.
+
+I am just an observer, not an engineer, but if I were to make an estimation, there will be a breaking point at which the obscura can no longer sustain its growth and Ara will burst, throwing this unconquerable wall into interstellar space, and some of it will land here, on Palinan.
+
+Such a machination as the obscura is likely to be aware of this, which leads me to infer that this is the obscura's ultimate goal. To use our star as a means to travel across the galaxy.
+
+```
+
+"
 
 <!-- Below is when they leave the observatory-->
 
