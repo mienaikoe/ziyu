@@ -214,7 +214,7 @@ I went over to the box again and pulled out the lens. It was in a darker kelp en
 
 "Days and times," said Pomri, "What were they tracking?"
 
-Her eyes moved to the last known values in the table. They were circled and much larger than the others.
+Her eyes moved to the last known values in the table. They were circled and seemed to be increasing.
 
 "Something happened recently," she said, "Linyu, put this into the chamber. Let's see what Jesse and the others saw."
 
@@ -240,30 +240,78 @@ and as she shifted it, the same patterns as before began to emerge in green ligh
 
 "Invisible light," I said aloud. My mind was full of connections.
 
-"Hm. What's this?" said Pomri, her hand in the envelope. A collection of blank papers appeared in her hand, with minor folds and indents that seemed to suggest that there was some sort of writing on it.
+"Hm. What's this?" said Pomri, her hand in the envelope. A collection of blank papers appeared in her hand, with a mess of indents that seemed to suggest that there was some sort of writing on it.
 
-"Put it in the light," I suggested. She did so, and writing appeared on the papers in that green hue.
+"Put it in the light," I suggested. She did so, and the writing appeared on the papers in that green hue.
 
-Pomri read the message out loud:
+Pomri read the messages out loud:
+
+<!-- less ex machina through a letter they find to Thimlu
+"Thimlu you dunce, remember to put the lens back in the box"
+ -->
 
 "
 
 ```
-Obscura + 2 days, 5-la, 6-na.
-An Observation and an Inference
-Jesse Um-Heiko
+Obscura + 2to 5la 6na
+Thimlu,
 
-Two tova-na ago, I measured it again. The ultraviolet emmission of Ara has skyrocketed, and without a doubt its temperature has increased.  It seems to be increasing exponentially with the surface area of the obscura, which continues to grow linearly.
+I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city.
 
-I am just an observer, not an engineer, but if I were to make an estimation, there will be a breaking point at which the obscura can no longer sustain its growth and Ara will burst, throwing this unconquerable wall into interstellar space, and some of it will land here, on Palinan.
-
-Such a machination as the obscura is likely to be aware of this, which leads me to infer that this is the obscura's ultimate goal. To use our star as a means to travel across the galaxy.
-
+This may be the last time we speak. It's been–
 ```
 
 "
 
-<!-- Below is when they leave the observatory-->
+She paused to let a wave of sorrow come and go.
+
+"
+
+```
+It's been an honor, Thimlu.
+
+-Jesse
+
+Add: Thank you for closing the apertures. You forgot to clean the lenses.
+```
+
+"
+
+She took a deep breath and flipped the page.
+
+"
+
+```
+Obscura + 2to 3la 8na
+Jesse,
+
+I've devised a projection of what will happen to Ara if our measurements continue and my prior estimate was correct. We must get this information out as quickly as possible, so I'm leaving to find you. I've closed all the apertures.
+
+-Thimlu
+```
+
+"
+
+"
+
+```
+Obscura + 2to 3la 6na
+Lab Note
+
+Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
+
+I am just an apprentice observer, not an engineer, but if I were to make an estimation, there will be a breaking point at which the heat of Ara will increase so much as to force the obscura apart. This will send a flurry of solar wind to Palinan. We will surely die unless we can hide far on the cold side of the planet.
+
+The obscura is likely to be aware of this, which leads me to infer that this is their ultimate goal, but I do not know why. To use our star as a means to travel to other stars, perhaps? Surely there are better ways.
+
+I will run some projections to figure out timing.
+
+-Thimlu
+```
+
+"
+
+<!-- Below is when they leave the observatory -->
 
 but lingered on the image of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
 
