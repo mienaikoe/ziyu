@@ -272,7 +272,7 @@ It's been an honor, Thimlu.
 
 -Jesse
 
-Add: Thank you for closing the apertures. You forgot to clean the lenses.
+(Clean the lenses!)
 ```
 
 "
@@ -285,9 +285,13 @@ She took a deep breath and flipped the page.
 Obscura + 2to 3la 8na
 Jesse,
 
-I've devised a projection of what will happen to Ara if our measurements continue and my prior estimate was correct. We must get this information out as quickly as possible, so I'm leaving to find you. I've closed all the apertures.
+I've double-checked my calculations and assumptions, and they must be correct. I still can't wrap my head around it.
+
+The obscura must be aware of what they're doing. But what is their ultimate goal? We must get this information out as quickly as possible, so I'm leaving to find you.
 
 -Thimlu
+
+(don't have time to clean the lenses)
 ```
 
 "
@@ -300,16 +304,22 @@ Lab Note
 
 Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
 
-I am just an apprentice observer, not an engineer, but if I were to make an estimation, there will be a breaking point at which the heat of Ara will increase so much as to force the obscura apart. This will send a flurry of solar wind to Palinan. We will surely die unless we can hide far on the cold side of the planet.
+I've devised a projection of what will happen to Ara if the temperature continues to rise. My prior hypothesis was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough to push against the obscura. We could never survive that long, but the obscura...
 
-The obscura is likely to be aware of this, which leads me to infer that this is their ultimate goal, but I do not know why. To use our star as a means to travel to other stars, perhaps? Surely there are better ways.
-
-I will run some projections to figure out timing.
+I am just an apprentice observer, not an engineer, but if I were to make a hypothesis, there will be a breaking point at which pressure from the surface gasses will build and build until it forces the obscura apart and send a flurry of radiation to Palinan. But ka'tova? Nothing could survive nearly a hundred lifetimes without Ara. It's inconceivable.
 
 -Thimlu
+
+(I will clean the lenses after my shift, as you asked)
 ```
 
 "
+
+"A hundred lifetimes," I said, struggling to imagine a time so vast.
+
+Pomri wasn't having it. She stuffed the notes back into the envelope and removed the ultraviolet lens, reverting the projector to its old highly magnified state. The light in the room looked so much brighter now that we'd been in a dimmer light for a while. And from the bright white circles emerged a dot, so small as to be easily missed.
+
+"Liffa," I said under my breath. "You are not forgotten."
 
 <!-- Below is when they leave the observatory -->
 
