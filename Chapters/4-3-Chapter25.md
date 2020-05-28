@@ -135,13 +135,13 @@ With great anxiety I stood up, sinching my satchel closed while Pomri sat stewin
 
 "Where are you going Linyu?"
 
-"To the observatory."
+"Back to Laen-Laen"
 
-"Fuck the observatory. Whatever Jesse has to say can wait."
+"We aren't done here."
 
 I didn't respond.
 
-"Just like that? You're going to walk away just like that?"
+"Just like that? You're going to walk away like you never knew me?"
 
 Her voice started to break.
 

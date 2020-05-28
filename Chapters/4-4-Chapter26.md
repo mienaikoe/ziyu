@@ -176,7 +176,7 @@ The knobs and levers had been polished with use and gleamed in the faint light o
 
 I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box attached to the cylinder. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal lever that seemed to fasten something. I pulled the lever and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
 
-I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image, a small but clear pattern emerged.
+I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image a small but clear pattern emerged.
 
 "Pomri," I called to her fearfully.
 
@@ -222,7 +222,7 @@ I took the lens, consciously feeling its weight to ensure I didn't drop it, and 
 
 "Everything ok?" she asked.
 
-"It's a strange lens, this black glass. Don't you think?"
+"It's a strange lens, this black one. Don't you think?"
 
 "Very strange. Never seen it before. Must be a custom piece that Jesse had made recently."
 
@@ -317,12 +317,30 @@ I am just an apprentice observer, not an engineer, but if I were to make a hypot
 
 "A hundred lifetimes," I said, struggling to imagine a time so vast.
 
-Pomri wasn't having it. She stuffed the notes back into the envelope and removed the ultraviolet lens, reverting the projector to its old highly magnified state. The light in the room looked so much brighter now that we'd been in a dimmer light for a while. And from the bright white circles emerged a dot, so small as to be easily missed.
+Pomri wasn't having it. She stuffed the notes back into the envelope and removed the ultraviolet filter, reverting the projector to its old, normal state. Its light seemed to illuminate the desk much more after being in dim light for a while, casting shadows of ourselves upon the walls.
 
-"Liffa," I said under my breath. "You are not forgotten."
+"We found the message. Let's go back to Ulukoma."
 
-<!-- Below is when they leave the observatory -->
+"Shouldn't we take him with us?" I used my nose to point at Jesse.
 
-but lingered on the image of Jesse. I couldn't will myself to let him go. But a hand rested on my shoulder and softened my mental petrifaction. Below me, the ground was passing, but in my mind I was still there, helplessly grasping at a thousand failures to help him. Before the dust separated us, I looked back at his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
+"He'll be fine here."
 
----
+"But the Holragi. His memories."
+
+She lowered herself to me and looked intently into my eyes.
+
+"We have to go," she said. Behind her eyes, she whispered, "He's a dead man."
+
+While Pomri packed away a few useful supplies she found around the room, I gently set the filter on the table and found a nearly unused swatch of soft fabric I had found at another desk. Before putting it away, I noticed that a black dot had emerged in one of the circles, drifting from one side of the circle to another, small enough to be easily missed.
+
+Reluctantly, I called to Pomri, who mustered the patience to look at what I had to share.
+
+I asked, "Is this what I think it is?"
+
+"Liffa," she said as a genuine smile lifted her lips without her authority. "Jesse, that bastard. Always did have an eye on hae."
+
+"Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. "You are not forgotten. I'm coming for you."
+
+I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing, but it was worth a try. Even for a dead man.
+
+The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help him. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget the pain that a person could suffer.
