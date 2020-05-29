@@ -335,7 +335,7 @@ While Pomri packed away a few useful supplies she found around the room, I gentl
 
 Reluctantly, I called to Pomri, who mustered the patience to look at what I had to share.
 
-I asked, "Is this what I think it is?"
+I asked, "Is this...?"
 
 "Liffa," she said as a genuine smile lifted her lips without her authority. "Jesse, that bastard. Always did have an eye on hae."
 
@@ -343,4 +343,4 @@ I asked, "Is this what I think it is?"
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing, but it was worth a try. Even for a dead man.
 
-The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help him. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget the pain that a person could suffer.
+The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help him. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
