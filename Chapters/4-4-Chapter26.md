@@ -94,7 +94,7 @@ She nodded, measuring with her fingers, priming the syringe, and plunging the ne
 
 "What happens now?"
 
-I knew not to tell her the truth.
+It was best not to tell her the truth.
 
 "Sleep. For a whole day."
 
@@ -144,21 +144,21 @@ The observatory was not as I expected it. There were no windows to be broken or 
 
 I found a warm area in middle of the room and laid on the floor, removing my face covering.
 
-"I'm sooo tiiiired," I said.
+"I'm sooo tiiiired," I said, stretching and sprawling my limbs across the floor. My heavy breathing was more noticeable in the quiet of the place.
 
-Pomri knealt down beside me and gently rested Jesse on the ground. Our heavy breathing was more noticeable in the quiet of the place.
+Pomri knealt down beside me and gently rested Jesse on the ground. She ventured to some dark corner of the room, as if distinctly familiar with this place, and returned with a pillow in her hands. Slowly, her hands raised Jesse's cold glowing body and gently rested it upon the pillow.
 
-"You can sleep later," she said. "Come, we need to look for the message."
+"You can sleep later," she glanced at me with her voice. "Come, we need to look for the message."
 
-She pulled her empty lantern out and rummaged through the place, moving quickly in the dark but somehow never missing a step, as if she'd been here many times.
+Her dark lantern rocked about with a subtle metallic creak as she rummaged through the place, moving quickly in the dark but never missing a step.
 
-"Ah!" she exclaimed, moving to a workbench. "With the alignment mechanism."
-
-She pulled a large metal canister from a pile of things and popped a cork with her fingers. As she poured its contents into the lantern's upper tank, a distinctively floral aroma filled the room.
+"Ah!" she exclaimed, moving to a workbench. From a cabinet underneath, she pulled a large, thick, glass canister and popped a cork with her fingers. As she poured its contents into the lantern's upper tank, a distinctively floral aroma filled the room.
 
 "What _is_ that?" I asked.
 
-"Oil of Anomin. It's a thick oil from the husk of anomin grains. We use it to lubricate machines, and..." With a hot tip just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosni blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
+"Oil of Anomin. It's a thick oil from the bran of anomin grains. We use it to lubricate machines, and to do this..."
+
+With a hot tip just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosin blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
 
 "Right then. Let's find this message."
 
@@ -166,17 +166,19 @@ I groaned in agony. She took a moment to glance at me, as if to hurry me without
 
 "Sorry, o supreme leader, but your nap will have to wait."
 
-She walked to the back of the room, where the strange protrusions from the outside entered the room as a row of metal cylinders. Below each one was a large table, with a top made of smoothly ground patternless stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon one of the plates.
+She walked to the back of the room, where the strange protrusions from the outside entered the room as a row of metal cylinders. Below each one was a large table, their tops made of smoothly ground patternless stone. Pomri's hand found a mechanism that was built into the ceiling, and a faint circle suddenly appeared upon the table in front of us.
 
-"This is a telescopic projector for Ara. I haven't the slightest clue how it works, but play around with it. Maybe you'll find something."
+"This is a telescopic projector for Ara. I haven't the slightest clue how it works, but maybe you'll find something if you just play around with it."
 
-She turned to move away, but stopped herself and said, "Oh, and don't touch the glass. Jesse would be furious."
+She turned to move away, but stopped herself and said, "Oh, and don't put your fingers on anything glass. Jesse would be furious."
 
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
-I peered at the circular light on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial with numbers on it jutted out of a sturdy metal box attached to the cylinder. It turned smoothly in my fingers and seemed to slowly reveal a pattern when turned a certain way, but I could barely make it out. Next to the dial was a red metal lever that seemed to fasten something. I pulled the lever and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
+I peered at the circular light cast on the table with a discerning eye – just a blob of light; nothing particularly interesting. Just above me, a thick dial jutted out of a sturdy metal box attached to the cylinder. On the visible part were numbers that went up and down by tens. In my fingers, the dial turned smoothly and the projector seemed to slowly reveal a pattern when this dial was turned to a certain number, but I could barely make out what the image was.
 
-I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden create worn by decades of use. Inside of it was a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table. But then I found the thickest lens that I could, and when I turned the dial again to focus the image a small but clear pattern emerged.
+Next to the dial was a red metal lever that seemed to fasten something. I pulled the lever and it released with a _tang_ that reverberated through the metal cylinder and loosened something hidden inside. Gently, I pulled on the loosened bit and uncovered a beautiful disc of glass set into a large rectangular metallic frame. I held it up to Pomri who took a break to look my way. Through the glass she was far-away and upside-down, and to her I suppose my eye was as big as the lens itself. She may have giggled in the dark and bore a smile for just a moment, but if she did, I couldn't tell.
+
+I set the lens down and searched for somewhere I might find more. Below the table was an unmarked wooden crate worn by decades of use. Inside of it, a neatly-arranged assortment of lens frames, all with varying writings on their kelp-paper envelopes. Some had much thicker lenses in them, some were tinted, and others were completely black. I inserted a few that seemed thinner and saw them make smaller, brighter circles on the table, so I decided to go the other way. At the other end of the box was the thickest lens of them all. The writing on the envelope said "First Obscura Observation | projector 4 | 5/2/11/5 6-to 12:4:0". I carefully swapped out the thin lens with this heavier large lens, making sure not to put my fingers on the glass, and closed the lever again. And When I turned the dial again to focus the image, a small but clear pattern emerged.
 
 "Pomri," I called to her fearfully.
 
@@ -246,14 +248,10 @@ and as she shifted it, the same patterns as before began to emerge in green ligh
 
 Pomri read the messages out loud:
 
-<!-- less ex machina through a letter they find to Thimlu
-"Thimlu you dunce, remember to put the lens back in the box"
- -->
-
 "
 
 ```
-Obscura + 2to 5la 6na
+Obscura Observation + 2to 5la 6na
 Thimlu,
 
 I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city.
@@ -282,7 +280,7 @@ She took a deep breath and flipped the page.
 "
 
 ```
-Obscura + 2to 3la 8na
+Obscura Observation + 2to 3la 8na
 Jesse,
 
 I've double-checked my calculations and assumptions, and they must be correct. I still can't wrap my head around it.
@@ -299,7 +297,7 @@ The obscura must be aware of what they're doing. But what is their ultimate goal
 "
 
 ```
-Obscura + 2to 3la 6na
+Obscura Observation + 2to 3la 6na
 Lab Note
 
 Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
