@@ -34,7 +34,7 @@ Pomri paused, distracted.
 
 My silence agreed.
 
-There was a certain guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under waves and horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
+There was a certain guilt I carried onto the boat. The kind of guilt that fills your belly with vines, pretangled and on fire. A guilt that made me turn around and look back to the shoreline of Ulukoma as it sank under a patchwork of ice and waves that composed the horizon. I did not long for my nather in particular. Nor for anyone back there. But the waves and the salty air made me miss that home.
 
 Presently, Kipnu came to my mind, then Melna. I imagined them side by side in the water, their eyes open, unmoving. Their spirits reached out, draped in water. They played in our wake, climbed the hull, hung from our paddles. But the gaze turned something inside of me. Those vacant eyes, peering into the void from their pale faces, the water covering them just so. And at once I was among them in that viscous ether-ocean with the bubbles and froth tickling my skin, my body unmoving and my eyes locked in that same vacant stare.
 

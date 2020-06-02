@@ -26,175 +26,175 @@
     - Mel will want to know Holrag's plans.
 -->
 
-
 ## Ch11
 
+"Lin, fetch a listener and some bluekelp," Casra requested.
 
-  "Lin, fetch a listener and some bluekelp," Casra requested.
+Kip was surprised, "What are we doing now?"
 
-  Kip was surprised, "What are we doing now?"
+"You wanted to learn about these coils right? If we're to change anything in the Great Pavilion, you're going to have to learn how to use them."
 
-  "You wanted to learn about these coils right? If we're to change anything in the Great Pavilion, you're going to have to learn how to use them."
+"I don't follow," he said, perplexed.
 
-  "I don't follow," he said, perplexed.
+"You'll see."
 
-  "You'll see."
+The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. _Mel... What ire does your day bring? Will you take me back?_
 
-  The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. *Mel... What ire does your day bring? Will you take me back?*
+Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a big flap of metal hiding another smaller coil and cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand - not the huge metal monstrosities he had imagined them to be.
 
-  Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a big flap of metal hiding another smaller coil and cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand - not the huge metal monstrosities he had imagined them to be.
-  
-  Thi handed the listener to Kip and told him, "This is my newest one. Don't go and break it." 
-  
-  Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
+Thi handed the listener to Kip and told him, "This is my newest one. Don't go and break it."
 
-  "That must be where the blue lines-"
+Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
 
-  "Yep," Linyu butted in. He seemed amused that he could predict this foreigner's thoughts.
+"That must be where the blue lines-"
 
-  Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced a wooden box slightly larger than their own bodies, with a crank handle on the side.
+"Yep," Linyu butted in. He seemed amused that he could predict this foreigner's thoughts.
 
-  "What's that handle for?" he asked.
+Thi left an area clear where Casra had cleared away the leaves and opened another door to a trench in the ground, far too shallow to live in. From it they produced a wooden box slightly larger than their own bodies, with a crank handle on the side.
 
-  "To wake up the miltas that power it," Linyu joked, but Kip didn't get it.
-  
-  "That was a joke," thi said again. Kipnu chuckled but still was looking for an answer.
+"What's that handle for?" he asked.
 
-  Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
+"To wake up the miltas that power it," Linyu joked, but Kip didn't get it.
 
-  Kip was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
+"That was a joke," thi said again. Kipnu chuckled but still was looking for an answer.
 
-  "I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your ear to the rock while I knocked on it with a hammer from the other side."
+Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
 
-  "Ok, I think I follow."
+Kip was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
 
-  "Now imagine if you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
+"I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your ear to the rock while I knocked on it with a hammer from the other side."
 
-  "Ok yea... but how is that a metaphor for these invisible voices?"
+"Ok, I think I follow."
 
-  "All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
+"Now imagine if you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
 
-  "Ahh, I see," Kip said, only half understanding.
+"Ok yea... but how is that a metaphor for these invisible voices?"
 
-  "Come over here, Kip," Casra said. Thi took the listener from Kip and held it up to the light from the bluekelp.
+"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
 
-  "See these two glass beads?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these beads to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps those bumps in the air constant. They're like bells - they ring when sung to. If you make one event slightly different in any way, it will respond to a different tone of singing, so each one must be made the same."
+"Ahh, I see," Kip said, only half understanding.
 
-	Casra handed the listener back to Kip and asked, "You want to try it?"
+"Come over here, Kip," Casra said. Thi took the listener from Kip and held it up to the light from the bluekelp.
 
-  Kip could barely understand what thi was talking about, but was eager to learn anyway.
+"See these two glass beads?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these beads to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps those bumps in the air constant. They're like bells - they ring when sung to. If you make one event slightly different in any way, it will respond to a different tone of singing, so each one must be made the same."
 
-  "Ok, so take this listener, and walk about fifty paces back. Don't look back - just listen to what you can hear from it."
+    Casra handed the listener back to Kip and asked, "You want to try it?"
 
-  "Just listen? that's it?"
+Kip could barely understand what thi was talking about, but was eager to learn anyway.
 
-  "Yes. That's it."
+"Ok, so take this listener, and walk about fifty paces back. Don't look back - just listen to what you can hear from it."
 
-  He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. *Are the trees talking to each other?* And then he heard a maman clearing hae throat. *Is that...Casra? But thi is so far away.* Thi began singing and Kip heard it as if were coming from inside his own head.
+"Just listen? that's it?"
 
+"Yes. That's it."
 
-<!-- This song is pretty cringey -->
-  ***
+He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. _Are the trees talking to each other?_ And then from the device on his ear, he heard the faint noise of a maman clearing hae throat. _Is that...Casra?_ The voice began chanting a single note in a steady beat, and at first it was muddied by endless reverberations and echoes, barely audible through the static. But then with every beat, the thunderous reverberation coalesced toward single signal. Her voice became clearer and the beat became louder, and without knowing, Kip could hear it as if it were coming from inside his own head. The voice began singing on top of the beat as if hundreds of people were singing now.
+
+<!-- TODO: This song is pretty cringey -->
+
+---
+
     A little fish, swimming down below,
     A little bird, floating up above,
     With Ara's light filling up the sky,
     It's you who fills our lives with love.
-  ***
 
-  He was moved to tears. Thi sang a simple lullaby from his childhood, but through the listener it was like a memory hallucinated into life. It struck him first with a magical awe, then a longing homesickness. It had been a long time since he felt either of those emotions.
+---
 
-  He made his way back, and saw a beam of joy on their faces. There was no doubt in his mind that Casra never got tired of seeing someone hear it for the first time. Thi knew it would change the world.
+He was moved to tears. Thi sang a with such ease, but through the listener it was like a memory hallucinated into life. It struck him first with a magical awe, then a longing homesickness. It had been a long time since he felt either of those emotions.
 
-  "What did you think?" Casra asked.
+He made his way back, and saw a beam of joy on their faces. There was no doubt in his mind that Casra never got tired of seeing someone hear it for the first time. Thi knew it would change the world.
 
-  "That was incredible. Imagine if everyone had one of these boxes. A single voice could cover the entire planet."
+"What did you think?" Casra asked.
 
-  "That is the next thing I need to teach you. There are limits to radio."
+"That was incredible. Imagine if everyone had one of these boxes. A single voice could cover the entire planet."
 
-  "Limits?"
+"That is the next thing I need to teach you. There are limits to radio."
 
-  "The coil on this tree is powered by a strong battery. Just as you need a strong voice and a raised platform to be heard from far away, you need a strong transmitter and a high antenna for your signal to reach further."
+"Limits?"
 
-  "Is that why you built it into a tree?"
+"The coil on this tree is powered by a strong battery. Just as you need a strong voice and a raised platform to be heard from far away, you need a strong transmitter and a high antenna for your signal to reach further."
 
-  "Yes. Lin climbed this tree many La'to ago to mount a casting wire to the top. It was dangeorus, but I raised hae to fight danger with skill."
+"Is that why you built it into a tree?"
 
-  "What was all of this for, Casra? What were you planning to do before you left?"
+"Yes. Lin climbed this tree many La'to ago to mount a casting wire to the top. It was dangeorus, but I raised hae to fight danger with skill."
 
-  "Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holrag was hiding something and she wanted to use radio to uncover it."
+"What was all of this for, Casra? What were you planning to do before you left?"
 
-  "Did she ever find out if they were?"
+"Many from my tribe chose to stay here after they became sober. They felt forgotten by their cities and their families, so they found a new family to be a part of here. Some would leave Ulukoma and bring listeners with them to spread my message to others in Shaki. For me, radio was a way to let everyone from under Ara know that in spite of any mistakes they might have made they would have a home here if their hearts were in the right place. Setre, on the other hand, believed that Holrag was hiding something and she wanted to use radio to uncover it."
 
-  "We were too focused on other things to really dedicate any time to it. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holrag and help us. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
+"Did she ever find out if they were?"
 
-  "Well, I'm glad we met then. I have every intention of going back and figuring out what Holrag is up to."
+"We were too focused on other things to really dedicate any time to it. When I went back to Ara, I re-made a radio and tried to recruit some people to go to Holrag and help us. They thought I was some crazy maman with a dangerous idea. Even when I showed them that it works."
 
-  "I've never met someone so interested in what we're doing, so pardon if I ask: what's in this for you?"
+"Well, I'm glad we met then. I have every intention of going back and figuring out what Holrag is up to."
 
-  "You remember the reason I told you for why I was here?"
+"I've never met someone so interested in what we're doing, so pardon if I ask: what's in this for you?"
 
-  "You pinned a man against a wall."
+"You remember the reason I told you for why I was here?"
 
-  "The man was an ex-fidelant from Holrag. And he pressured my partner, Liffa, into going on some experimental flight to space."
+"You pinned a man against a wall."
 
-  "What? Why would he do that?"
+"The man was an ex-fidelant from Holrag. And he pressured my partner, Liffa, into going on some experimental flight to space."
 
-  "He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a fidelant for Heiko."
+"What? Why would he do that?"
 
-  "What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
+"He says it's because thi's a perfect fit for the program, but I think it's really because he wants leverage. Our other partner is a fidelant for Heiko."
 
-  Kip paused and pondered again if he should mention it.
+"What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
 
-  He said, "I'll tell you later."
+Kip paused and pondered again if he should mention it.
 
-  "I may not know you that well, but I'm not naive. What's going on?"
+He said, "I'll tell you later."
 
-  He stood up and walked back toward their home.
+"I may not know you that well, but I'm not naive. What's going on?"
 
-  "Kip. We deserve to know," thi said.
+He stood up and walked back toward their home.
 
-  He turned back around, and stared at Casra and hae kaln with despair. They needed to know.
+"Kip. We deserve to know," thi said.
 
-  "Ara. It's being blocked by... something."
+He turned back around, and stared at Casra and hae kaln with despair. They needed to know.
 
-  "And they know this... how?"
+"Ara. It's being blocked by... something."
 
-  "The observers found something up there in space. It keeps growing and will soon block out all of Ara. In less than 60 days... an ice age will begin."
+"And they know this... how?"
 
-  "Days?!"
+"The observers found something up there in space. It keeps growing and will soon block out all of Ara. In less than 60 days... an ice age will begin."
 
-  "I know this sounds outlandish, and I wish I was kidding. But the observers are rarely wrong, and we've already seen evidence of its effects."
+"Days?!"
 
-  Casra started talking to her self, "All our work... Everyone I've ever known..."
+"I know this sounds outlandish, and I wish I was kidding. But the observers are rarely wrong, and we've already seen evidence of its effects."
 
-  Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to understand hae own mortality.
+Casra started talking to her self, "All our work... Everyone I've ever known..."
 
-  "I'm sorry... I've said too much."
+Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to understand hae own mortality.
 
-  Casra leaned in to hug Linyu, while keeping her eyes up.
+"I'm sorry... I've said too much."
 
-  "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Great Pavilion."
+Casra leaned in to hug Linyu, while keeping her eyes up.
 
-  Kip, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
+"It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Great Pavilion."
 
-  "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let it fall into anarchy once before and I must not let it happen again."
+Kip, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
-  "Please... when the time comes...reconsider. Your devices could be the answer we're looking for."
+"I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let it fall into anarchy once before and I must not let it happen again."
 
-  "Then it's good of you to learn it."
+"Please... when the time comes...reconsider. Your devices could be the answer we're looking for."
 
-  He smirked and bowed his head, acknowledging that thi couldn't be swayed.
+"Then it's good of you to learn it."
 
-  "Well, I'll try my best to learn then," he said.
+He smirked and bowed his head, acknowledging that thi couldn't be swayed.
 
-  "Thank you...Kip."
+"Well, I'll try my best to learn then," he said.
 
-  Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment will arrive in a Va'la and I want to be prepared for anything."
+"Thank you...Kip."
 
-  "Shipment?" Kip asked.
+Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment will arrive in a Va'la and I want to be prepared for anything."
 
-  "Of convicted. The same one we came in on yesterday."
+"Shipment?" Kip asked.
 
-  "What will we do with them?"
+"Of convicted. The same one we came in on yesterday."
 
-  "Start a resistance."
+"What will we do with them?"
+
+"Start a resistance."

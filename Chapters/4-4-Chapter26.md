@@ -341,4 +341,4 @@ I asked, "Is this...?"
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing, but it was worth a try. Even for a dead man.
 
-The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help him. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
+The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help in his darkest moments. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.
