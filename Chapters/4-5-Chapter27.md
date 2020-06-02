@@ -1,9 +1,10 @@
 ## Chapter 27
 
+"Laen?" I called for him
+
 <!--
 - I want Pomri to be separated from Linyu
 - I want to explore Holrag
-
 
 - Pomri can go to Ulukoma, while Linyu is captured by Ramne
   - Always captured ugh
@@ -47,6 +48,13 @@
 
 
 Ch27
+- Their boat is stolen
+  - By Ramne, but don't mention this
+- They presume it's Annui and track hae
+- They meet with Annui, and reconvene the saffas who tells them about the graveyard
+  - Under Ulu, sleeps millions of beings. For you to survive, you must kill them.
+-
+
 - Setre has landed and found them
   - Annui is a friend?
 - Linyu is forced to leave Laen
@@ -68,5 +76,9 @@ Ch29
   - argues that it's a zombie factory
   - says the hundred years of darkness is a hoax. the tribes of Holrag have said otherwise.
 -
+
+Prologue
+- Jesse rises!!!!!
+  - And fetches Liffa
 
  -->
