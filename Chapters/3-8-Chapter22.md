@@ -142,25 +142,25 @@ He replied, "You never would have said yes."
 
 He walked behind her and stood very close in case she tried anything again. Beside him stood one of the soldiers from their submersible who he turned to and whispered into hae ear, "Be ready to cut on my signal."
 
-Melna rose the listener to her mouth and looked at her people. _This will be my last address to them_, she thought. _Best not to hesitate_.
+Melna rose the microphone to her mouth and looked at her people. _This will be my last address_, she thought. _Best not to hesitate_.
 
 She began.
 
 "Friends. Heikoans. Pangum of Palinan."
 
-She watched as Pomri permeated the crowd, slowly passing through with no apparent destination. She was up to something, and Melna became more confident about her plan.
+She watched as Pomri permeated the crowd, slowly passing through with no apparent destination. She was up to something. On the line, a faint beating hum could be heard. She paid no mind to it.
 
-" There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little we have of this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through reasoning and diplomacy, we achieved a lasting peace. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather take everything that we have. But I want you all to remember this. We will not back down. No matter the circumstances. We will survive this together."
+"There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little we have of this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through reasoning and diplomacy, we achieved a lasting peace. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather take everything that we have. But I want you all to remember this. We will not back down. No matter the circumstances. We will survive this together."
 
-Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him and held her arm out to fend him off.
+Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him and held her arm out to fend him off. By now, the beating hum was much louder and clearer, and she could almost make out the sound "U. Lu".
 
 "Behind you is Ara. It has long been a symbol of life and vitality, but now it is dying and there is little we can do to stop it."
 
-Fajro whispered loudly to her, "Melna, there is no time for this," But she persisted.
+Fajro whispered loudly to her, "Melna, there is no time for this," But she persisted. She knew the plan now. This was her moment.
 
-"As you look to me for guidance, I want you to stand tall and look further, for I will no longer be with you. Before you, I stand on a pier that harbors ships into the cold, dark sea of Ulu. It has always been a dangerous and unknown place, but I need you to trust me when I tell you that the future of Heiko is waiting for you behind the fog."
+"As you look to me for guidance, I want you to stand tall and look even further, for I will no longer be with you. Before you, I stand on a pier that harbors ships into the cold, dark sea of Ulu. It has always been a dangerous and unknown place, but I need you to trust me when I tell you that the future of Heiko is waiting for you behind this fog."
 
-"Cut it!" Fajro yelled to the solider, but he was too late, as Melna had shoved the soldier away from hae equipment. Fajro reached for her, but she unsheathed a dagger from her robes and used his momentum to pin him against her with the dagger at his neck.
+"Cut it!" Fajro yelled to the solider, but he was too late, as Melna had shoved the maman away from hae equipment. Fajro reached for her, but she unsheathed a dagger from her robes and used his momentum to pin him against her with the dagger at his neck.
 
 "Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately rushed into the water as Pomri and the woman subdued soldiers who were trying to hold people back with the aid of a few from the crowd who stayed behind. Three explosions cracked the air and two mamen on the beach fell to the ground, blood and water quickly filling their clothes. A man quickly came to their aid as the rest continued fighting.
 

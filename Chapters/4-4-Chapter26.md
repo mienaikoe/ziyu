@@ -339,6 +339,6 @@ I asked, "Is this...?"
 
 "Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. "You are not forgotten. I'm coming for you."
 
-I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing, but it was worth a try. Even for a dead man.
+I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 
 The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help in his darkest moments. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.

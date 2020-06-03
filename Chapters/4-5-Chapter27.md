@@ -1,6 +1,80 @@
 ## Chapter 27
 
-"Laen?" I called for him
+"Laen!" I called out. There was no answe, no sign. Not even his giant footsteps stuck around in the dust.
+
+"This is the place we left him, right?" I asked. I knew it was.
+
+"Perhaps he got thirsty," said Pomri, "Went to Rudjan for a drink."
+
+"No. That's not like him. He must have had a good reason."
+
+"Well, anyway, we need to get moving."
+
+"Let's wait just a little while longer."
+
+I could hear her incredulity. "You care so much for that saffa."
+
+"He cares for me. Why should I not treat him the same?"
+
+"He's a saffa. In Holrag, they eat saffas, you know."
+
+I shuddered at the thought.
+
+"He has a mind," I said. "He's capable of love. Of suffering. And every feeling in between. He's shown me the good that life is capable of. That's enough for me."
+
+"Can't argue with that," she said. "Anyway, we need to get moving before the Holragi come back to ransack the place."
+
+I weighed the options, and realized she was right. Being captured or killed wouldn't help us find each other again. So I stood up and trudged onward, pulled through my mental viscidity by the unstoppable force that was Pomri.
+
+"Don't look back," she said as I glanced over my shoulder one last time. "You'll only make it worse."
+
+---
+
+Pomri took one look at the shore near the cove and knew that something was amiss. There seemed to be a distinct and imprecise absence of rock and sand, as if a struggle had taken place here.
+
+"No," she said, worried. "No. Not the boat."
+
+She lit her lantern quicker than I thought it could be done and entered the cove ahead of me.
+
+"This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of algae running down into the water. It was clear it had been stolen.
+
+"DAMMIT!" she said, pushing me aside and rushing out of the cove to search for it on the horizon.
+
+A strange but familiar voice spoke in the cove.
+
+"I tried to stop him."
+
+The shiver filled my bones, turning me around to find the source. The blue light on my legs revealed the figure of a maman a few paces from me. In dark and tattered clothes. The same one we encountered when we arrived.
+
+"Tried to stop who? Who are you?"
+
+"You two are so rude, barging into my home twice like this and interrogating me like I'm some criminal."
+
+I made a heavy gulp.
+
+"I'm just scared is all. Who are you?"
+
+The maman didn't move, but I drew closer and knealt by hae side.
+
+"The one that came before me was named Ginnu."
+
+I interjected excitedly, "Ginnu! It's you! What do you mean came before?"
+
+"I am _Annui_, without a name."
+
+I took a closer look at pendant around hae neck and noticed it immediately.
+
+"How did you come to have Melna's pendant?"
+
+"You know Melna?"
+
+"Yes! But how..."
+
+We shared a confused moment of silence, realizing that we ought to regroup in the light.
+
+"Come, let's get you out into the light."
+
+"I... I am too weak to do that right now."
 
 <!--
 - I want Pomri to be separated from Linyu
@@ -67,7 +141,7 @@ Ulukoma
 Linyu, Pomri, Annui
 
 Ch28
-- Relaying information
+
 
 Ch29
 - Linyu needs to be in Ulukoma
@@ -75,7 +149,7 @@ Ch29
   - he knows what it is.
   - argues that it's a zombie factory
   - says the hundred years of darkness is a hoax. the tribes of Holrag have said otherwise.
--
+- Pomri is stabbed through her hand, which injects kanosin into her heart.
 
 Prologue
 - Jesse rises!!!!!
