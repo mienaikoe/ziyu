@@ -78,7 +78,7 @@ Kip was confused. "How?" He asked, "I mean we learned electricity in medical, bu
 
 "See these two glass beads?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these beads to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps those bumps in the air constant. They're like bells - they ring when sung to. If you make one event slightly different in any way, it will respond to a different tone of singing, so each one must be made the same."
 
-    Casra handed the listener back to Kip and asked, "You want to try it?"
+Casra handed the listener back to Kip and asked, "You want to try it?"
 
 Kip could barely understand what thi was talking about, but was eager to learn anyway.
 
@@ -88,7 +88,9 @@ Kip could barely understand what thi was talking about, but was eager to learn a
 
 "Yes. That's it."
 
-He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. _Are the trees talking to each other?_ And then from the device on his ear, he heard the faint noise of a maman clearing hae throat. _Is that...Casra?_ The voice began chanting a single note in a steady beat, and at first it was muddied by endless reverberations and echoes, barely audible through the static. But then with every beat, the thunderous reverberation coalesced toward single signal. Her voice became clearer and the beat became louder, and without knowing, Kip could hear it as if it were coming from inside his own head. The voice began singing on top of the beat as if hundreds of people were singing now.
+He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. _Are the trees talking to each other?_ And then from the device on his ear, he heard the faint noise of a maman clearing hae throat. _Casra?_
+
+Hae voice began with a single tone, chanting in a steady beat. At first it was quiet, muddied by reverberations and echoes, barely audible through the static. But with every new beat, the thunderous reverberations re-aligned, gradually coalescing to single signal, until at once, Kip could hear hae as if hae voice were coming from inside his own head. Thi began singing on top of the beat as if a lone voice stood next to him while a choir of thousands continued chanting from the treetops.
 
 <!-- TODO: This song is pretty cringey -->
 
