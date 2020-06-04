@@ -76,6 +76,8 @@ We shared a confused moment of silence, realizing that we ought to regroup in th
 
 "I... I am too weak to do that right now."
 
+Thi revealed hae hands to show a
+
 <!--
 - I want Pomri to be separated from Linyu
 - I want to explore Holrag
