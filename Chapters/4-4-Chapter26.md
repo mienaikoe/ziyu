@@ -86,7 +86,7 @@ She spoke in earnest, "He can make new memories. In a new life. One without pain
 
 "Without pain..." I murmured.
 
-I dug into my satchel, taking stock of the remaining vials of Kanosin – two – and I produced one with the accompanying syringe. I filled the syringe while she tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. A brief struggle found him on his side as she bound his arms behind him and elevated his head with her satchel below his neck. He no longer fought. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand with no sign of reluctance. Perhaps she had come to understood that the virtue of a thing is in its use.
+I dug into my satchel, ensuring that there was only one left and I produced it with the accompanying syringe. I filled the syringe while she tore off a large piece of her guard trousers, exposing more of the leg she had illuminated, and wiped it clean from ash. A brief struggle found him on his side as she bound his arms behind him and elevated his head with her satchel below his neck. He no longer fought. Perhaps he had come to accept his anticipated death. She accepted the syringe from my hand with no sign of reluctance. Perhaps she had come to understood that the virtue of a thing is in its use.
 
 "The left heart, five fingers from the center," I said, reassuringly. "Directly in."
 

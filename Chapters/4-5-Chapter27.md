@@ -38,21 +38,19 @@ She lit her lantern quicker than I thought it could be done and entered the cove
 
 "This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of algae running down into the water. It was clear it had been stolen.
 
-"DAMMIT!" she said, pushing me aside and rushing out of the cove to search for it on the horizon.
+"DAMMIT!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. She was long gone when a strange but familiar voice spoke in the cove.
 
-A strange but familiar voice spoke in the cove.
+"I tried to stop him," thi said.
 
-"I tried to stop him."
-
-The shiver filled my bones, turning me around to find the source. The blue light on my legs revealed the figure of a maman a few paces from me. In dark and tattered clothes. The same one we encountered when we arrived.
+A shiver filled my bones, turning me around to find the source. The blue light on my legs revealed the figure of a maman a few paces from me. In dark and tattered clothes. The same one we encountered when we arrived.
 
 "Tried to stop who? Who are you?"
 
-"You two are so rude, barging into my home twice like this and interrogating me like I'm some criminal."
+"Who's asking?"
 
 I made a heavy gulp.
 
-"I'm just scared is all. Who are you?"
+"I'm just scared is all."
 
 The maman didn't move, but I drew closer and knealt by hae side.
 
@@ -60,23 +58,45 @@ The maman didn't move, but I drew closer and knealt by hae side.
 
 I interjected excitedly, "Ginnu! It's you! What do you mean came before?"
 
-"I am _Annui_, without a name."
+"Ginnu died and is forgotten. I am _Annui_, one without a name."
 
-I took a closer look at pendant around hae neck and noticed it immediately.
+Curiosity took hold of my body, and moved me closer to hae. Immediately, I noticed the pendant around hae neck.
 
-"How did you come to have Melna's pendant?"
+"You knew... Melna?"
 
-"You know Melna?"
+Hae voice perked up, "You know Melna?"
 
-"Yes! But how..."
+"Yes! She saved me when I woke up in a strange place..."
 
-We shared a confused moment of silence, realizing that we ought to regroup in the light.
+"What happened to her?" thi asked in a subdued sort of excitement.
+
+"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them to a place on hae abdomen. My fingers traced a wound, long but shallow, and healing poorly. It would certainly become infected.
 
 "Come, let's get you out into the light."
 
-"I... I am too weak to do that right now."
+"I... I am too weak to do that."
 
-Thi revealed hae hands to show a
+"We can heal you. We have-" _We used it all._ "We can get you to a place where you'll be safe."
+
+"Nowhere is safe."
+
+"There is such a place," I reassured hae, "It's hidden, in the darkness, where none but the damned dare venture."
+
+Thi smirked and said, "If you've come to take me to the underworld, I've already been there. And I'm not going back."
+
+I didn't fully understand hae, but thi smiled at me anyway, and said, "Take me there, young maman."
+
+_Maman._
+
+I squeezed hae hand and ran to Pomri who had already given up on finding the boat.
+
+"Pomri, there is a maman in the cove that needs our help."
+
+"Does thi know where our boat is?"
+
+"Thi says it's gone. A man took it."
+
+"Take me."
 
 <!--
 - I want Pomri to be separated from Linyu
