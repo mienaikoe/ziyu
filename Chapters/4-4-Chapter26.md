@@ -2,11 +2,13 @@
 
 In the distance, the somber cries of a man resounded from the crater, interspersed with fits of coughing. I stopped in my tracks and looked to Pomri who was close behind. She hadn't heard a thing. At first I thought my ears betrayed me, but as we kept walking, the sound grew in volume and I was compelled by instinct to run toward the cry and help. Pomri was behind me screaming "Wait!" but I did not stop. It was merely a lao'ta before I saw him through the dust, knealing with his hands behind his head and nodding his torso back and forth. I came upon him, yelling, "Aey. you alright?" but there was no answer. It was no longer clear if he was laughing or crying.
 
-I illuminated his figure with the light of my legs. Deep scrapes and cuts marred his clothes and skin. Some were superficial, but most showed signs of blood loss. His eyes were bloodshot, and his face caked with black ash. It took him a moment to stop his nodding and realize a presence.
+I illuminated his figure with the light of my legs. Deep scrapes and cuts marred his clothes and skin. Some were superficial, but most showed signs of blood loss. His eyes were bloodshot, and his face caked with black ash. It took him a moment to stop his nodding and realize my presence.
 
 Through trembling lips, he stammered, "W...Who..?" but his eyes only fixated on the light. Suddenly, his hands lurched forward and grasped my ankles tightly. A reflex jolted me backward, falling to the ground, with half of my body hanging over the crater edge, my hands scraping and clambering for a solid bit of land. I looked below me into a black void, its depth was unknowable, but I knew I would certainly die if he let go.
 
-"DIE HOLRAGI!" He roared at me as he pushed me away. For a single point in time, I hung in the air, the assurance of death wrestling me down to its bosom. I knew this feeling when my legs went numb in the waters of Ulukoma. When I first experienced Kanosin as a curious child in my mother's bedroom. It was familiar, neither friend nor enemy. More of a conjuring, an apparition that revealed itself from time to time. But then each time a hand reached out, pulling me from the figment of death. Setre, Kipnu.
+"YOU DID THIS!" He roared at me as he pushed me away.
+
+For a single point in time, I hung in the air, the assurance of death pulling me down to its bosom. I knew this feeling when my legs went numb in the waters of Ulukoma. When I first experienced Kanosin as a curious child in my mother's bedroom. It was familiar, neither friend nor enemy. An apparition that revealed itself on occasion. But each time a hand would reach out, pulling me from the figment of death. Setre, Kipnu.
 
 This time it was Pomri, grasping my wrist just in time. She barely exerted herself pulling me up with one arm, and quickly pivoting to restrain the mysterious man. She grappled him by his arm and he panicked, stumbling on himself and wheezing heavily as he tried to get away.
 
@@ -36,31 +38,37 @@ It occured to me that he may not yet have realized that he had gone deaf and par
 
 _W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
 
-"I was at the observatory when–," he winced at some pain in his body. "...when Holragi landed. I had a message to send; a message of great importance. But I didn't make it, did I?... That's okay though, because now you're here."
+"I was at the observatory–," he winced at some pain in his body. "...Holrag. Had a m-m-message t-to send; a m-m-m of great importance. I didn't make it, did I?... That's-s okay though. Now you're h-h-here."
 
 "That's great, Jesse," said Pomri, "What was the message?"
 
 _W-H-A-T-W-A-S-M-E-S_
 
-"The message?...The message..."
+"The message?... The mess-KA'TOVA-essage. Many. Message... M-m-many ka'tova -essage."
 
-"You can't remember?" said Pomri, urgently.
+"Ka'Tova? What about a Ka'Tova?" said Pomri, urgently.
 
 She moved closer to him, holding the illuminated hand to her face so he could read her lips.
 
 "Try to remember," she demanded.
 
-"I can't remember!" he cried. "I can't...can't..."
+"S-sai-sll," he cried under his breath. "I can't...can't..."
 
-His pupils began to constrict and I watched as his mind began to slip backward in time.
+"Sail? From a boat?" she asked, "What does a ka'tova have to do with it?"
 
-"Just try, Jesse."
+"Remember... rem -m -m."
 
-"Who are you?!... I have nothing to give you – go away!"
+He began to hit his head in frustration, but Pomri held his arms back after a few hits, and he stopped gesticulating. Instead, his pupils began to constrict and we watched as his mind began to slip backward in time.
+
+"Come on," she said, worried, "Stay awake."
+
+As quickly as he slipped under, he slipped back into reality.
+
+"Who are you?" he demanded, "...I-I have nothing to give – go away!"
 
 He turned and shuffled away from us with his hand still holding the back of his head. A fit of violent coughing overcame him as if he had been struggling to hold it in and he was forced to rest against a boulder to regain his breath, still holding his free hand out to ward us off.
 
-"Leave me be," he begged, almost whispering.
+"Leave me be," he growled, almost whispering.
 
 Pomri was insistent. She approached him, trying to reassure him that she was not there for malice. But he refused her, curling up into himself. With each refusal, she broke down a little bit more until she finally knealt before him and wept. At a safe distance, he resumed his nodding and gesticulating, a hand still behind his head.
 
@@ -79,8 +87,6 @@ I hesitated, confused for a moment.
 "Won't work. What do you mean?"
 
 "Kanosin... can reverse death. But memories..."
-
-<!-- Would Linyu know this? Hae mother is Casra... -->
 
 She spoke in earnest, "He can make new memories. In a new life. One without pain."
 
@@ -283,9 +289,9 @@ She took a deep breath and flipped the page.
 Obscura Observation + 2to 3la 8na
 Jesse,
 
-I've double-checked my calculations and assumptions, and they must be correct. I still can't wrap my head around it.
+I've double-checked my calculations and assumptions, and they must be correct. I still struggle to wrap my head around the immensity of the time scales we're dealing with.
 
-The obscura must be aware of what they're doing. But what is their ultimate goal? We must get this information out as quickly as possible, so I'm leaving to find you.
+The obscura must be aware of what they're doing. We must get this information out as quickly as possible, so I'm leaving to find you.
 
 -Thimlu
 
@@ -302,9 +308,9 @@ Lab Note
 
 Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
 
-I've devised a projection of what will happen to Ara if the temperature continues to rise. My prior hypothesis was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough to push against the obscura. We could never survive that long, but the obscura...
+I took your advice and devised a projection of what would happen to Ara if the obscura is actually a sphere instead of the disc that the Holragi observers seem to report. Your hypothesis was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough to push against the obscura. I am just an apprentice observer, not an engineer, but if I were to make a hypothesis, there will be a sharp runoff of stellar wind pressure until it reaches a breaking point at which no material of that temperature could withstand the tension, and the obscura will break. The exact timing of this depends on how the obscura is constructed: if it has trussing, the thickness of the panels. Regardless, once this happens, it will send the obscura hurtling away from Ara at an unimaginable speed. And doubtless, this would send a flurry of radiation to Palinan.
 
-I am just an apprentice observer, not an engineer, but if I were to make a hypothesis, there will be a breaking point at which pressure from the surface gasses will build and build until it forces the obscura apart and send a flurry of radiation to Palinan. But ka'tova? Nothing could survive nearly a hundred lifetimes without Ara. It's inconceivable.
+Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara. It's inconceivable.
 
 -Thimlu
 
@@ -315,7 +321,7 @@ I am just an apprentice observer, not an engineer, but if I were to make a hypot
 
 "A hundred lifetimes," I said, struggling to imagine a time so vast.
 
-Pomri wasn't having it. She stuffed the notes back into the envelope and removed the ultraviolet filter, reverting the projector to its old, normal state. Its light seemed to illuminate the desk much more after being in dim light for a while, casting shadows of ourselves upon the walls.
+But Pomri seemed agitated, angry almost. She stuffed the notes back into the envelope and removed the ultraviolet filter, reverting the projector to its old, normal state. Its light seemed to illuminate the desk much more after being in dim light for a while, casting shadows of ourselves upon the walls.
 
 "We found the message. Let's go back to Ulukoma."
 

@@ -250,9 +250,11 @@ Fajro turned away fom Melna and spoke to me at a softer volume so Melna couldn't
 
 "I can't see very far," I told the truth.
 
-"What is it, you've got blurry vision?"
+"What's the matter with your vision?"
 
-"Yes."
+"It's blurry, sir."
+
+He was doubtful, but continued with me.
 
 "Just tell me what you can see then."
 
@@ -274,7 +276,7 @@ He took his finger off of the microphone lever and yelled across the room, "Kavv
 
 "About 720 paces, sir," thi said.
 
-He paused to take that in, disregarding my agitated silence. Under hae breath, thi was cursing as if seeing something genuinely horrifying. Melna had never known Liffa to be in such a state, and it shocked her to hear.
+He paused to take that in, disregarding my agitated silence. Under my breath, I was cursing as if seeing something genuinely horrifying. Melna had never known me to be in such a state, and it shocked her to hear.
 
 He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go."
 

@@ -1,6 +1,6 @@
 ## Chapter 27
 
-"Laen!" I called out. There was no answe, no sign. Not even his giant footsteps stuck around in the dust.
+"Laen!" I called out. There was no answer, no sign. Not even his giant footsteps stuck around in the dust.
 
 "This is the place we left him, right?" I asked. I knew it was.
 
@@ -74,7 +74,7 @@ Hae voice perked up, "You know Melna?"
 
 "Come, let's get you out into the light."
 
-"I... I am too weak to do that."
+"I... I am too weak to do that right now."
 
 "We can heal you. We have-" _We used it all._ "We can get you to a place where you'll be safe."
 
@@ -96,7 +96,9 @@ I squeezed hae hand and ran to Pomri who had already given up on finding the boa
 
 "Thi says it's gone. A man took it."
 
-"Take me."
+"A Heikoan?"
+
+"Thi didn't say."
 
 <!--
 - I want Pomri to be separated from Linyu
