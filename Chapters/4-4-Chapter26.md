@@ -344,13 +344,13 @@ Liffa Return Trajectory
 
 On 0to 4la, I traveled to Holragi at Melna's request. The agreed and checked trajectory is as follows:
 
-First Bleed Entry: Over Heiko Center, Obscura Observation + 3to 10la 7na
-Second Bleed Entry: Over Holragi-Spacerail, Obscura Observation + 3to 12la 12na
-Final Approach: Off the southern coast of Ulukoma, Obscura Observation + 4to 1la 6na
-
-Godspeed, Liffa.
+First Bleed Entry: Over Heiko Center, Obscura Observation + tova 3 10la 7na
+Second Bleed Entry: Over Holragi-Spacerail, Obscura Observation + tova 3 12la 12na
+Final Approach: Lao 2ka 3sa Off the southern coast of Ulukoma, Obscura Observation + tova 4 1la 6na
 
 - Jesse
+
+(Godspeed, Liffa)
 ```
 
 _4, 1, 6. You are not forgotten, Liffa. I'm coming for you._
