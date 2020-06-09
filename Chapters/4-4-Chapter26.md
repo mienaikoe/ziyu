@@ -267,7 +267,7 @@ This may be the last time we speak. It's been–
 
 "
 
-She paused to let a wave of sorrow come and go.
+She paused to let a wave of sorrow come and go, then continued with the last part of the note.
 
 "
 
@@ -276,7 +276,7 @@ It's been an honor, Thimlu.
 
 -Jesse
 
-(Clean the lenses!)
+(Clean the lenses while I'm gone)
 ```
 
 "
@@ -337,13 +337,23 @@ She lowered herself to me and looked intently into my eyes.
 
 While Pomri packed away a few useful supplies she found around the room, I gently set the filter on the table and found a nearly unused swatch of soft fabric I had found at another desk. Before putting it away, I noticed that a black dot had emerged in one of the circles, drifting from one side of the circle to another, small enough to be easily missed.
 
-Reluctantly, I called to Pomri, who mustered the patience to look at what I had to share.
+"Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. I turned the envelope over in my hands, thinking this would be the lens Jesse used to track Liffa, and sure enough I saw a note scribbled at the bottom in regular black ink - barely visible except at an angle of reflection.
 
-I asked, "Is this...?"
+```
+Liffa Return Trajectory
 
-"Liffa," she said as a genuine smile lifted her lips without her authority. "Jesse, that bastard. Always did have an eye on hae."
+On 0to 4la, I traveled to Holragi at Melna's request. The agreed and checked trajectory is as follows:
 
-"Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. "You are not forgotten. I'm coming for you."
+First Bleed Entry: Over Heiko Center, Obscura Observation + 3to 10la 7na
+Second Bleed Entry: Over Holragi-Spacerail, Obscura Observation + 3to 12la 12na
+Final Approach: Off the southern coast of Ulukoma, Obscura Observation + 4to 1la 6na
+
+Godspeed, Liffa.
+
+- Jesse
+```
+
+_4, 1, 6. You are not forgotten, Liffa. I'm coming for you._
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 

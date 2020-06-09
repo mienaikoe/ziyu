@@ -58,7 +58,7 @@ The maman didn't move, but I drew closer and knealt by hae side.
 
 I interjected excitedly, "Ginnu! It's you! What do you mean came before?"
 
-"Ginnu died and is forgotten. I am _Annui_, one without a name."
+"Ginnu died and is forgotten. I am _Anu_, one without a name."
 
 Curiosity took hold of my body, and moved me closer to hae. Immediately, I noticed the pendant around hae neck.
 
@@ -70,9 +70,9 @@ Hae voice perked up, "You know Melna?"
 
 "What happened to her?" thi asked in a subdued sort of excitement.
 
-"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them to a place on hae abdomen. My fingers traced a wound, long but shallow, and healing poorly. It would certainly become infected.
+"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them to a place on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, and saw inside of hae body and imagined hae voice as my own. _No organs below the laceration, but it would certainly become infected without treatment._
 
-"Come, let's get you out into the light."
+"Come," I said, still speaking , "Let's get you out into the light."
 
 "I... I am too weak to do that right now."
 
@@ -80,25 +80,29 @@ Hae voice perked up, "You know Melna?"
 
 "Nowhere is safe."
 
-"There is such a place," I reassured hae, "It's hidden, in the darkness, where none but the damned dare venture."
+"There is such a place," I reassured hae, "It's hidden, in the darkness. Heiko wouldn't know to go there."
 
-Thi smirked and said, "If you've come to take me to the underworld, I've already been there. And I'm not going back."
+Thi smirked and said, "If you've come to take me back to the underworld, know that I'm not going back."
 
-I didn't fully understand hae, but thi smiled at me anyway, and said, "Take me there, young maman."
+<!-- Linyu wants to save Liffa, but doesn't know how. Maybe a good place to separate Pomri and Linyu?  -->
+
+I didn't fully understand hae, but thi smiled at me anyway, and said, "Take me to this place, young maman."
 
 _Maman._
 
-I squeezed hae hand and ran to Pomri who had already given up on finding the boat.
+I squeezed hae hand and ran to Pomri who had all but given up on finding the boat.
 
 "Pomri, there is a maman in the cove that needs our help."
 
-"Does thi know where our boat is?"
+"The one that had Laen. Does thi know where our boat is?" she asked nonchalantly.
 
-"Thi says it's gone. A man took it."
+"Thi says it's gone. A man took it. Stabbed hae "
 
-"A Heikoan?"
+The mystery was enough to pull her attention away from the ocean for a moment and look at me in disbelief.
 
-"Thi didn't say."
+"Was thi lying?"
+
+"Thi has the stab wounds to prove it."
 
 <!--
 - I want Pomri to be separated from Linyu
