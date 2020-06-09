@@ -84,6 +84,8 @@ Hae voice perked up, "You know Melna?"
 
 Thi smirked and said, "If you've come to take me back to the underworld, know that I'm not going back."
 
+It took a moment for me to realize what thi was referring to.
+
 <!-- Linyu wants to save Liffa, but doesn't know how. Maybe a good place to separate Pomri and Linyu?  -->
 
 I didn't fully understand hae, but thi smiled at me anyway, and said, "Take me to this place, young maman."

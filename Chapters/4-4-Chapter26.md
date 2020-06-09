@@ -342,18 +342,18 @@ While Pomri packed away a few useful supplies she found around the room, I gentl
 ```
 Liffa Return Trajectory
 
-On 0to 4la, I traveled to Holragi at Melna's request. The agreed and checked trajectory is as follows:
+On Obscura tova 0.9, I inspected the spacerail and The agreed and checked trajectory is as follows:
 
-First Bleed Entry: Over Heiko Center, Obscura Observation + tova 3 10la 7na
-Second Bleed Entry: Over Holragi-Spacerail, Obscura Observation + tova 3 12la 12na
-Final Approach: Lao 2ka 3sa Off the southern coast of Ulukoma, Obscura Observation + tova 4 1la 6na
+First Bleed Entry: Over Heiko Center, Obscura + tova 3.10.7
+Second Bleed Entry: Over Holragi-Spacerail, Obscura + tova 3.12.12
+Final Approach: Lao 2ka Off the Ulu coast of Ulukoma, Obscura + tova 4.1.6
 
 - Jesse
 
 (Godspeed, Liffa)
 ```
 
-_4, 1, 6. You are not forgotten, Liffa. I'm coming for you._
+_4.1.6. You are not forgotten, Liffa. I'm coming for you._
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 
