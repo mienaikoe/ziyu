@@ -95,7 +95,7 @@ She eyed one of the ampules in my hand. I held it in my hand with much deliberat
 
 I hesitated, remembering my mother's strict instruction not to tell anyone the truth about Kanosin. But I felt that I could trust Pomri.
 
-"It's a chemical. From volcanic kelp."
+"It's a compound. From kelp."
 
 "Yes but... what does it actually do?"
 

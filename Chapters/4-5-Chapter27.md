@@ -56,9 +56,9 @@ The maman didn't move, but I drew closer and knealt by hae side.
 
 "The one that came before me was named Ginnu."
 
-I interjected excitedly, "Ginnu! It's you! What do you mean came before?"
+I interjected excitedly, "Ginnu! You disappeared after the battle. What happened to you?"
 
-"Ginnu died and is forgotten. I am _Anu_, one without a name."
+"Ginnu died and is forgotten. I am _Annu_, one without a name."
 
 Curiosity took hold of my body, and moved me closer to hae. Immediately, I noticed the pendant around hae neck.
 
@@ -70,41 +70,61 @@ Hae voice perked up, "You know Melna?"
 
 "What happened to her?" thi asked in a subdued sort of excitement.
 
-"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them to a place on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, and saw inside of hae body and imagined hae voice as my own. _No organs below the laceration, but it would certainly become infected without treatment._
+"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them underneath a layer of kelp on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, looked inside the body with my mind, imagined hae voice present through my own. _Right-side filter gills are immediately below the laceration, torn. Bleeding has stopped, but hae blood is acidifying. Infection is likely. This was meant to kill hae slowly._
 
 "Come," I said, still speaking , "Let's get you out into the light."
 
-"I... I am too weak to do that right now."
+"I... I am too weak."
 
-"We can heal you. We have-" _We used it all._ "We can get you to a place where you'll be safe."
+"We can heal you. We have some vials of-" _We used it all._ "We can get you to a place where you'll be safe."
 
-"Nowhere is safe."
+"Nowhere is safe now."
 
-"There is such a place," I reassured hae, "It's hidden, in the darkness. Heiko wouldn't know to go there."
+"There is such a place," I reassured hae, "It's hidden, in the darkness. The Holragi wouldn't know to go there."
 
-Thi smirked and said, "If you've come to take me back to the underworld, know that I'm not going back."
+"The underworld..." thi looked through me as hae thoughts drifted off. "If you've come to take me back... I'm not going anywhere."
 
-It took a moment for me to realize what thi was referring to.
+_Underworld?_
 
-<!-- Linyu wants to save Liffa, but doesn't know how. Maybe a good place to separate Pomri and Linyu?  -->
+"I don't know of any underworld. Only of Ulukoma. There are many doctors there that can help you."
 
-I didn't fully understand hae, but thi smiled at me anyway, and said, "Take me to this place, young maman."
+"Doctors have no business with the dead."
 
-_Maman._
+"And you aren't dead."
 
-I squeezed hae hand and ran to Pomri who had all but given up on finding the boat.
+Thi looked at me with cold, untrusting eyes. _What happened to you, Ginnu?_
+
+With trepidation in hae voice, thi made an agreement, "I will go with you if you promise me something, young maman."
+
+_Maman... I'd never been called that._
+
+I bowed my head curtly in confirmation.
+
+"That man that stole your boat. That tried to kill me. His name is Ramne."
+
+_Damn him._
+
+She continued, "If you see him, or hear of him. Run. Go far far away and never come back."
+
+"What about you?"
+
+"You heard me."
+
+Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? I cast the thoughts out of my mind, and regained focus.
+
+"I'll be right back," I said, and ran to Pomri who had all but given up on finding the boat.
 
 "Pomri, there is a maman in the cove that needs our help."
 
-"The one that had Laen. Does thi know where our boat is?" she asked nonchalantly.
+"The same one that looked after Laen, I presume. Does thi know where our boat is?" she asked nonchalantly.
 
-"Thi says it's gone. A man took it. Stabbed hae "
+"A man named Ramne took it. But-"
 
 The mystery was enough to pull her attention away from the ocean for a moment and look at me in disbelief.
 
-"Was thi lying?"
+"A man? There's someone else out here?"
 
-"Thi has the stab wounds to prove it."
+"Thi has a huge gash on hae abdomen. Thi needs disinfectant and a bicarb tonic."
 
 <!--
 - I want Pomri to be separated from Linyu
