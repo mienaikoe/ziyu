@@ -48,29 +48,33 @@ A shiver filled my bones, turning me around to find the source. The blue light o
 
 "Who's asking?"
 
-I made a heavy gulp.
-
-"I'm just scared is all."
+"L-Linyu. My name is Linyu."
 
 The maman didn't move, but I drew closer and knealt by hae side.
 
-"The one that came before me was named Ginnu."
+Thi introduced herself, "The one that came before me was named Ginnu."
 
 I interjected excitedly, "Ginnu! You disappeared after the battle. What happened to you?"
 
 "Ginnu died and is forgotten. I am _Annu_, one without a name."
 
-Curiosity took hold of my body, and moved me closer to hae. Immediately, I noticed the pendant around hae neck.
+My curiosity noticed a pendant around hae neck, moved me closer to see it.
 
-"You knew... Melna?"
+"You knew... Melna?" I asked.
 
 Hae voice perked up, "You know Melna?"
 
-"Yes! She saved me when I woke up in a strange place..."
+"Yes! She took me in when I woke up in Heiko..."
 
 "What happened to her?" thi asked in a subdued sort of excitement.
 
-"Is something the matter?" I asked, changing the subject. And in a slow gesture, thi grasped my hands with hae own and moved them underneath a layer of kelp on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, looked inside the body with my mind, imagined hae voice present through my own. _Right-side filter gills are immediately below the laceration, torn. Bleeding has stopped, but hae blood is acidifying. Infection is likely. This was meant to kill hae slowly._
+A brief glimpse of her death flashed in my mind, and all the myriad emotions that went with it, crammed into a moment. Ginnu saw my stare, heard my silence, and knew.
+
+"She prepared her people for what was to come. Bought us time to save most of them."
+
+In a slow gesture, thi grasped my hands with hae own and held silence between our palms.
+
+"Is something the matter?" I asked, changing the subject. And with the same gentle movement, thi led my fingers underneath a layer of damp kelp on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, looked inside the body with my mind, imagined hae voice present through my own. _Right-side filter gills are immediately below the laceration, torn. Bleeding has stopped, but hae blood is acidifying. Infection is likely. This was meant to kill hae slowly._
 
 "Come," I said, still speaking , "Let's get you out into the light."
 
@@ -122,9 +126,25 @@ Hae memories were shrouded from me but haunted me nevertheless. What deed so ter
 
 The mystery was enough to pull her attention away from the ocean for a moment and look at me in disbelief.
 
-"A man? There's someone else out here?"
+"A man? There was someone else out here?"
 
 "Thi has a huge gash on hae abdomen. Thi needs disinfectant and a bicarb tonic."
+
+"And we need a boat."
+
+"Are you listening to yourself?" I said, incredulous. "A maman is on the verge of death and you're raving about a boat."
+
+"How do you think we'll be able to help hae without one?"
+
+"You could start by giving hae some hope."
+
+She looked at me as if to see me for the first time.
+
+"You remember what I said on that crater. Nobody here will survive. As much as we want to help them, it's a lost cause."
+
+"And you would abandon someone to make sure you're right?"
+
+"To make sure you and I survive? I absolutely would. A maman on hae deathbed is dead weight."
 
 <!--
 - I want Pomri to be separated from Linyu

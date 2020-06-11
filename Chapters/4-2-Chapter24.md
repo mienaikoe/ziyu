@@ -84,7 +84,7 @@ Ara. I didn't give it much thought before; it was a clock, a direction, a fixtur
 
 I nodded and she turned back forward to resume her posture.
 
-She told me over her shoulder, "we're entering a dangerous place. There may be looters or Holragi soldiers searching for survivors. The land itself may be fragile and broken. You'll have to keep your wits about you at all times."
+She told me over her shoulder, "We're entering a dangerous place. There may be looters or Holragi soldiers searching for survivors. The land itself may be fragile and broken. You'll have to keep your wits about you at all times."
 
 "Got it," I said. _I hope I do._
 
@@ -94,7 +94,7 @@ She told me over her shoulder, "we're entering a dangerous place. There may be l
 
 "Push through if you can. The time we have to rescue people is wearing thin."
 
-My resolve was affirmed with a nod. There was no turning back.
+I nodded and my resolve was affirmed. There was no turning back.
 
 A firm command from Pomri, and we took up our paddles again, resuming the slow cadence of wood against the water.
 
