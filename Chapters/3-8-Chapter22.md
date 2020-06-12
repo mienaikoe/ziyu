@@ -34,7 +34,7 @@ He immediately shot her a scowl and said, "You'll learn to keep your mouth shut,
 
 "You're one to speak. Heiko is practically one giant Paosin den."
 
-"Because we keep track of every one of them instead of sweep them under the rug."
+"We take care of every one instead of sweep them under the rug."
 
 "Oh yea? And how does that help anything?"
 
@@ -48,7 +48,9 @@ She had no time to come up with a response, so he continued.
 
 The small craft came to against the sand, minor scraping sounds echoing through the thick metal shell. "We're here," said Fajro, and one of the pilots began turning a knob to unblock the door that had been leaking on Melna. She thanked the pilot, to which thi gave a vacant glance and turned back to hae seat in the front of the cabin. The door lifted with some resistance, and she emerged a few paces from the shore on a beach near Heiko harbor.
 
-She quickly found that she was not alone. Nearly sixty other ships like theirs had landed on the shore and unleashed their Holragi occupants, all of them armed with guns and covered with zaikara hard feather armor. A mechanical hum added to the commotion as Fajro emerged behind her and quickly joined her. He had a smile on his face as he watched his soldiers storming the city.
+She quickly found that she was not alone. Nearly sixty other ships like theirs had landed on the shore and unleashed their Holragi occupants, all of them armed with guns and covered with zaikara porous feather armor. It was thicker than she imagined for a people that preferred the outskirts of the desert. She had heard stories of the usefulness of extra water layers against the heat and radiation. Perhaps they were true.
+
+A mechanical hum added to the commotion as Fajro emerged behind her and quickly joined her. He had a smile on his face as he watched his soldiers storming the city.
 
 "You've certainly brought some friends with you."
 

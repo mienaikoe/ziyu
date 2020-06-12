@@ -94,9 +94,11 @@ The newest figure consulted with the speaking shadow, and she said, "Only the fi
 
 "That's not good enough."
 
-The two shadows spoke again and she responded, "You have one minute to comply or your boat is sunk."
+The two shadows spoke again and she responded, "You have one minute to comply or your ship will be laid to rest."
 
-The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Maybe they had a way to fetch Melna after they sunk the ship. Her words were becoming truer with each passing minute and thi was scared of what that might mean. A rather anxious member of the crew approached her and said, "What are you doing? Send her up!"
+The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Maybe they had a way to fetch Melna after they sunk the ship. Her words were becoming truer with each passing minute and thi was scared of what that might mean.
+
+A member of the crew approached her. "What are you waiting for?" he said, anxiously. "Send her up!"
 
 "Hold on," Shinna said calmly to him, and turned to address the silhouettes once more.
 
@@ -122,7 +124,7 @@ Thi ducked and scrambled for Melna and a great blast cracked the air above them.
 
 "Come, Melna," he gestured toward the hole he came out of. "We have much to discuss."
 
-She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holrag soldiers before her. Fajro smiled as he looked her up and down. The way he would look at a prize-winning saffa.
+She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holrag soldiers before her. Fajro smiled as he looked her up and down the way he might inspect a prize-winning saffa.
 
 "You look like you turn a few heads in the senate," he said, eyeing her up and down. "It's a shame we never worked together."
 
@@ -130,7 +132,7 @@ She looked back to make sure Shinna descended back to the safety of hae ship, th
 
 His frown took a moment to form, and then he sighed and changed the subject, "Shall we?" as he gestured with his cane toward a plaform covering the hole in the tower they had come out of. Without protest, she stepped upon it with Fajro soon after and they descended into the belly of that mechanical beast.
 
-The inside was a maze of tunnels with double doors at nearly every twenty paces. The walls were lined with stale yellow incandescent bulbs that brought its warmth neither to the oiled steel walls nor to the grey worn wood that made up the floor. They were cheap imitations of Ara that were nothing like the original. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
+The inside was a maze of tunnels with double doors at nearly every twenty paces, and walls lined with stale yellow incandescent bulbs that brought its warmth neither to the greased steel walls nor to the grey worn wood that made up the floor. They were cheap imitations of Ara-light that were nothing like the original. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
 
 The static on her listener had dulled to a whisper as Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction. But after much wandering they arrived at a large room with several people sitting at desks of knobs and buttons with wired listeners fastened to both of their ears and a protrusion on one side for what seemingly looked like a microphone. She wondered at the utility of the knobs and buttons, but knew that they were likely listening to a much more sophisticated permutation of what was around her own ear.
 

@@ -116,10 +116,73 @@ She continued, "If you see him, or hear of him. Run. Go far far away and never c
 
 Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? I cast the thoughts out of my mind, and regained focus.
 
-"I'll be right back," I said, and ran to Pomri who had all but given up on finding the boat.
+<!--
 
-"Pomri, there is a maman in the cove that needs our help."
+Decision point
+- Shinna's ship can fit all three of them
+- Laen can swim, but not in ice?
 
+- They go to Rudjan to find a ship
+- Setre lands to find them
+  - Lands in wrong place, assumes they'd go to Rudjan first?
+  - Lands in right place,
+
+- Pomri gets captured by Holragi
+  - Ramne tipped them off
+  - Can tell Liffa where to go after landing
+  - Can be interrogated about Ulukoma / Kanosin
+  - Paosin used to generate truth through a fabricated scenario
+
+- If Pomri helps Annu, the three go back on Shinna's ship
+- If Pomri doesn't help Annu, Linyu has to make a decision
+
+-->
+
+"I'll be right back," I said, and ran to Pomri who had surely not given up looking for the boat.
+
+"Pomri?"
+
+I called, but neither heard nor saw her. Perhaps she was further out than I thought.
+
+"Pomriii!"
+
+I began to pace across the pebbles and sand, to look for some trace of her or to calm my nerves, but saw and heard no sign.
+
+_Did she leave without me?_
+
+Such cynicism in my thoughts suprised me.
+
+_Would Pomri do such a thing? Would she have gone back alone? Setre wouldn't hesitate to kill her._
+
+Then the manic anxiety took hold and I began to doubt one thing after another.
+
+_Maybe she was a Holragi spy and she's finished her job. No, she couldn't be. She wouldn-_
+
+But then my eye caught a blue light on the pebbles. An eddy of kanosin within a puddle of hydroderm and blood.
+
+_An accident while moving a secret boat? No- a struggle. How had I not heard this?_
+
+I took a deep breath and sat before the puddle. Drowning my thoughts in its patterns. I didn't want them anymore.
+
+"Ginnu... Annu," I said aloud to myself. "Thi needs me. I can't do this right now."
+
+Another deep breath and I whisked myself back around toward the cove. I had walked much further away than I had realized.
+
+"G- Annu," I addressed hae keeping my voice as stable as I could, "we have to go. Pomri is gone."
+
+"Gone? Gone where?"
+
+"I don't know. I just found some blood and-," I stopped and fell to my feet in front of hae, and thi reached out to hold me in hae arms. At the time, I hadn't thought of the pain it took to lean forward with a wound so deep.
+
+Thi tried to comfort me, "Linyu, this world is full of chaos. We've both been pawns to greater forces."
+
+Hae hands rubbed my back to console me.
+
+"Perhaps it's time we overthrew them."
+
+I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+
+<!--
 "The same one that looked after Laen, I presume. Does thi know where our boat is?" she asked nonchalantly.
 
 "A man named Ramne took it. But-"
@@ -145,6 +208,7 @@ She looked at me as if to see me for the first time.
 "And you would abandon someone to make sure you're right?"
 
 "To make sure you and I survive? I absolutely would. A maman on hae deathbed is dead weight."
+-->
 
 <!--
 - I want Pomri to be separated from Linyu
