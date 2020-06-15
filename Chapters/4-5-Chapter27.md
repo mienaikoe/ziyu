@@ -158,7 +158,7 @@ Then the manic anxiety took hold and I began to doubt one thing after another.
 
 _Maybe she was a Holragi spy and she's finished her job. No, she couldn't be. She wouldn-_
 
-But then my eye caught a blue light on the pebbles. An eddy of kanosin within a puddle of hydroderm and blood.
+But then my eye caught a blue light on the pebbles. An eddy of kanosin within an undisturbed puddle of water and blood. And a large divot in the pebbles around it.
 
 _An accident while moving a secret boat? No- a struggle. How had I not heard this?_
 
@@ -172,15 +172,19 @@ Another deep breath and I whisked myself back around toward the cove. I had walk
 
 "Gone? Gone where?"
 
-"I don't know. I just found some blood and-," I stopped and fell to my feet in front of hae, and thi reached out to hold me in hae arms. At the time, I hadn't thought of the pain it took to lean forward with a wound so deep.
+"I don't know. I just found some blood and-," I stopped and fell to my feet in front of hae. Thi reached out to hold me in hae arms, swallowing the pain in her side; her breath, slow and belabored, tickling the back of my shoulder.
 
-Thi tried to comfort me, "Linyu, this world is full of chaos. We've both been pawns to greater forces."
+"Be still, maman. Quiet your mind."
 
-Hae hands rubbed my back to console me.
+She calmed me with the sound of her voice and the feel of her warmth. The sound of distant waves and tiny plops of water filled my mind, carried me away to the depths of my mind.
 
-"Perhaps it's time we overthrew them."
+"Your hearts are full," thi said running hae fingers through my hair. Hae voice was like a pool of warm water in the frozen air.
 
-I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+"You care for her. For Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time. But first you must lead yourself to the right answer."
+
+Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away. I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind. The way her hand would have moved in the dark, pushing a boat out to sea, never thinking twice about going back. I knew then that I had misjudged her.
+
+"Pomri would never make such a clumsy mistake. And she wouldn't leave me behind. Pomri was taken."
 
 <!--
 "The same one that looked after Laen, I presume. Does thi know where our boat is?" she asked nonchalantly.
