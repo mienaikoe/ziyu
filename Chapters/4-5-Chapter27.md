@@ -30,19 +30,27 @@ I weighed the options, and realized she was right. Being captured or killed woul
 
 ---
 
-Pomri took one look at the shore near the cove and knew that something was amiss. There seemed to be a distinct and imprecise absence of rock and sand, as if a struggle had taken place here.
+Pomri took one look at the shore near the cove and knew that something was amiss. There seemed to be a distinct and imprecise absence of rock and sand, as if a struggle had taken place.
 
 "No," she said, worried. "No. Not the boat."
 
-She lit her lantern quicker than I thought it could be done and entered the cove ahead of me.
+She lit her lantern with haste and checked the area for evidence of movement.
+
+"A path has been carved out of the land here. And look!"
+
+She pointed to a trail of blood with light specks of kanosin that led into the cove.
+
+_Specks? Peculiar._
+
+I kneeled down to get a closer look, and before I noticed, she entered the cove. I had to follow.
 
 "This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of algae running down into the water. It was clear it had been stolen.
 
-"DAMMIT!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. She was long gone when a strange but familiar voice spoke in the cove.
+"DAMN IT ALL!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. Again I took off following her, but I noticed something strange in the distance. A dull surface when all else was shining and wet from the light on my legs. As I approached, a strange but familiar voice spoke in the cove.
 
 "I tried to stop him," thi said.
 
-A shiver filled my bones, turning me around to find the source. The blue light on my legs revealed the figure of a maman a few paces from me. In dark and tattered clothes. The same one we encountered when we arrived.
+My bones shivered as I froze in place, and the figure of a maman appeared a few paces from me where the dullness had been. Thi was in dark and tattered clothes that matched the ones on the maman who fled when we arrived.
 
 "Tried to stop who? Who are you?"
 
@@ -182,9 +190,33 @@ She calmed me with the sound of her voice and the feel of her warmth. The sound 
 
 "You care for her. For Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time. But first you must lead yourself to the right answer."
 
-Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away. I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind. The way her hand would have moved in the dark, pushing a boat out to sea, never thinking twice about going back. I knew then that I had misjudged her.
+Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away. I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind. The way her hands would have moved in the dark, pushing a boat out to sea.
 
-"Pomri would never make such a clumsy mistake. And she wouldn't leave me behind. Pomri was taken."
+"Pomri would never make such a clumsy mistake," I said calmly. "And she would never leave me behind. Pomri was taken."
+
+The frantic feeling I had before resurfaced, charged with with a mix of anger and fear.
+
+"They're still out there, hunting us down," I said, standing up. I couldn't help but to pace around in a circle holding my head.
+
+"A peaceful people have been framed and murdered just for dissenting. This is indefensible!"
+
+I screamed so loud that my voice reverberated through the cavern walls.
+
+"What do we do?" I asked hae.
+
+A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. My heart needed no enticement to soften.
+
+"Laen. Boon," I said aloud as they came to Annu's side.
+
+Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It energized us just enough to not want to end it all.
+
+"Linyu, this world is full of chaos," thi said, "All of us have been caught in an undercurrent of deception. Of deranged forces vying for the last surviving bits of power. And people who would kill everyone in order to save themselves for one more day."
+
+I silently agreed.
+
+"Perhaps it's time we overthrew them."
+
+I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
 <!--
 "The same one that looked after Laen, I presume. Does thi know where our boat is?" she asked nonchalantly.
