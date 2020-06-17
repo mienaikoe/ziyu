@@ -102,11 +102,15 @@ _Underworld?_
 
 "Doctors have no business with the dead."
 
-"And you aren't dead."
+"But you aren't dead."
 
-Thi looked at me with cold, untrusting eyes. _What happened to you, Ginnu?_
+Thi looked at me with cold, untrusting eyes.
 
-With trepidation in hae voice, thi made an agreement, "I will go with you if you promise me something, young maman."
+"I was born in the darkness, where life and death have lost their meaning. I was a ghost there, one of millions. But He... he brought me back somehow."
+
+My breaths were shallow with a terrified imagination.
+
+"I cannot bring myself to go back to that place," she said with trepidation, "But I will go with you if you promise me something, young maman."
 
 _Maman... I'd never been called that._
 
@@ -116,35 +120,13 @@ I bowed my head curtly in confirmation.
 
 _Damn him._
 
-She continued, "If you see him, or hear of him. Run. Go far far away and never come back."
+She continued, "He's the one that brought me back. If you see him, or hear of him. Run. Go far far away and never come back."
 
 "What about you?"
 
 "You heard me."
 
 Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? I cast the thoughts out of my mind, and regained focus.
-
-<!--
-
-Decision point
-- Shinna's ship can fit all three of them
-- Laen can swim, but not in ice?
-
-- They go to Rudjan to find a ship
-- Setre lands to find them
-  - Lands in wrong place, assumes they'd go to Rudjan first?
-  - Lands in right place,
-
-- Pomri gets captured by Holragi
-  - Ramne tipped them off
-  - Can tell Liffa where to go after landing
-  - Can be interrogated about Ulukoma / Kanosin
-  - Paosin used to generate truth through a fabricated scenario
-
-- If Pomri helps Annu, the three go back on Shinna's ship
-- If Pomri doesn't help Annu, Linyu has to make a decision
-
--->
 
 "I'll be right back," I said, and ran to Pomri who had surely not given up looking for the boat.
 
@@ -196,17 +178,19 @@ Thi let me go, and I followed, knealing before hae with my face still covered wi
 
 The frantic feeling I had before resurfaced, charged with with a mix of anger and fear.
 
-"They're still out there, hunting us down," I said, standing up. I couldn't help but to pace around in a circle holding my head.
+"They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts.
 
-"A peaceful people have been framed and murdered just for dissenting. This is indefensible!"
+"All of Heiko has been exiled, enslaved, murdered. They didn't want to live their last days in the shadow of a tyrant. So the Holragi erased them."
 
-I screamed so loud that my voice reverberated through the cavern walls.
+My legs gave way and I fell to my knees.
 
-"What do we do?" I asked hae.
+"Pomri!" I cried for her and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on.
 
-A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. My heart needed no enticement to soften.
+I asked, "What do we do?"
 
-"Laen. Boon," I said aloud as they came to Annu's side.
+A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
+
+"Laen. Boon," I said aloud as they came into the light. Laen nuzzled me while Boon-Boon laid her head in Annu's lap.
 
 Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It energized us just enough to not want to end it all.
 
@@ -214,9 +198,43 @@ Thi gently propped haeself up and cleared hae throat. There was a sense in that 
 
 I silently agreed.
 
-"Perhaps it's time we overthrew them."
+"Perhaps it's time we fought back."
 
 I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+
+<!--
+- Pomri is captured by the Holragi
+  - Leave this for a future book
+
+- How will they overthrow???
+  - Annu wants to kill Ramne
+  - Holragi needs to announce an heir
+    - Linyu will target the heir at first
+  -
+
+
+-->
+
+<!--
+Decision point
+- Shinna's ship can fit all three of them
+- Laen can swim, but not in ice?
+
+- They go to Rudjan to find a ship
+- Setre lands to find them
+  - Lands in wrong place, assumes they'd go to Rudjan first?
+  - Lands in right place,
+
+- Pomri gets captured by Holragi
+  - Ramne tipped them off
+  - Can tell Liffa where to go after landing
+  - Can be interrogated about Ulukoma / Kanosin
+  - Paosin used to generate truth through a fabricated scenario
+
+- If Pomri helps Annu, the three go back on Shinna's ship
+- If Pomri doesn't help Annu, Linyu has to make a decision
+
+-->
 
 <!--
 "The same one that looked after Laen, I presume. Does thi know where our boat is?" she asked nonchalantly.

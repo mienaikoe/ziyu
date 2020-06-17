@@ -28,11 +28,11 @@ She approached the stable, calling, "Laen-Laen," but she heard nothing. She chec
 
 She panicked and called again, louder and further than before, "Laen-Laen!"
 
-There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's ziyu tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
+There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
 
-"Why are you all the way out here, Linyu?" She asked before seeing Linyu curled up between Linyu's stretching legs and beginning to awaken. The wooden listener was still on hae ear.
+"Why are you all the way out here, Linyu?" She asked him. Linyu was curled up between Laen's stretching legs, beginning to awaken. The wooden listener was still on hae ear.
 
-"Linyu, what are you doing out here?"
+"Linyu," she hastened.
 
 Thi started to talk but remembered the pain in hae throat as only a whisper emerged. Thi cleared it gently and tried again.
 

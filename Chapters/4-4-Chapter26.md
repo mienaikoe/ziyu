@@ -130,11 +130,13 @@ With one hand, she broke off the long piece of wood that said _eik_ and cut it i
 
 "Come on," she said. "The quicker we move, the quicker we rest."
 
-My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of chairs and beds and we reached a arrangement.
+My legs ached twice as much when I presented them with the idea of walking upward, but I regaled them with thoughts of soft chairs and warm beds and we reached a arrangement.
 
-The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. It was the absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. I followed behind Pomri, using her as my motivation to push through the aches in my legs and feet. A few times, We paused for Pomri to take a break and change how she carried Jesse.
+The mountain was dead save for a few blots of shrubbery that grew in the crevasses facing Ara. They were on their way out. The absence of wind is what took me by surprise. No cold bites or violent gusts. Just stagnant air and the dust that hung upon it. Ahead of Pomri, my legs lit the way. In a way, her presence behind me was my motivation to push through the aches in my legs and feet. I feared her anger.
 
-"The mountain was shorter a day ago," she said, resentful.
+At a wide area of the cliff, we paused for Pomri to take a break and change her carry.
+
+"The mountain was shorter a day ago," she said, as she laid Jesse down with the gentlest of movements.
 
 I was confused. "Shorter? How?"
 
@@ -144,7 +146,29 @@ She chuckled as she took a sip from her canteen. "No.. It's a joke."
 
 "It's..." she sighed, "Nevermind."
 
-I spent the rest of the climb imagining how a mountain could grow overnight.
+I pondered how a mountain could grow overnight. _Pomri is so weird._
+
+The view from up here was clear, facing to the south, toward the bay and eventually Holrag. I could see patterns in the land: rocks that had tumbled across the landscape, carving lines and divots that all met at the center of the crater. There were some trees dotting the land between farms, but a particular tree caught my attention. It stood tall, guarded from the blast by the hill and home adjacent. Its branches grew wide in a semihemisphere with leaves that were densely packed though many had begun to fall. I knew the patterns of this one when I had met Melna.
+
+"Pomri, is that where Melna lives?" I pointed to the place in question.
+
+She looked for it for a moment and understood what I was pointing toward.
+
+"Yea! That's where she took you the night she found you. Good eye."
+
+"About Liffa... Did thi know about radio?"
+
+"Radio? No, no one's been talking to trees that I know of. Apparently it has a song in the mornings though, when the dew is beginning to evaporate."
+
+"The mornings," I said. "My mother used to sing in the morning too when we lived in the forest."
+
+"Thing's been singing and growing for at least three generations. Looks to be even older than that. Sort of a legend in town – Glad it survived."
+
+With the same gentleness she had shown him before, she took Jesse upon her back while I stared at the tree.
+
+"Oi. Come on," she beckoned.
+
+---
 
 The observatory was not as I expected it. There were no windows to be broken or walls to be split. It had been built into the ground, or perhaps the ground had been built around it. A set of three large metallic hatches protruded from the ground on the side facing Ara, closed to the elements. On the Ulu-side was a simple-looking wooden entryway with a wooden bell hung from a thick rope. Whether out of habit or the desire for some normalcy, Pomri jostled the wooden bell three times. Eager to rest, I lifted the latch and opened the door before she could finish her announcement of arrival.
 
