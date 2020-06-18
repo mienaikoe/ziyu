@@ -103,7 +103,9 @@ Melna expressed her concern, "Bavle, will you be–"
 
 "I see," said Melna.
 
-Pomri approached and rose her left arm to Bavle, who hooked her own around it. They stood staring at each other for a moment in solidarity and then loosened their stances to let each other go. Following behind Pomri, Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle in wonder about her face, her story, or whether thi could trust her. But Melna peered into hae blue eyes like flames in the twilight, scratched a bit at hae back and said, "She'll be ok."
+Pomri approached and rose her left arm to Bavle, who hooked her own around it. They stood staring at each other for a moment in solidarity and then loosened their stances to let each other go. Following behind Pomri, Melna bowed in silent respect before bidding farewell to the keeper who had already turned to close the gate. Linyu's blind stare lingered on Bavle in wonder about her face, her story, or whether thi could trust her. But Melna peered into hae blue eyes, and scratched a bit at hae back.
+
+"She'll be ok," she said.
 
 <!-- Merchant's Quarter -->
 

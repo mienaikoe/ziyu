@@ -7,19 +7,53 @@
 
 ## Chapter 25
 
-Rocks. Everywhere, rocks. I would never have believed that something so simple could haunt me as much as the rocks did on the path to Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see them but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and a small oil lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
+Rocks. Everywhere. I would never have believed that something so simple could haunt me as much as the rocks did on the path to Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see them but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and a small oil lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
 
-"All these tracks are headed toward Rudjan," she said, observing carefully. "Would have been the children who couldn't swim that distance. They would have been captured by the blockade by now – never had a chance."
+"All these tracks are headed toward Rudjan," she said, observing carefully. "The children who couldn't swim that distance. They would have been captured by now – never had a chance."
 
-I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjanese soldiers comes to scoop us up. Would we be sold into slavery to work in the desert? Or killed on the spot? I decided not to answer that question right now.
+I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjanese soldiers comes to scoop us up. Would we be sold into slavery to work in the desert?
 
-"How will we know when we get to the harbor?" I asked.
+"Bavle said you were a traitor," I began. "Why did you choose to fight for Heiko?"
+
+An anxious pause suspended her mind.
+
+"They turned their backs on me. So I did the same."
+
+"What did you do?"
+
+Another pause held her.
+
+"I killed a maman."
+
+Suddenly I saw Pomri in the light of danger. I tried to imagine her killing someone and failed. But somehow the way she said it was believable. In a subtle way, too subtle for me to be aware, my muscles began to tense.
+
+Pomri explained, "A merchant. Thi wasn't a criminal by the word of the law, but thi knew how to use peoples' consciousness against each other. Thi sowed seeds of hatred amongst the merchant guild to harvest them for her own personal gain, and quickly became the most wealthy trader in Rudjan by far. The government recognized what was happening, but refused to do anything about it. They were probably getting a cut too, petty cowards."
+
+She paused to lift her mask and take a drink.
+
+"At the time I was one of five commanders of the army, the only one to openly speak out against hae. I decided to take things into my own hands. In the dark of the night, I pretended to do a customs check of hae ship. I planted paosin below deck and arrested hae under suspicion of smugglng."
+
+"But that's unlawful," I objected.
+
+"Sometimes the law isn't enough to protect us. Anyway, the magistrate investigating hae shipment ledger found no evidence of smuggling and decided to exile us both. I knew the only justice that would come for hae was my own, so I triple-dosed hae with paosin patches while thi was shackled on the ship to Ulukoma. I went to Heiko and never looked back."
+
+"How do you know thi's dead?"
+
+"I guess I don't."
+
+"Do you regret it?"
+
+"No. Thi was a menace to Rudjan. Our city would be reduced to a corporate puppet if we let hae continue."
+
+Her story didn't sit well with me, but perhaps I knew inside that something of the sort was in her past. I wondered if Melna knew this story. Perhaps Pomri was comfortable telling it now that the law had become meaningless.
+
+She quickly changed the subject.
 
 "When the road ends, we turn and continue toward Ulu."
 
-"End? Why would the..."
+"End? Wouldn't the road end in..."
 
-But the obvious answer came to me. I had imagined it as an explosion, a big fireball followed by a massive plume of smoke. But this was a giant chunk of metal, a spear the size of a boat, and it was falling – straight down, from far above the sky. I imagined its speed: faster than a train or a saffa, faster than I've ever seen anything move. I imagined it boring through the center of Palinan and coming out the other side. _It couldn't do that... right?_
+But the obvious answer came to me. I had imagined it as an explosion, a big fireball followed by a massive plume of smoke. But this was a giant chunk of metal, a spear the size of a ship, and it was falling – straight down, from far above the sky. I imagined its speed: faster than a train or a saffa, faster than I've ever seen anything move. I imagined it boring through the center of Palinan and coming out the other side. _It couldn't do that... right?_
 
 "Pomri..?"
 
