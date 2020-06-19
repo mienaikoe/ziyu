@@ -106,21 +106,43 @@ _Underworld?_
 
 Thi looked at me with cold, untrusting eyes.
 
-"I was born in the darkness, where life and death have lost their meaning. I was a ghost there, one of millions. But He... he brought me back somehow."
+"I was born in the darkness. A place where life and death no longer held any meaning. I was a ghost there, one of millions. But He... he brought me back to the world of the living."
 
-My breaths were shallow with a terrified imagination.
+My breaths were shallow with a terrified imagination of such a place.
 
-"I cannot bring myself to go back to that place," she said with trepidation, "But I will go with you if you promise me something, young maman."
+"Who, I asked."
+
+"Ramne," thi said and I felt the pores in my skin contract.
+
+"The man who stole your boat also stole death from me."
+
+"You're... immortal?"
+
+"Hardly. I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of. I did not ask to be this way."
+
+"But... you needn't fear death anymore. That's a good thing!"
+
+"Death? I fear life. Life means another death is coming."
+
+I was taken aback by what she was saying. Surely anyone with pulses in their veins would prefer eternal life. Even if it took a great deal of suffering to enjoy it.
+
+I asked hae "What do you mean by 'ghost'?"
+
+Hae eyes looked past me as if imagining a beautiful place.
+
+"I was there, with all of them. I knew I had died. And yet, I was at peace with it. It was the parasite. It keeps you barely alive and holds you in its own dream world."
+
+"That sounds amazing."
+
+Hae eyes returned their gaze to me and resumed their worryr.
+
+"I cannot bring myself to leave. Ramne is there I know it," she said with trepidation, "But I will go with you if you promise me something, young maman."
 
 _Maman... I'd never been called that._
 
 I bowed my head curtly in confirmation.
 
-"That man that stole your boat. That tried to kill me. His name is Ramne."
-
-_Damn him._
-
-She continued, "He's the one that brought me back. If you see him, or hear of him. Run. Go far far away and never come back."
+She continued, "If you see Ramne, or hear of him. Run. Run far far away and never come back."
 
 "What about you?"
 
