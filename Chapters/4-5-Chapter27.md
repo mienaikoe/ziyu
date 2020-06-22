@@ -44,9 +44,23 @@ _Specks? Peculiar._
 
 I kneeled down to get a closer look, and before I noticed, she entered the cove. I had to follow.
 
-"This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of algae running down into the water. It was clear it had been stolen.
+"This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of dark volcanic plankton running down into the water. It was clear it had been stolen.
 
-"DAMN IT ALL!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. Again I took off following her, but I noticed something strange in the distance. A dull surface when all else was shining and wet from the light on my legs. As I approached, a strange but familiar voice spoke in the cove.
+"DAMN IT ALL!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. I turned around again to follow her, but my breath gave way to exhaustion and my legs felt an ache they had never felt before. I trudged slowly to the entrance and fell to a kneal, unable to move any further. I watched on as the faint blue light in Pomri's hand bobbed and swayed with each step, receding into the evening light along the shore to Rudjan. Until it stopped.
+
+My eyes tried to focus on the blue glow as a dozen bright amber spotlights suddenly came alive from a place in the water.
+
+"No!" I said, quickly rising to my feet. The pain in my feet and knees was excruciating, and my muscles refused to work enough to muster a run, much less a sprint. As the blue glow was quickly blotted out by the amber lights, I called out to her, "Pomri!" And immediately a handful of the amber lights turned my way. I stopped in my footsteps, knowing I stood no chance of fighting them. In the darkness, they appeared as though they were both near and far, impossible to locate but for the sounds of their feet against the pebbles.
+
+I barely made it a few feet before they all seemed to be returning to the
+
+<!--
+- Linyu witnesses Pomri get taken
+- Annu
+
+-->
+
+but I noticed something strange in the distance. A dull surface when all else was shining and wet from the light on my legs. As I approached, a strange but familiar voice spoke in the cove.
 
 "I tried to stop him," thi said.
 
@@ -223,6 +237,8 @@ I silently agreed.
 "Perhaps it's time we fought back."
 
 I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+
+"I'll wait for you here tonight," I assured hae. "If you're
 
 <!--
 - Pomri is captured by the Holragi
