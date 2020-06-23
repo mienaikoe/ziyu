@@ -124,39 +124,51 @@ Thi introduced herself, "The one that came before me was named Ginnu."
 
 "Ginnu!" I interjected excitedly. "You disappeared after the battle. What happened to you?"
 
-"Battle? What battle? Whatever Ginnu fought in, thi died and is forgotten. I am _Annu_, one without a name."
+"Battle? Whatever battles Ginnu fought, thi died and is forgotten. I am _Annu_, one without a name."
 
 "Annu," I repeated but did not understand. A pendant around hae neck caught my eye and unraveled my curiosity. I took a closer look to make sure it was the genuine article.
 
 "You knew... Melna?" I asked.
 
-Hae voice perked up, "_You_ know Melna?"
-
-"Yes! She took me in when I woke up in Heiko..."
-
-"What happened to her?" thi asked in a subdued sort of excitement.
+"What happened to her?" thi asked in a subdued sort of excitement, "How do you know her?"
 
 A brief glimpse of her death flashed in my mind, and all the myriad emotions that went with it, crammed into a moment. Ginnu saw my stare, heard my silence, and understood.
 
-"She prepared her people for what was to come," I said, "Bought us time to save most of them."
+Hae voice perked up, "_You_ know Melna?"
+
+"She took me in when I woke up in Heiko," I said, grasping at my own voice for answers, "We fled with Pomri to Rudjan, but then we were separated. Spies."
+
+I regained my pride for her. "She prepared her people for what was to come. Bought us time to save most of them."
 
 In a slow gesture, thi grasped my hands with hae own and held silence between our palms.
 
-"Melna brought me an antidote. I was born in the dark, blind, but by whatever magic she infused in that concoction, I was able to see again."
+"Melna brought me an antidote," Thi explained, "I was born in the dark, blind, but by whatever magic she infused in that glass vial of hers, I was able to see again. I jumped ship and swam to the shore, but she chose to stay behind. Perhaps she had some unfinished business to tend to."
 
-I took note of the kanosin blue in hae eyes. Faint, but evident. If thi had been given antikan, then thi must have been given another dose.
+I took note of the kanosin blue in hae eyes: faint but evident. If thi had been given antikan, then thi must have had another dose of kanosin afterward. But how? But I didn't know how thi would fare in this in-between state.
 
-"Tell me about your home," I said.
+"Gi- Annu. We must find the boat and get you to safety."
+
+"Boat? Safety? Bah - they're both gone."
+
+"What do you mean?"
+
+"He took it," thi said. Her voice was cryptic and longing tone.
+
+"...Who?"
+
+Thi paused, struggling to come up with the thoughts that would lead her to the words thi wanted to say.
 
 "I was born in the darkness. A place where life and death no longer held any meaning. I was a ghost there, one of millions. But He... he brought me back to the world of the living."
 
-My breaths were shallow with a terrified imagination of such a place.
+My breaths were shallow with a terrified imagination of such a place, but still I pressed.
 
-"Who, I asked."
+"What is his name?" I asked.
 
-"Ramne," thi said and I felt the pores in my skin contract.
+Thi said with a shudder, "Ramne."
 
-"The man who stole your boat stole death from me, made me a slave to his violent desires. Then Melna set me free."
+The pores in my skin contracted.
+
+"He stole death from me, made me a slave to his violent desires. Then Melna set me free."
 
 "Stole death...?"
 
@@ -194,27 +206,29 @@ Hae memories were shrouded from me but haunted me nevertheless. What deed so ter
 
 "Your hearts are full," thi said running hae fingers through my hair. Hae voice was like a pool of warm water in the frozen air.
 
-"You cared for her. For Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time. But first you must lead yourself to the right answer."
+"Full of fear," I replied, "Of anger."
 
-Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away. I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind. The way her hands would have moved in the dark, pushing a boat out to sea.
+"And of love. You cared for her. For Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time."
 
-"Pomri would never make such a clumsy mistake," I said calmly. "And she would never leave me behind. Pomri was taken."
+"But. What comes next? I can't see that."
 
-The frantic feeling I had before resurfaced, charged with with a mix of anger and fear.
+Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away.
+
+Thi said, "You must reach that conclusion yourself."
+
+I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again.
 
 "They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts.
 
-"All of Heiko has been exiled, enslaved, murdered. They didn't want to live their last days in the shadow of a tyrant. So the Holragi erased them."
+"All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them. Ulukoma is next."
 
-My legs gave way and I fell to my knees.
+<!-- Still needs work below -->
 
-"Pomri!" I cried for her and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on.
+I was angry now, bathed in the heat of every injustice I witnessed in the last few days.
 
-I asked, "What do we do?"
+"Dammit!" I screamed and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
 
-A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
-
-"Laen. Boon," I said aloud as they came into the light. Laen nuzzled me while Boon-Boon laid her head in Annu's lap.
+"Laen! Boon!" I chimed as they came into the light. Laen nuzzled me while Boon-Boon laid her head in Annu's lap.
 
 Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It energized us just enough to not want to end it all.
 
@@ -226,7 +240,7 @@ I silently agreed.
 
 I smirked with vigor at hae words.
 
-"But first," she interjected, "Let's get some rest."
+"But first," she interjected, "Let's get some rest. We'll be safe here for a while."
 
 Through the night, I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
