@@ -46,63 +46,37 @@ I kneeled down to get a closer look, and before I noticed, she entered the cove.
 
 "This. This is not good," she said as she searched everywhere for the canoe we had arrived on. I saw the divot where it had been, with streaks of dark volcanic plankton running down into the water. It was clear it had been stolen.
 
-"DAMN IT ALL!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. I turned around again to follow her, but my breath gave way to exhaustion and my legs felt an ache they had never felt before. I trudged slowly to the entrance and fell to a kneal, unable to move any further. I watched on as the faint blue light in Pomri's hand bobbed and swayed with each step, receding into the evening light along the shore to Rudjan. Until it stopped.
+"DAMN IT ALL!" she said, pushing me aside and rushing out of the cove to search for it on the horizon. I turned around again to follow her, but my breath gave way to exhaustion and my legs felt an ache they had never felt before. I trudged slowly to the entrance and fell to a kneal, unable to move any further. I watched on as the faint blue light in Pomri's hand bobbed and swayed with each step, constantly looking out for a boat, receding into the evening light along the shore to Rudjan. Until it stopped.
 
-My eyes tried to focus on the blue glow as a dozen bright amber spotlights suddenly came alive from a place in the water.
+My eyes tried to focus on the blue glow as a dozen bright amber spotlights suddenly came alive from a place in the water. _Slavers!_
 
-"No!" I said, quickly rising to my feet. The pain in my feet and knees was excruciating, and my muscles refused to work enough to muster a run, much less a sprint. As the blue glow was quickly blotted out by the amber lights, I called out to her, "Pomri!" And immediately a handful of the amber lights turned my way. I stopped in my footsteps, knowing I stood no chance of fighting them. In the darkness, they appeared as though they were both near and far, impossible to locate but for the sounds of their feet against the pebbles.
+"Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. As the blue glow was quickly blotted out by the amber lights, I called out to her, "Pomri!" And immediately a pair of the amber lights turned my way, impaling the dark with their beams. They ran after me without a pause, and I stood petrified. They were impossible to locate but for the sounds of their feet against the pebbles.
 
-I barely made it a few feet before they all seemed to be returning to the
+From behind me, another pair of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw hae silhouette, dressed in dark and tattered clothes, and a paddle in hae hand. Across the beach, thi scaled the darkness and took the two slavers by surprise. The struggle played out only a few paces before me. The sound of breaking glass rang out; one of the lanterns was extinguished. The other flailed about as if reaching to land a blow upon any sign of movement. Between the commotion of sound and the bright washed out patterns in my eyes, nothing was clear, but I knew that thi had given me the chance to flee to safety. _The cove_. With what little strength that remained in my limbs, I crawled back and waited just inside the mouth of the tunnel for some sign of friend or foe.
 
-<!--
-- Linyu witnesses Pomri get taken
-- Annu
+The commotion outside came to a stop, and I saw the last light flicker and fade. From the eerie calm, a sound began. Some heavy object being scraped against the rock and then a splash, shallow but just enough. Then again. And then the sound of falling hard against the ground. In the air was the sweet smell of Anomin oil mingling with the saltwater droplets. And I could have sworn that such a pleasant pair of odors came together to taste like metal at the back of my throat. I did not like it.
 
--->
+Cautiously, I emerged from my hiding, tracing the edge of the beach toward the place where I last heard the sounds. Upon a flat rock jutting out from the shore, thi had flung haeself with hae back to the sky, breathinig heavily through hae teeth.
 
-but I noticed something strange in the distance. A dull surface when all else was shining and wet from the light on my legs. As I approached, a strange but familiar voice spoke in the cove.
+"Are-"
 
-"I tried to stop him," thi said.
+Thi pulled the paddle from beside hae and raised it to my neck in the blink of an eye. Through the blue light, I could see hae eyes, narrowed and hyper alert.
 
-My bones shivered as I froze in place, and the figure of a maman appeared a few paces from me where the dullness had been. Thi was in dark and tattered clothes that matched the ones on the maman who fled when we arrived.
+I trembled shortly in fear, "Are you alright?" I asked.
 
-"Tried to stop who? Who are you?"
+And with the same swift movement thi set the paddle down and sat back against the rock with hae lower body submerged in the little waves. I passed my hand over her and could see a makeshift bandage off damp kelp on hae abdomen, and the thick black of blood in a blue light.
 
-"Who's asking?"
+"You've been wounded," I said.
 
-"L-Linyu. My name is Linyu."
+"I've had worse," thi said nonchalantly.
 
-The maman didn't move, but I drew closer and knealt by hae side.
+With a gesture of permission and a gentle motion I led my hand underneath the bandage. My fingers traced a wound, long, deep, and jagged. I looked through the eyes my mother gave me, looked inside the body with my mind, imagined hae voice present through my own. _Right-side filter gills are immediately below the laceration, torn. Bleeding has stopped, but hae blood is acidifying. Infection is likely. This will kill hae slowly without proper medical help._
 
-Thi introduced herself, "The one that came before me was named Ginnu."
-
-I interjected excitedly, "Ginnu! You disappeared after the battle. What happened to you?"
-
-"Ginnu died and is forgotten. I am _Annu_, one without a name."
-
-My curiosity noticed a pendant around hae neck, moved me closer to see it.
-
-"You knew... Melna?" I asked.
-
-Hae voice perked up, "You know Melna?"
-
-"Yes! She took me in when I woke up in Heiko..."
-
-"What happened to her?" thi asked in a subdued sort of excitement.
-
-A brief glimpse of her death flashed in my mind, and all the myriad emotions that went with it, crammed into a moment. Ginnu saw my stare, heard my silence, and knew.
-
-"She prepared her people for what was to come. Bought us time to save most of them."
-
-In a slow gesture, thi grasped my hands with hae own and held silence between our palms.
-
-"Is something the matter?" I asked, changing the subject. And with the same gentle movement, thi led my fingers underneath a layer of damp kelp on the side of hae abdomen. My fingers traced a wound, long, deep, and healing poorly. I looked through the eyes my mother gave me, looked inside the body with my mind, imagined hae voice present through my own. _Right-side filter gills are immediately below the laceration, torn. Bleeding has stopped, but hae blood is acidifying. Infection is likely. This was meant to kill hae slowly._
-
-"Come," I said, still speaking , "Let's get you out into the light."
+"You need," I said panicked, "I need to get you to a doctor."
 
 "I... I am too weak."
 
-"We can heal you. We have some vials of-" _We used it all._ "We can get you to a place where you'll be safe."
+"I can heal you. I have some vials of-" _We used it all._ "I can get you to a place where you'll be safe."
 
 "Nowhere is safe now."
 
@@ -118,7 +92,61 @@ _Underworld?_
 
 "But you aren't dead."
 
-Thi looked at me with cold, untrusting eyes.
+Thi looked at me with cold, untrusting eyes, and gestured toward the cove.
+
+"Bring me inside," thi said.
+
+I brought hae to the edge of the entry, where there was ample room away from the water. Even if we were there until morning, we would've been safe from the water.
+
+"I could have stopped them," thi said to me as thi made haeself as comfortable as a maman could be on a bed of rocks.
+
+"Tried to stop who?" I asked.
+
+"Those Holragi slavers. They got your companion. That fool. Could have stopped them if those two didn't see me."
+
+"I'm... sorry," I said, realizing that thi could have said the same for me.
+
+"Don't be sorry," thi said with conviction. "You did what you had to."
+
+I was grateful for hae thinking so, but I held on to my guilt.
+
+"Pomri is... gone. A slave to Holragi."
+
+"Be still, maman. Quiet your mind."
+
+"But–"
+
+"There's nothing could be done to stop it, and no way to take it back."
+
+I drew closer and knealt by hae side. "L-Linyu," I said, "My name is Linyu."
+
+Thi introduced herself, "The one that came before me was named Ginnu."
+
+"Ginnu!" I interjected excitedly. "You disappeared after the battle. What happened to you?"
+
+"Battle? What battle? Whatever Ginnu fought in, thi died and is forgotten. I am _Annu_, one without a name."
+
+"Annu," I repeated but did not understand. A pendant around hae neck caught my eye and unraveled my curiosity. I took a closer look to make sure it was the genuine article.
+
+"You knew... Melna?" I asked.
+
+Hae voice perked up, "_You_ know Melna?"
+
+"Yes! She took me in when I woke up in Heiko..."
+
+"What happened to her?" thi asked in a subdued sort of excitement.
+
+A brief glimpse of her death flashed in my mind, and all the myriad emotions that went with it, crammed into a moment. Ginnu saw my stare, heard my silence, and understood.
+
+"She prepared her people for what was to come," I said, "Bought us time to save most of them."
+
+In a slow gesture, thi grasped my hands with hae own and held silence between our palms.
+
+"Melna brought me an antidote. I was born in the dark, blind, but by whatever magic she infused in that concoction, I was able to see again."
+
+I took note of the kanosin blue in hae eyes. Faint, but evident. If thi had been given antikan, then thi must have been given another dose.
+
+"Tell me about your home," I said.
 
 "I was born in the darkness. A place where life and death no longer held any meaning. I was a ghost there, one of millions. But He... he brought me back to the world of the living."
 
@@ -128,19 +156,19 @@ My breaths were shallow with a terrified imagination of such a place.
 
 "Ramne," thi said and I felt the pores in my skin contract.
 
-"The man who stole your boat also stole death from me."
+"The man who stole your boat stole death from me, made me a slave to his violent desires. Then Melna set me free."
 
-"You're... immortal?"
+"Stole death...?"
 
-"Hardly. I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of. I did not ask to be this way."
+"I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of. I did not ask to be this way."
 
-"But... you needn't fear death anymore. That's a good thing!"
+"You... can't die? But that's–"
 
-"Death? I fear life. Life means another death is coming."
+"A gift? I don't fear death, maman, I fear life. For life means another death is coming."
 
-I was taken aback by what she was saying. Surely anyone with pulses in their veins would prefer eternal life. Even if it took a great deal of suffering to enjoy it.
+I was taken aback by what thi was saying. A gift so powerful was wasted on someone like that. That thought crossed my mind, too. The one so simple in its evil as to treat the life of one so small in comparison to another. But I stopped myself from lending it any time.
 
-I asked hae "What do you mean by 'ghost'?"
+I asked hae, "What do you mean by 'ghost'?"
 
 Hae eyes looked past me as if imagining a beautiful place.
 
@@ -148,7 +176,7 @@ Hae eyes looked past me as if imagining a beautiful place.
 
 "That sounds amazing."
 
-Hae eyes returned their gaze to me and resumed their worryr.
+Hae eyes returned their gaze to me and resumed their worry.
 
 "I cannot bring myself to leave. Ramne is there I know it," she said with trepidation, "But I will go with you if you promise me something, young maman."
 
@@ -162,51 +190,11 @@ She continued, "If you see Ramne, or hear of him. Run. Run far far away and neve
 
 "You heard me."
 
-Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? I cast the thoughts out of my mind, and regained focus.
-
-"I'll be right back," I said, and ran to Pomri who had surely not given up looking for the boat.
-
-"Pomri?"
-
-I called, but neither heard nor saw her. Perhaps she was further out than I thought.
-
-"Pomriii!"
-
-I began to pace across the pebbles and sand, to look for some trace of her or to calm my nerves, but saw and heard no sign.
-
-_Did she leave without me?_
-
-Such cynicism in my thoughts suprised me.
-
-_Would Pomri do such a thing? Would she have gone back alone? Setre wouldn't hesitate to kill her._
-
-Then the manic anxiety took hold and I began to doubt one thing after another.
-
-_Maybe she was a Holragi spy and she's finished her job. No, she couldn't be. She wouldn-_
-
-But then my eye caught a blue light on the pebbles. An eddy of kanosin within an undisturbed puddle of water and blood. And a large divot in the pebbles around it.
-
-_An accident while moving a secret boat? No- a struggle. How had I not heard this?_
-
-I took a deep breath and sat before the puddle. Drowning my thoughts in its patterns. I didn't want them anymore.
-
-"Ginnu... Annu," I said aloud to myself. "Thi needs me. I can't do this right now."
-
-Another deep breath and I whisked myself back around toward the cove. I had walked much further away than I had realized.
-
-"G- Annu," I addressed hae keeping my voice as stable as I could, "we have to go. Pomri is gone."
-
-"Gone? Gone where?"
-
-"I don't know. I just found some blood and-," I stopped and fell to my feet in front of hae. Thi reached out to hold me in hae arms, swallowing the pain in her side; her breath, slow and belabored, tickling the back of my shoulder.
-
-"Be still, maman. Quiet your mind."
-
-She calmed me with the sound of her voice and the feel of her warmth. The sound of distant waves and tiny plops of water filled my mind, carried me away to the depths of my mind.
+Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? She calmed me with the sound of her voice and the feel of her warmth. The sound of distant waves and tiny plops of water filled my mind, carried me away to the depths of my mind.
 
 "Your hearts are full," thi said running hae fingers through my hair. Hae voice was like a pool of warm water in the frozen air.
 
-"You care for her. For Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time. But first you must lead yourself to the right answer."
+"You cared for her. For Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time. But first you must lead yourself to the right answer."
 
 Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away. I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind. The way her hands would have moved in the dark, pushing a boat out to sea.
 
@@ -236,9 +224,11 @@ I silently agreed.
 
 "Perhaps it's time we fought back."
 
-I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+I smirked with vigor at hae words.
 
-"I'll wait for you here tonight," I assured hae. "If you're
+"But first," she interjected, "Let's get some rest."
+
+Through the night, I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
 <!--
 - Pomri is captured by the Holragi

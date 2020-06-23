@@ -7,7 +7,7 @@ They don't have fog blocking them, but they are in the dark because of the obscu
 
 They also can't see underwater ships, like what Holrag would have. So the Holragi can spy on them and follow them to see what they're up to, maybe follow them back to Ulukoma to have a surprise attack in which they have to lock the door on Setre. The prologue illustrates a bloodied Setre, guilty for not helping Melna, paddling out to Liffa to save hae from a sinking capsule.
 
-Anyway, tangent, this chapter shows them finding Laen-Laen and Pomri's saffa, Yub-yub, and Ginnu who can now see, but is exhausted and cold and doesn't know who thi is. However, thi knows the secret of the armory.
+Anyway, tangent, this chapter shows them finding Laen-Laen and Pomri's saffa, Boon-Boon, and Ginnu who can now see, but is exhausted and cold and doesn't know who thi is. However, thi knows the secret of the armory.
 
 They also need to discover Ramne's connection to Holrag
 
