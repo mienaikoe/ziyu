@@ -50,7 +50,7 @@ I kneeled down to get a closer look, and before I noticed, she entered the cove.
 
 My eyes tried to focus on the blue glow as a dozen bright amber spotlights suddenly came alive from a place in the water. _Slavers!_
 
-"Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. As the blue glow was quickly blotted out by the amber lights, I called out to her, "Pomri!" And immediately a pair of the amber lights turned my way, impaling the dark with their beams. They ran after me without a pause, and I stood petrified. They were impossible to locate but for the sounds of their feet against the pebbles.
+"Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. The blue glow was blotted out by the amber lights, and I could see her in full light now, holdinig her spear defensively. A crew of five spotlights emerged from the source of the spotlights, holding their lights to her, and the minute they set foot on land, she sprung into action, taking out one of the slavers. But the other four quickly bound her with weighted nets and wrested away her spear with a rope anchor. "Pomri!" I called out to her, and immediately two of the amber lights turned my way, impaling the dark with their beams. Somehow, the distance between us had become immeasurable, as if some illusion had been cast onto by the intense beams of theiir lanterns. Without a pause, they ran after me but I just stood there, my mind faltering and petrified in their light.
 
 From behind me, another pair of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw hae silhouette, dressed in dark and tattered clothes, and a paddle in hae hand. Across the beach, thi scaled the darkness and took the two slavers by surprise. The struggle played out only a few paces before me. The sound of breaking glass rang out; one of the lanterns was extinguished. The other flailed about as if reaching to land a blow upon any sign of movement. Between the commotion of sound and the bright washed out patterns in my eyes, nothing was clear, but I knew that thi had given me the chance to flee to safety. _The cove_. With what little strength that remained in my limbs, I crawled back and waited just inside the mouth of the tunnel for some sign of friend or foe.
 
@@ -76,45 +76,45 @@ With a gesture of permission and a gentle motion I led my hand underneath the ba
 
 "I... I am too weak."
 
-"I can heal you. I have some vials of-" _We used it all._ "I can get you to a place where you'll be safe."
+I reached into my bag. "I have some vials of- ... I can get you to a place where you'll be safe."
 
 "Nowhere is safe now."
 
 "There is such a place," I reassured hae, "It's hidden, in the darkness. The Holragi wouldn't know to go there."
 
-"The underworld..." thi looked through me as hae thoughts drifted off. "If you've come to take me back... I'm not going anywhere."
+"The underworld..." thi looked through me as hae thoughts drifted off. "I'm not going back."
 
 _Underworld?_
 
-"I don't know of any underworld. Only of Ulukoma. There are many doctors there that can help you."
+"I don't know of any underworld. Only of Ulukoma. There is a doctor there that can help you."
 
-"Doctors have no business with the dead."
+"A doctor has no business with the dead."
 
 "But you aren't dead."
 
-Thi looked at me with cold, untrusting eyes, and gestured toward the cove.
+Thi looked at me with cold, untrusting eyes, and gestured with hae head toward the cove.
 
 "Bring me inside," thi said.
 
-I brought hae to the edge of the entry, where there was ample room away from the water. Even if we were there until morning, we would've been safe from the water.
+I carried hae to the edge of the entry, where there was ample height and space from the water. Even if we were there until morning, we would've been safe from the tide.
 
-"I could have stopped them," thi said to me as thi made haeself as comfortable as a maman could be on a bed of rocks.
+"I could have stopped them," thi said as thi made haeself as comfortable as a maman could be on a bed of rocks.
 
 "Tried to stop who?" I asked.
 
-"Those Holragi slavers. They got your companion. That fool. Could have stopped them if those two didn't see me."
+"Those filthy slavers. They got your companion. Could have stopped them if those two didn't see me."
 
-"I'm... sorry," I said, realizing that thi could have said the same for me.
+I apologized with a heavy heart, realizing that I had unwittingly drawn hae concern to me instead of to Pomri.
 
-"Don't be sorry," thi said with conviction. "You did what you had to."
+"Don't be sorry," thi said with conviction. "You aren't a logical puppet, you are a ."
 
 I was grateful for hae thinking so, but I held on to my guilt.
 
-"Pomri is... gone. A slave to Holragi."
+"Pomri is... a slave now. She can't escape."
 
 "Be still, maman. Quiet your mind."
 
-"But–"
+"I've been begging it to stop!"
 
 "There's nothing could be done to stop it, and no way to take it back."
 
@@ -178,7 +178,7 @@ The pores in my skin contracted.
 
 "A gift? I don't fear death, maman, I fear life. For life means another death is coming."
 
-I was taken aback by what thi was saying. A gift so powerful was wasted on someone like that. That thought crossed my mind, too. The one so simple in its evil as to treat the life of one so small in comparison to another. But I stopped myself from lending it any time.
+I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That evil wish crossed my mind, too. So simple in its treatment of life as to wish immortality on another as an ideal. But I stopped myself from lending it any time, for fear it might become me.
 
 I asked hae, "What do you mean by 'ghost'?"
 
@@ -202,47 +202,55 @@ She continued, "If you see Ramne, or hear of him. Run. Run far far away and neve
 
 "You heard me."
 
-Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible to cause such pain could Ramne have done. And to what end? She calmed me with the sound of her voice and the feel of her warmth. The sound of distant waves and tiny plops of water filled my mind, carried me away to the depths of my mind.
+Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible could Ramne have done to cause such pain. And to what end?
+
+The sound of distant waves and the tiny plops of water on rocky puddles filled me, carried me away to the depths of my mind. Anny saw how I'd been spooked and held my hand, calmed me with the warmth of hae touch and the sound of hae voice.
 
 "Your hearts are full," thi said running hae fingers through my hair. Hae voice was like a pool of warm water in the frozen air.
 
 "Full of fear," I replied, "Of anger."
 
-"And of love. You cared for her. For Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time."
+"And of love. You cared for Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time."
 
-"But. What comes next? I can't see that."
+But I was frustrated. "I can barely understand what's happening. How can I lead something. What comes next?" I asked.
 
-Thi let me go, and I followed, knealing before hae with my face still covered with water. Hae hand came up to wipe it away.
+Thi said, "You must reach that end yourself."
 
-Thi said, "You must reach that conclusion yourself."
+I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again. I stood up, contemplating what her life might be like from now on. And then I remembered the stories my nather told me: of mining for ore, escaping from Holrag. And I couldn't hold in my anger any loonger.
 
-I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again.
+"They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts. "All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them. Ulukoma is next."
 
-"They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts.
+I was angry now, recalling every injustice, every act of intimidation and coercion. And my face was flush with water.
 
-"All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them. Ulukoma is next."
+"Dammit!!" I screamed and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
 
-<!-- Still needs work below -->
+"Laen! Boon!" I chimed as they came into the light. Laen nuzzled me while Boon-Boon sniffed on Annu and laid her head in Annu's lap.
 
-I was angry now, bathed in the heat of every injustice I witnessed in the last few days.
+Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It drove us just enough to not want to end it all.
 
-"Dammit!" I screamed and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
-
-"Laen! Boon!" I chimed as they came into the light. Laen nuzzled me while Boon-Boon laid her head in Annu's lap.
-
-Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It energized us just enough to not want to end it all.
-
-"Linyu, this world is full of chaos," thi said, "All of us have been caught in an undercurrent of deception. Of deranged forces vying for the last surviving bits of power. And people who would kill everyone in order to save themselves for one more day."
+"Linyu, this time is full of evil," thi said, "All of us have been caught in an undercurrent of lies. Of mighty forces vying for the last bits of power left in the world. And people who would kill everyone in order to save themselves for one more day."
 
 I silently agreed.
 
-"Perhaps it's time we fought back."
+"There is one problem which binds all these things together."
 
-I smirked with vigor at hae words.
+I realized in an instant what she meant, and the disparate knowings that jumbled round in my head began to make sense.
+
+"The obscura," I said.
+
+Thi nodded. "There is another time, far beyond the horizon."
+
+"A hundred lifetimes from now," I added.
+
+"We cannot defeat our enemies in this time."
+
+"But as ghosts, we can outlast them until the next."
+
+I smirked with vigor at our words.
 
 "But first," she interjected, "Let's get some rest. We'll be safe here for a while."
 
-Through the night, I took her words into my heart through the sweat on my cheeks and in my eyes. And my lungs had never felt so full of life.
+Throughout the night, I thought about Pomri. Grieved at the fate that lie before her. But then I thought of my nather, and all the others in Ulukoma who were waiting for a sign of hope. I took Annu's words into my heart through the water of grief on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
 <!--
 - Pomri is captured by the Holragi
