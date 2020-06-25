@@ -52,17 +52,19 @@ My eyes tried to focus on the blue glow as a dozen bright amber spotlights sudde
 
 "Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. The blue glow was blotted out by the amber lights, and I could see her in full light now, holdinig her spear defensively. A crew of five spotlights emerged from the source of the spotlights, holding their lights to her, and the minute they set foot on land, she sprung into action, taking out one of the slavers. But the other four quickly bound her with weighted nets and wrested away her spear with a rope anchor. "Pomri!" I called out to her, and immediately two of the amber lights turned my way, impaling the dark with their beams. Somehow, the distance between us had become immeasurable, as if some illusion had been cast onto by the intense beams of theiir lanterns. Without a pause, they ran after me but I just stood there, my mind faltering and petrified in their light.
 
-From behind me, another pair of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw hae silhouette, dressed in dark and tattered clothes, and a paddle in hae hand. Across the beach, thi scaled the darkness and took the two slavers by surprise. The struggle played out only a few paces before me. The sound of breaking glass rang out; one of the lanterns was extinguished. The other flailed about as if reaching to land a blow upon any sign of movement. Between the commotion of sound and the bright washed out patterns in my eyes, nothing was clear, but I knew that thi had given me the chance to flee to safety. _The cove_. With what little strength that remained in my limbs, I crawled back and waited just inside the mouth of the tunnel for some sign of friend or foe.
+From behind me, a voice called "Aye!" and a small army of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw the silhouettes: a maman dressed in dark and tattered clothes, a paddle in hae hand. And two saffas further ahead, galloping their quickest to get Pomri.
 
-The commotion outside came to a stop, and I saw the last light flicker and fade. From the eerie calm, a sound began. Some heavy object being scraped against the rock and then a splash, shallow but just enough. Then again. And then the sound of falling hard against the ground. In the air was the sweet smell of Anomin oil mingling with the saltwater droplets. And I could have sworn that such a pleasant pair of odors came together to taste like metal at the back of my throat. I did not like it.
+Across the beach, the maman scaled the darkness and took the two slavers by surprise. The struggle played out only a few paces before me. The sound of breaking glass rang out; one of the lanterns was extinguished. The other flailed about as if reaching to land a blow upon any sign of movement. Between the commotion of sound and the bright washed out patterns in my eyes, nothing was clear, but I knew that thi had given me the chance to flee to safety. _The cove_. With what little strength that remained in my limbs, I crawled back and waited just inside the mouth of the tunnel for some sign of friend or foe.
 
-Cautiously, I emerged from my hiding, tracing the edge of the beach toward the place where I last heard the sounds. Upon a flat rock jutting out from the shore, thi had flung haeself with hae back to the sky, breathinig heavily through hae teeth.
+The commotion outside came to a stop, and I saw the last light flicker and fade. From the eerie calm, a sound began. Some heavy object being scraped against the rock and then a splash, shallow but just enough. Then again. The sweet smell of Anomin oil mingled with the salty mist in my nose. And I could have sworn that such a pleasant pair of odors came together to taste like metal at the back of my throat. I did not like it.
 
-"Are-"
+Cautiously, I emerged from my hiding, tracing the edge of the beach toward where I thought the sounds had come from. The amber lights both near and far had vanished and I could barely see the ground at this time of day. I could hear the sounds of shifting pebbles at a distance, the saffas finding their way back. In front of me, upon a flat rock jutting out from the shore, the maman had flung haeself with hae back to the sky, breathing heavily through hae teeth.
 
-Thi pulled the paddle from beside hae and raised it to my neck in the blink of an eye. Through the blue light, I could see hae eyes, narrowed and hyper alert.
+I began, "Are-"
 
-I trembled shortly in fear, "Are you alright?" I asked.
+But thi pulled the paddle from beside hae and raised it to my neck in the blink of an eye. Through the blue light, I could see hae eyes, narrowed and hyper-aware.
+
+I chill of trembles shook my body with fear. "Are you alright?" I asked.
 
 And with the same swift movement thi set the paddle down and sat back against the rock with hae lower body submerged in the little waves. I passed my hand over her and could see a makeshift bandage off damp kelp on hae abdomen, and the thick black of blood in a blue light.
 
@@ -92,25 +94,25 @@ _Underworld?_
 
 "But you aren't dead."
 
-Thi looked at me with cold, untrusting eyes, and gestured with hae head toward the cove.
+Thi looked at me with cold, untrusting eyes. A saffa approached, growling at the blue light from my hand until the maman spoke.
 
-"Bring me inside," thi said.
+"It's ok," she said with a gentle tone. The saffa immediately stopped growling and shook its head with a jingling sound.
 
-I carried hae to the edge of the entry, where there was ample height and space from the water. Even if we were there until morning, we would've been safe from the tide.
+"I found you!" I yelled to him, and he let out a loud, "Woooooop!"
 
-"I could have stopped them," thi said as thi made haeself as comfortable as a maman could be on a bed of rocks.
+From a distance, the other saffa cried toward the ocean, "Wooooooooooo." It was Boon.
 
-"Tried to stop who?" I asked.
+Laen and I carried the maman to the edge of the entry, where there was ample height and space from the water. Even if we were there until morning, we would've been safe from the tide.
 
-"Those filthy slavers. They got your companion. Could have stopped them if those two didn't see me."
+"I could have stopped them," thi said as Laen made his side available as a bed for the maman.
 
-I apologized with a heavy heart, realizing that I had unwittingly drawn hae concern to me instead of to Pomri.
+"Those filthy slavers," thi explained, "They got your companion. Would've killed you. You're too small to be useful to them."
 
-"Don't be sorry," thi said with conviction. "You aren't a logical puppet, you are a ."
+I apologized with a shameful silence, realizing that I had unwittingly drawn their attention.
 
-I was grateful for hae thinking so, but I held on to my guilt.
+"No remorse," thi said with conviction. "This isn't the time."
 
-"Pomri is... a slave now. She can't escape."
+I was grateful for hae thinking so, but the guilt held fast. I spoke in a broken voice, "Pomri is... a slave now. She can't escape."
 
 "Be still, maman. Quiet your mind."
 
@@ -118,7 +120,11 @@ I was grateful for hae thinking so, but I held on to my guilt.
 
 "There's nothing could be done to stop it, and no way to take it back."
 
-I drew closer and knealt by hae side. "L-Linyu," I said, "My name is Linyu."
+I drew closer and knealt by hae side while Boon let out another howl in the distance. It shook me.
+
+Thi asked me, "What's your name, young maman?"
+
+"L-Linyu," I said, "My name is Linyu."
 
 Thi introduced herself, "The one that came before me was named Ginnu."
 
@@ -222,13 +228,17 @@ I took a few deep breaths and set my mind back into the calm of its deepest part
 
 I was angry now, recalling every injustice, every act of intimidation and coercion. And my face was flush with water.
 
-"Dammit!!" I screamed and my voice reverberated across the walls, reaching into every corner of the cove for an ear to fall on. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles. I need not beg for my heart to soften.
+"Dammit!!" I screamed and my voice reverberated across the walls, reaching into every corner and every rock. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles.
 
-"Laen! Boon!" I chimed as they came into the light. Laen nuzzled me while Boon-Boon sniffed on Annu and laid her head in Annu's lap.
+"Boon..."
 
-Thi gently propped haeself up and cleared hae throat. There was a sense in that cove that hope was still alive. It drove us just enough to not want to end it all.
+She walked slowly to us, sniffed on me and laid herself next to Laen with a deep sigh. There was an air of despair in that cove that I had never felt before: the feeling of giving everything for nothing. Not for a lack of effort or willpower, but a lack of weapons and ambition. But in that same space, we opened our hearts for some kind of hope that wait for us in the darkness. It drove us just enough to not want to end it all.
 
-"Linyu, this time is full of evil," thi said, "All of us have been caught in an undercurrent of lies. Of mighty forces vying for the last bits of power left in the world. And people who would kill everyone in order to save themselves for one more day."
+Annu let haeself onto the floor in front of Laen.
+
+"Linyu," thi beckoned for me to sit with hae.
+
+"This time is full of evil," thi said, "All of us have been caught in an undercurrent of lies. Of mighty forces vying for the last bits of power left in the world. And people who would end and enslave countless lives in order to save themselves for one more day."
 
 I silently agreed.
 
@@ -238,13 +248,13 @@ I realized in an instant what she meant, and the disparate knowings that jumbled
 
 "The obscura," I said.
 
-Thi nodded. "There is another time, far beyond the horizon."
+Thi nodded. "There is another time, far beyond the time that we can see."
 
-"A hundred lifetimes from now," I added.
+"A hundred lifetimes," I whispered.
 
 "We cannot defeat our enemies in this time."
 
-"But as ghosts, we can outlast them until the next."
+"But we can outlast them until the next."
 
 I smirked with vigor at our words.
 
