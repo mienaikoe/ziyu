@@ -234,9 +234,9 @@ I was angry now, recalling every injustice, every act of intimidation and coerci
 
 She walked slowly to us, sniffed on me and laid herself next to Laen with a deep sigh. There was an air of despair in that cove that I had never felt before: the feeling of giving everything for nothing. Not for a lack of effort or willpower, but a lack of weapons and ambition. But in that same space, we opened our hearts for some kind of hope that wait for us in the darkness. It drove us just enough to not want to end it all.
 
-Annu let haeself onto the floor in front of Laen.
+Annu let haeself onto the floor in front of Boon, trying to comfort her with gentle pats of her shoulder.
 
-"Linyu," thi beckoned for me to sit with hae.
+"Linyu," thi beckoned me to sit.
 
 "This time is full of evil," thi said, "All of us have been caught in an undercurrent of lies. Of mighty forces vying for the last bits of power left in the world. And people who would end and enslave countless lives in order to save themselves for one more day."
 
@@ -260,7 +260,7 @@ I smirked with vigor at our words.
 
 "But first," she interjected, "Let's get some rest. We'll be safe here for a while."
 
-Throughout the night, I thought about Pomri. Grieved at the fate that lie before her. But then I thought of my nather, and all the others in Ulukoma who were waiting for a sign of hope. I took Annu's words into my heart through the water of grief on my cheeks and in my eyes. And my lungs had never felt so full of life.
+I took the spot at Laen's warm belly and he let out a satisfied "oo". Throughout the night, I thought about Pomri. Grieved at the fate that lie before her. But then I thought of my nather, and all the others in Ulukoma who were waiting for a sign of hope. I took Annu's words into my heart through the water of grief on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
 <!--
 - Pomri is captured by the Holragi

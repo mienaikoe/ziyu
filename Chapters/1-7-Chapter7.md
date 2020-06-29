@@ -90,11 +90,11 @@ He finished jotting his notes and then turned the page for the next question.
 
 "Question two. How did you come upon this news?"
 
-"It was hand-delivered to me by our town's messenger."
+"It was hand-delivered to me by the lead Ara observer of Heiko."
 
-"Why wasn't the messenger the one to deliver it?"
+"Why wasn't the observer the one to deliver it?"
 
-"He had to maintain the conduit in Heiko."
+"He had to continue his observations."
 
 "And your job?"
 
@@ -154,7 +154,7 @@ I felt a slight relief, but knew the other was inescapable.
 
 "However, the codex of the senate makes clear that any interruption of any kind during deliberation is illegal. For this reason, I find you guilty of interruption of the senate during its deliberation."
 
-The conviction was expected, but it still hurt in an aggravating way. Like a tiny worm latched to my ribcage.
+The conviction was expected, but it still hurt.
 
 "The sentence shall be a period of three La'To in Ulukoma. Do you understa-"
 
@@ -196,11 +196,11 @@ He replied, "I understand. I hope only that you give a lighter sentence in light
 
 "Well, the codex of the senate has pretty clear guidelines on sentencing for interruption. I would be risking my post if I let hae free without punishment."
 
-Kip, turned to the magistrate and pleaded to him, "Please. Lif had every positive intention. Thi doesn't deserve to be shipped off to Ulukoma."
+Kipnu turned to the magistrate and pleaded to him, "Please. Liffa had every positive intention. Thi doesn't deserve to be shipped off."
 
 Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is beneficial to both Liffa and all of Palinan."
 
-Kip and the magistrate turned to him to hear more.
+Kipnu and the magistrate turned to him to hear more.
 
 "If Liffa is inclined, thi could work with me in Holrag on our observational study of the obstruction."
 
@@ -210,27 +210,29 @@ I replied immediately, "I am not inclined."
 
 I retorted, "And what use would a farmer be to scientists?"
 
-"You would be a fantastic liaison between our engineers and the observers in Heiko, as you've had experience with both the Heiko messenger and their work."
+"An ex-engineer, you mean."
 
-He had a convincing argument, but I remembered what Mel said about him.
+I was aghast that he knew this.
+
+"Melna told me about your family's land trust. Besides your hidden talents, you would be a fantastic liaison between our engineers and the observers in Heiko, as you've had experience with the work of the Heiko observers."
+
+He had a convincing argument, but I remembered what Melna said about him.
 
 "I don't trust you. You could do anything with me and get away with it," I said.
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jund, the selfless hero-messenger, it would be awful for Holrag and our entire project. You would surely be in safe hands."
+"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jundmaman, the selfless hero-messenger, it would be terrible for Holrag and our entire project. You would surely be in safe hands. A few days on the frontlines of civilization is surely much better than whatever you would get in Ulu."
 
-Kip added his opinion, "It does sound like a good deal, Lif. One La'To on the frontlines of civilization is much better than whatever you would get in Ulu."
-
-"It would be three La'To in Ulu," the magistrate added. "I believe that Fajro's suggestion would be a fitting alternative and that the state would see more use in applying you to the problem than sending you someplace where you mindlessly twiddle your thumbs in the cold.."
+The magistrate butted in, "I believe that Fajro's suggestion would be a fitting alternative and that the state would see more use in applying you to the problem than sending you someplace where you mindlessly twiddle your thumbs in the cold.."
 
 I withdrew from the door and faced the wall. I had never felt so powerless before: my fate being discussed by a room full of powerful men while I stood in a cell, like I wasn't even there. And my decisions were now between two extremely risky cases. I listened intently to the silence surrounding us and begged for a message, but none came. The pulse in my head and the gentle shifting of cloth behind me filled my headsound.
 
-"Let's give hae a moment, guys," I heard Kip say.
+"Let's give hae a moment, guys," I heard Kipnu say.
 
-I turned around and found the back of his head and said "Wait, Kip. Just you."
+I turned around and found the back of his head and said "Wait, Kipnu. Just you."
 
-The others gathered their lanterns and moved to the other room, the magistrate wrapping his arm around Fajro to help. I walked toward Kip but didn't reach for him this time.
+The others gathered their lanterns and moved to the other room, the magistrate wrapping his arm around Fajro to help. I walked toward Kipnu but didn't reach for him this time.
 
-"Kip... how many people know?"
+"How many people know?" I asked him.
 
 "Know what?"
 
