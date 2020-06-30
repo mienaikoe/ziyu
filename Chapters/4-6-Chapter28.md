@@ -12,7 +12,9 @@ I held closely to the listener on my ear, trying to find a pattern in the noise.
 
 "You are not forgotten."
 
-I looked back at Laen sleeping face-to-face with Boon, wondered if the thought of Liffa came to his mind from time-to-time, if anyone had explained to him what had happened or if he simply trusted that things would be good in the end.
+I looked back at Laen sleeping face-to-face with Boon, wondered what they felt when they thought about Liffa or Pomri, if explaining it to them would be possible, or if it would even help. Maybe they simply trusted us to make things good in the end. How could I tell them that their companions were never coming back?
+
+I walked outside shortly, being careful not to wander too far from cove. There was nary a sign of the scuffle that Annu had saved me from. The pebbles had been shuffled and the bodies reclaimed by the many fingers of the ocean. I searched the shoreline but could not find the place where Pomri had been taken. Time had erased any evidence of its happening, without which virtue could hold no contempt. Perhaps that's why they hunted the shoreline.
 
 <!--
 - Liffa's first bleed perigee
