@@ -52,7 +52,7 @@ My eyes tried to focus on the blue glow as a dozen bright amber spotlights sudde
 
 "Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. The blue glow was blotted out by the amber lights, and I could see her in full light now, holdinig her spear defensively. A crew of five spotlights emerged from the source of the spotlights, holding their lights to her, and the minute they set foot on land, she sprung into action, taking out one of the slavers. But the other four quickly bound her with weighted nets and wrested away her spear with a rope anchor. "Pomri!" I called out to her, and immediately two of the amber lights turned my way, impaling the dark with their beams. Somehow, the distance between us had become immeasurable, as if some illusion had been cast onto by the intense beams of theiir lanterns. Without a pause, they ran after me but I just stood there, my mind faltering and petrified in their light.
 
-From behind me, a voice called "Aye!" and a small army of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw the silhouettes: a maman dressed in dark and tattered clothes, a paddle in hae hand. And two saffas further ahead, galloping their quickest to get Pomri.
+From behind me, a voice called "Aye!" and a small army of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw their silhouettes: a maman dressed in a dark and tattered robe with a paddle in hae hand; two saffas were further ahead, galloping their quickest toward the lights emerging from the water.
 
 Across the beach, the maman scaled the darkness and took the two slavers by surprise. The struggle played out only a few paces before me. The sound of breaking glass rang out; one of the lanterns was extinguished. The other flailed about as if reaching to land a blow upon any sign of movement. Between the commotion of sound and the bright washed out patterns in my eyes, nothing was clear, but I knew that thi had given me the chance to flee to safety. _The cove_. With what little strength that remained in my limbs, I crawled back and waited just inside the mouth of the tunnel for some sign of friend or foe.
 
@@ -68,7 +68,7 @@ I chill of trembles shook my body with fear. "Are you alright?" I asked.
 
 And with the same swift movement thi set the paddle down and sat back against the rock with hae lower body submerged in the little waves. I passed my hand over her and could see a makeshift bandage off damp kelp on hae abdomen, and the thick black of blood in a blue light.
 
-"You've been wounded," I said.
+"You're wounded," I said.
 
 "I've had worse," thi said nonchalantly.
 
@@ -118,7 +118,7 @@ I was grateful for hae thinking so, but the guilt held fast. I spoke in a broken
 
 "I've been begging it to stop!"
 
-"There's nothing could be done to stop it, and no way to take it back."
+"There's nothing could be done to save her, and no way to take it back."
 
 I drew closer and knealt by hae side while Boon let out another howl in the distance. It shook me.
 
@@ -132,7 +132,7 @@ Thi introduced herself, "The one that came before me was named Ginnu."
 
 "Battle? Whatever battles Ginnu fought, thi died and is forgotten. I am _Annu_, one without a name."
 
-"Annu," I repeated but did not understand. A pendant around hae neck caught my eye and unraveled my curiosity. I took a closer look to make sure it was the genuine article.
+"Annu..." I repeated but did not understand. A pendant around hae neck caught my eye and unraveled my curiosity. I took a closer look to make sure it was the genuine article.
 
 "You knew... Melna?" I asked.
 
@@ -150,7 +150,7 @@ In a slow gesture, thi grasped my hands with hae own and held silence between ou
 
 "Melna brought me an antidote," Thi explained, "I was born in the dark, blind, but by whatever magic she infused in that glass vial of hers, I was able to see again. I jumped ship and swam to the shore, but she chose to stay behind. Perhaps she had some unfinished business to tend to."
 
-I took note of the kanosin blue in hae eyes: faint but evident. If thi had been given antikan, then thi must have had another dose of kanosin afterward. But how? But I didn't know how thi would fare in this in-between state.
+I took note of the kanosin blue in hae eyes: faint but evident. If thi had been given antikan, then thi must have had another dose of kanosin afterward. But how?
 
 "Gi- Annu. We must find the boat and get you to safety."
 
@@ -174,29 +174,25 @@ Thi said with a shudder, "Ramne."
 
 The pores in my skin contracted.
 
-"He stole death from me, made me a slave to his violent desires. Then Melna set me free."
-
-"Stole death...?"
-
-"I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of. I did not ask to be this way."
+"He stole death from me. I was his murder slave. Trapped on his ship, teetering between life and death. I was unable to see, to escape. Then Melna set me free. I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of."
 
 "You... can't die? But that's–"
 
 "A gift? I don't fear death, maman, I fear life. For life means another death is coming."
 
-I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That evil wish crossed my mind, too. So simple in its treatment of life as to wish immortality on another as an ideal. But I stopped myself from lending it any time, for fear it might become me.
+I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That evilest of wishes crossed my mind, too: so careless as to wish immortality on a friend instead of an acquaintence. But I stopped myself from lending it any time. _It doesn't become me_, as my mother would say.
 
 I asked hae, "What do you mean by 'ghost'?"
 
-Hae eyes looked past me as if imagining a beautiful place.
+Hae eyes looked past me as if imagining some other place.
 
 "I was there, with all of them. I knew I had died. And yet, I was at peace with it. It was the parasite. It keeps you barely alive and holds you in its own dream world."
 
-"That sounds amazing."
+"Parasite?"
 
-Hae eyes returned their gaze to me and resumed their worry.
+Hae eyes returned their gaze to me.
 
-"I cannot bring myself to leave. Ramne is there I know it," she said with trepidation, "But I will go with you if you promise me something, young maman."
+"I cannot bring myself to leave. Ramne is there. I know it," she said. "But I will go with you if you promise me something, young maman."
 
 _Maman... I'd never been called that._
 

@@ -8,13 +8,47 @@ But thi remained in a deep slumber that I thought it best not to disturb. I gent
 
 "Liffa..." I whispered to the air with parched lips. "What an awful thing to be greeted with."
 
-I held closely to the listener on my ear, trying to find a pattern in the noise. But there was nothing but static and the howl of wind upon my skin. The bright arc grew steadily fainter and fainter, then faded again into the night, returning me back to cove near Heiko.
+I held closely to the listener on my ear, trying to find a pattern in the noise. But there was nothing but static and the howl of wind upon my skin. The bright arc grew steadily fainter and fainter, then faded again into the night.
+
+"8 Tova'la left," I said to myself, recalling the times Jesse had confirmed.
 
 "You are not forgotten."
 
-I looked back at Laen sleeping face-to-face with Boon, wondered what they felt when they thought about Liffa or Pomri, if explaining it to them would be possible, or if it would even help. Maybe they simply trusted us to make things good in the end. How could I tell them that their companions were never coming back?
+I looked back at Laen sleeping face-to-face with Boon, wondered what they felt when they thought about Liffa or Pomri, if explaining it to them would be possible, or if it would even help. Maybe they simply trusted us to make things good in the end. I couldn't bear to tell them the truth.
 
-I walked outside shortly, being careful not to wander too far from cove. There was nary a sign of the scuffle that Annu had saved me from. The pebbles had been shuffled and the bodies reclaimed by the many fingers of the ocean. I searched the shoreline but could not find the place where Pomri had been taken. Time had erased any evidence of its happening, without which virtue could hold no contempt. Perhaps that's why they hunted the shoreline.
+With quiet steps I walked outside, being careful not to wander too far from cove. There was nary a sign of the scuffle that Annu had saved me from. The pebbles had been shuffled and the bodies reclaimed by the many fingers of the ocean. I searched the shoreline for the place where Pomri had been taken, but couldn't find it. The water had erased any evidence of its happening, without which virtue could hold no contempt.
+
+"Good Morning, Linyu," called Annu from afar.
+
+"You're walking now," I said in amazement, and noticed that thi had a caution with which thi took hae steps.
+
+"Only just," thi said nonchalantly, "My eyes are taking on the blue again."
+
+As thi walked closer, I could see the faint speckles growing in magnitude and number. I understood then how thi came to never die. That kanosin seemed to be growing inside of hae somehow. I came to hae and gestured on hae skin toward the kelp bandage on hae wound.
+
+"...May I?" I asked.
+
+Thi nodded, understanding my curiosity was for hae health. The bandage stuck well to hae skin, but I managed to peel a bit of it and saw only a mild scar. A swell of coruscating blue dots lie directly underneath.
+
+"Well, go on," thi said, gesturing to the bandage. Slowly, I peeled it away to reveal the entire scar. Somehow, one could tell that it had healed quickly; the skin seemed to grow at different rates, leaving a misshapen, jagged crevasse of young hydroderm. Around the old scar were older ones, some small, some large. There were far more than I could count in the moment before thi closed hae robes.
+
+"We should find a boat," thi said, "If you want to get to Ulukoma."
+
+"Large enough for two saffas," I noted.
+
+"We'll get two boats then. The saffas can paddle."
+
+I thought thi was joking at first, but a glance at hae face showed thi was serious.
+
+"A saffa paddling a boat?"
+
+"I've seen Boon and Laen in the water. They could swim the whole way to Ulukoma if the water wasn't so cold."
+
+I imagined them swimming in the ocean, and it looked so strange in my head.
+
+Thi said, "Either way, we should probably head to Rudjan. There will be boats there."
+
+"But we can't afford to hire any."
 
 <!--
 - Liffa's first bleed perigee
