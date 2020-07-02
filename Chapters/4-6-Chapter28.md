@@ -61,6 +61,12 @@ There was no way around the wall. And that was only the first step.
 "Ramne brought me here. I think I was asleep at that time."
 
 <!--
+
+the ship from Shinna comes to the rescue!!!
+
+ -->
+
+<!--
 - Liffa's first bleed perigee
 - Linyu sees that Annu's wound has healed
 - Setre has landed to search for Linyu and Pomri
