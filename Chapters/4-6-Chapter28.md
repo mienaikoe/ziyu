@@ -32,23 +32,33 @@ Thi nodded, understanding my curiosity was for hae health. The bandage stuck wel
 
 "Well, go on," thi said, gesturing to the bandage. Slowly, I peeled it away to reveal the entire scar. Somehow, one could tell that it had healed quickly; the skin seemed to grow at different rates, leaving a misshapen, jagged crevasse of young hydroderm. Around the old scar were older ones, some small, some large. There were far more than I could count in the moment before thi closed hae robes.
 
-"We should find a boat," thi said, "If you want to get to Ulukoma."
+"Come now. Let's get you back to Ulukoma," thi said.
 
-"Large enough for two saffas," I noted.
+"We need a ship," I noted. "For the saffas."
 
-"We'll get two boats then. The saffas can paddle."
+"A ship would be difficult to find and even harder to steal. Two canoes should suffice."
 
-I thought thi was joking at first, but a glance at hae face showed thi was serious.
+I thought thi was joking at first, but a glance showed thi was serious.
 
-"A saffa paddling a boat?"
+"A saffa in a canoe?"
 
-"I've seen Boon and Laen in the water. They could swim the whole way to Ulukoma if the water wasn't so cold."
+"I've seen them in the water. They could swim the whole way to Ulukoma if the water wasn't so cold."
 
-I imagined them swimming in the ocean, and it looked so strange in my head.
+I imagined Boon and Laen swimming, their fuzzy heads jutting above the waves and wide paws pushing against the current. It looked so strange in my head, but I conceded that two canoes might be our only option.
 
-Thi said, "Either way, we should probably head to Rudjan. There will be boats there."
+"Rudjan," thi said, "That's the only place we'll be able to find them."
 
-"But we can't afford to hire any."
+I imagined the impenetrable walls of Rudjan. How they filled out into the ocean to divide the throngia from the saffas and tilmarims; at least that's what Pomri had told me.
+
+I looked over to Annu and asked, "You've been to Rudjan, right?"
+
+"Yea..." thi said, thinking the same thing. "Well what if– ... no... but..."
+
+There was no way around the wall. And that was only the first step.
+
+"Annu. What did you take to get here?"
+
+"Ramne brought me here. I think I was asleep at that time."
 
 <!--
 - Liffa's first bleed perigee

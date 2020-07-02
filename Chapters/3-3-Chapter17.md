@@ -75,7 +75,7 @@ Bavle approached the saffa while she continued with her friend, "Oh I've missed 
 
 "I will. Just gotta save the world first," she responded.
 
-"Just another day for you," she said with a voice almost motherly. "Well, the docks aren't big enough for saffas so you'll have to leave them here. They'll be safe on these wetlands as long as they're well trained. And I assume since you made it this far, that won't be an issue?"
+"Just another day for you," she said with a voice almost motherly. "Well, the dockways aren't big enough for saffas so you'll have to leave them here. They'll be safe on these wetlands as long as they're well trained. And I assume since you made it this far, that won't be an issue?"
 
 Melna said, "Yes, of course," remembering to herself how fussy Laen-Laen could get if he wasn't well fed.
 
@@ -159,7 +159,7 @@ Thi moved to turn over the fish and bread on the pipe.
 
 "Well, I suppose the Tilmarim would do."
 
-Melna was getting irritated. "I suppose that I'm asking something deeper. When do you start to call the shots? When do you stop blindly trusting an unkeepable promise and seek survival on your own terms?"
+Melna was getting irritated. "I'm asking... something deeper. When do you start to decide for yourself? When do you stop blindly trusting an unkeepable promise and seek survival on your own terms?"
 
 "We have enough grain from Heiko to keep us going until Holrag figures out what's going on."
 

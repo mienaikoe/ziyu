@@ -210,7 +210,7 @@ Linyu looked in her direction with a vacant face, annoyed that she was talking a
 
 Pomri shot her a glare, and continued teaching.
 
-"The saffa and tilmarim that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained to live in peace."
+"The saffas and tilmarims that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained with them to live in peace."
 
 "The settlers tricked them into fighting each other."
 
@@ -226,7 +226,15 @@ Pomri shot her a glare, and continued teaching.
 
 Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
 
-"Now that you know about our history, let me tell you about the bridge we're crossing."
+"Anyway, after much bargaining we came to a mutual agreement. The walls of Rudjan were built to keep saffas and tilmarim out and throngia in."
+
+"Your ancestors were afraid of cuddly creatures with vendettas."
+
+"Melna!"
+
+She snickered under her breath so only Linyu could hear.
+
+"Anyway, now that you know about our history, let me tell you about the bridge we're crossing."
 
 Linyu leaned back against Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
 
