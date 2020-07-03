@@ -154,11 +154,11 @@ I took note of the kanosin blue in hae eyes: faint but evident. If thi had been 
 
 "Gi- Annu. We must find the boat and get you to safety."
 
-"Boat? Safety? Bah - they're both gone."
+"The boat is gone."
 
 "What do you mean?"
 
-"He took it," thi said. Her voice was cryptic and longing tone.
+"He... took it," thi said. Her voice was cryptic and longing tone.
 
 "...Who?"
 
