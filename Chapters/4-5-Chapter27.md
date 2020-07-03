@@ -142,75 +142,99 @@ A brief glimpse of her death flashed in my mind, and all the myriad emotions tha
 
 Hae voice perked up, "_You_ know Melna?"
 
-"She took me in when I woke up in Heiko," I said, grasping at my own voice for answers, "We fled with Pomri to Rudjan, but then we were separated. Spies."
+"She took me in when I woke up in Heiko," I said, grasping at my own voice for answers, "We fled with Pomri to Rudjan, but then we were separated. Pomri wounded a slaver that tried to kidnap me, so we hid and fled back to Heiko."
 
-I regained my pride for her. "She prepared her people for what was to come. Bought us time to save most of them."
+I felt a sense of pride. "I heard Melna on my listener. Speaking to all of us. She prepared her people for what was to come. And she bought my people enough time to save most of them."
 
-In a slow gesture, thi grasped my hands with hae own and held silence between our palms.
+Thi lit up. "Did she survive the explosion?"
 
-"Melna brought me an antidote," Thi explained, "I was born in the dark, blind, but by whatever magic she infused in that glass vial of hers, I was able to see again. I jumped ship and swam to the shore, but she chose to stay behind. Perhaps she had some unfinished business to tend to."
+I remained silent and hae face returned to its position.
+
+"Nothing would have stopped her," thi said. "She knew her people were in danger and that was enough."
+
+In a slow gesture, thi grasped my hands with hae own and held silence between our palms. I searched for her spirit, for Kipnu and Pomri, for my mother. But there was only absence.
+
+"Melna saved me," thi said. "I was... on a ship. I woke up blind and disoriented, in a satchel underneath the deck of a ship. I didn't even know my own name."
 
 I took note of the kanosin blue in hae eyes: faint but evident. If thi had been given antikan, then thi must have had another dose of kanosin afterward. But how?
 
-"Gi- Annu. We must find the boat and get you to safety."
+"Every so often, a man would come down and ask me strange questions about someone I never knew and if I didn't know the answer he would cut me open and leave me to bleed out on the floor until I woke up again, the floor having been washed anew. He trapped me there, teetering between life and death. I died so many times I can no longer remember. But always, life was at the other end."
 
-"The boat is gone."
+"You... can't die?"
+
+"It is an illness, and I would rather be rid of it. I fear life, for life means another death is coming."
+
+I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That most evil of thoughts crossed my mind, too. To exchange the life of a friend for that of an acquaintence. But I stopped myself from lending it any time. _It doesn't become me_, as my mother would say.
+
+"What is his name?" I asked.
+
+Thi paused, mustering the strength to say his name.
+
+"Ramne."
+
+The pores in my skin contracted.
+
+Thi took a deep, painful breath.
+
+"Ginnu once loved him, or so he would tell me. I used to think that meant I had to find a way to love him again. That recovering my past life would make me whole again. But Melna saw the new me, the real me. 'Your body is a vessel for the many lives that may fill and empty through it,' she told me. 'Whatever may have filled it before does not affect the beauty that fills it now.' She gave me the gift of sight by some magic potion in that glass vial."
+
+_Parnu kept his word._
+
+"She set me free in more ways than one. I owe her my life and any that come after to her."
+
+The thought came to me again, this time with a wonder if I might lose Annu too. Maybe I shouldn't be so invested.
+
+"Gi- Annu. We need to find the boat so we can–"
+
+"The boat is... gone."
 
 "What do you mean?"
 
 "He... took it," thi said. Her voice was cryptic and longing tone.
 
-"...Who?"
+"Who"
 
-Thi paused, struggling to come up with the thoughts that would lead her to the words thi wanted to say.
+"Ramne. He came upon the cove right after you left. I didn't have the heart to fight him alone."
 
-"I was born in the darkness. A place where life and death no longer held any meaning. I was a ghost there, one of millions. But He... he brought me back to the world of the living."
+"What did he want with the boat?"
 
-My breaths were shallow with a terrified imagination of such a place, but still I pressed.
+"He didn't say. But he paddled off into the darkness of Ulu."
 
-"What is his name?" I asked.
+_Dammit_
 
-Thi said with a shudder, "Ramne."
+"We need to follow him. I think he might be going to Ulukoma to start something."
 
-The pores in my skin contracted. _What is he up to now?_
+"I... I can't go back."
 
-"He stole death from me. I was his murder slave. Trapped on his ship, teetering between life and death. I was unable to see, to escape. Then Melna set me free. I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of."
+"Why not?"
 
-"You... can't die? But that's–"
-
-"A gift? I don't fear death, maman, I fear life. For life means another death is coming."
-
-I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That evilest of wishes crossed my mind, too: so careless as to wish immortality on a friend instead of an acquaintence. But I stopped myself from lending it any time. _It doesn't become me_, as my mother would say.
-
-I asked hae, "What do you mean by 'ghost'?"
-
-Hae eyes looked past me as if imagining some other place.
-
-"I was there, with all of them. I knew I had died. And yet, I was at peace with it. It was the parasite. It keeps you barely alive and holds you in its own dream world."
-
-"Parasite?"
+"I have visions sometimes. Like a memory that I forgot. There is a place of darkness where life and death no longer hold any meaning. I'm a ghost there, one of millions. And he's there too. I can't see them but I can feel them. All of us are aware of our deaths. But we are at peace knowing it."
 
 Hae eyes returned their gaze to me.
 
-"I cannot bring myself to leave. Ramne is there. I know it," she said. "But I will go with you if you promise me something, young maman."
+"The vision ends under the dark sky of Ulu, looking out from that cursed ship at an island that gets smaller and smaller. I feel like I've been there a thousand times, yet still it doesn't feel like home. I am afraid of what I might find there."
+
+"Annu, you don't have to come with me but I must go. My nather and my people are in danger."
+
+Thi looked through me, into the void, terrified at the imaginings in hae head.
+
+Thi pleaded to me, "I will go with you if you promise me something, young maman."
 
 _Maman... I'd never been called that._
 
-I bowed my head curtly in confirmation.
-
-She continued, "If you see Ramne, or hear of him. Run. Run far far away and never come back."
+"If you see Ramne, or hear of him. Run. Run far far away and never come back."
 
 "What about you?"
 
 "You heard me."
 
-Hae memories were shrouded from me but haunted me nevertheless. What deed so terrible could Ramne have done to cause such pain. And to what end?
+Hae stories shook me. Why would Ramne do such awful things to someone? What was his end goal?
 
-The sound of distant waves and the tiny plops of water on rocky puddles filled me, carried me away to the depths of my mind. Anny saw how I'd been spooked and held my hand, calmed me with the warmth of hae touch and the sound of hae voice.
+The sound of distant waves and the tiny plops of water on rocky puddles filled me, carrying me back into my thoughts. Annu saw that I was thinking deeply and held my hand, calmed me with the warmth of hae touch and the sound of hae voice.
 
 "Your hearts are full," thi said running hae fingers through my hair. Hae voice was like a pool of warm water in the frozen air.
 
-"Full of fear," I replied, "Of anger."
+"Full of fear," I replied.
 
 "And of love. You cared for Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have his eyes. Cunning, determined. You see the flow of old and new, a vast continuum upon which life wanders. You will be a great leader someday, in a time long from now, where everything old has been lost, and make room for the new."
 
@@ -218,7 +242,7 @@ I tried to understand what thi was saying, but I was frustrated. "I have no powe
 
 "Shh...," thi said. "You will see what I can see. One day."
 
-I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again. I stood up, contemplating what her life might be like from now on. And then I remembered the stories my nather told me: of mining for ore, escaping from Holrag. And I couldn't hold in my anger any loonger.
+I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again. I stood up, contemplating what her life might be like from now on. And then I remembered the stories my nather told me: of mining for ore, escaping from Holrag. And I couldn't hold in my anger any longer.
 
 "They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts. "All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them. Ulukoma is next."
 

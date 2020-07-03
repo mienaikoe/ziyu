@@ -22,9 +22,11 @@ With quiet steps I walked outside, being careful not to wander too far from cove
 
 "You're walking now," I said in amazement, and noticed that thi had a caution with which thi took hae steps.
 
-"Only just," thi said nonchalantly, "My eyes are taking on the blue again."
+"Only just," thi said nonchalantly, "My eyes are taking on the blue again, and I can't sleep."
 
-As thi walked closer, I could see the faint speckles growing in magnitude and number. I understood then how thi came to never die. That kanosin seemed to be growing inside of hae somehow. I came to hae and gestured on hae skin toward the kelp bandage on hae wound.
+"The visions?"
+
+Thi nodded. As thi walked closer, I could see the faint speckles growing in magnitude and number. I understood then how thi came to never die. That kanosin seemed to be growing inside of hae somehow. I came to hae and gestured on hae skin toward the kelp bandage on hae wound.
 
 "...May I?" I asked.
 
@@ -58,7 +60,11 @@ Even if we could pass the wall, we would face countless obstacles that, if faile
 
 "Shh- do you hear that?" thi said. For once I wasn't the first to hear a thing.
 
-I removed the listener and put my ear to the wind. In the darkness of the ocean, I heard a maman's voice calling, "One Lao'ka to go, mates. Steady your pace."
+I removed the listener and put my ear to the wind. In the darkness of the ocean, I heard a maman's voice call out, "One Lao'ka to go. Steady your paddles."
+
+"Looters?" I asked Annu.
+
+"No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
 
 <!-- "Annu. What did you use to get here?"
 

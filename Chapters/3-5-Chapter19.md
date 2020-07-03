@@ -214,7 +214,11 @@ Melna gently pulled hae closer to the light and observed even more bruises and w
 
 "I don't know," thi said, "But whoever I was, I don't want to be hae anymore."
 
-Melna smiled and said, "I'm glad," but silently she knew that she had to get hae away from him.
+Melna smiled and said, "Your body is a vessel for the many lives that may fill and empty through it. Whatever may have filled it before does not affect the beauty that fills it now."
+
+The maman smiled. "That's the best thing anyone has ever said to me," thi said with a cracked voice. "I hope the rest of the world is as gracious as you."
+
+Melna smiled and fought back telling hae the truth.
 
 "Come with me to Heiko," Melna asked.
 
@@ -248,7 +252,7 @@ She eyed him up and down, and felt a wave of disgust wash over her.
 
 "Why don't you take your stories somewhere else?"
 
-"Ah I see. Why am I even here?" he asked disingenuously. "Well I figured you'd have met my litle blue-eyed monster by now, and well, that bothers me a little bit." He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
+"Ah I see. Why am I even here?" he asked disingenuously. "Well I figured you'd have met my little blue-eyed monster by now, and well, that bothers me a little bit." He moved from the pillar, closer to Melna, and stood facing her eye-to-eye.
 
 "Caus I rather like keeping that thing a secret."
 
