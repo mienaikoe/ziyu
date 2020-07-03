@@ -172,7 +172,7 @@ My breaths were shallow with a terrified imagination of such a place, but still 
 
 Thi said with a shudder, "Ramne."
 
-The pores in my skin contracted.
+The pores in my skin contracted. _What is he up to now?_
 
 "He stole death from me. I was his murder slave. Trapped on his ship, teetering between life and death. I was unable to see, to escape. Then Melna set me free. I have died so many times I can no longer remember. But always, life is at the other end. It is an illness I would rather be rid of."
 
@@ -212,11 +212,11 @@ The sound of distant waves and the tiny plops of water on rocky puddles filled m
 
 "Full of fear," I replied, "Of anger."
 
-"And of love. You cared for Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have the eyes of Ramne, cunning, determined. You see opportunity and destruction as one, a vast continuum upon which we all wander about. You will be a great leader someday, in a time without time."
+"And of love. You cared for Melna. And you care for Pomri. More than you care for yourself. But you are conflicted. You have his eyes. Cunning, determined. You see the flow of old and new, a vast continuum upon which life wanders. You will be a great leader someday, in a time long from now, where everything old has been lost, and make room for the new."
 
-But I was frustrated. "I can barely understand what's happening. How can I lead something. What comes next?" I asked.
+I tried to understand what thi was saying, but I was frustrated. "I have no power, no talents. I command respect from no one. How can I lead without–"
 
-Thi said, "You must reach that end yourself."
+"Shh...," thi said. "You will see what I can see. One day."
 
 I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again. I stood up, contemplating what her life might be like from now on. And then I remembered the stories my nather told me: of mining for ore, escaping from Holrag. And I couldn't hold in my anger any loonger.
 

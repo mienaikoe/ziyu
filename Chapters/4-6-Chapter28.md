@@ -54,15 +54,23 @@ I looked over to Annu and asked, "You've been to Rudjan, right?"
 
 "Yea..." thi said, thinking the same thing. "Well what if– ... no... but..."
 
-There was no way around the wall. And that was only the first step.
+Even if we could pass the wall, we would face countless obstacles that, if failed, would mean death or enslavement. There had to be another way.
 
-"Annu. What did you take to get here?"
+"Shh- do you hear that?" thi said. For once I wasn't the first to hear a thing.
+
+I removed the listener and put my ear to the wind. In the darkness of the ocean, I heard a maman's voice calling, "One Lao'ka to go, mates. Steady your pace."
+
+<!-- "Annu. What did you use to get here?"
 
 "Ramne brought me here. I think I was asleep at that time."
+
+"But if Ramne had to steal a boat, then he must have lost his last one. I wonder where  -->
 
 <!--
 
 the ship from Shinna comes to the rescue!!!
+
+or.. bail-out boats
 
  -->
 
