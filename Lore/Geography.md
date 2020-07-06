@@ -37,14 +37,14 @@ X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth"
 
 Distance is measured in ratios of circumference of the planet, and divided in twelves. Lao means "arc", and can be used for angles as well, but is often used in reference to distance in general conversation. The observers use Lao to refer to angles on the sky.
 
-- Lao/Arc 1 circumference of Palinan ~18,000 miles, roughly between mars and earth
+- Lao/Arc 1 circumference of Palinan ~18,000 miles, roughly the avg circum of mars and earth
 - Lao'la 1/12 circumference ~1500 miles, roughly miami -> new york
 - Lao'na 1/12 Lao'la ~125 miles, roughly cleveland -> ohio
 - Lao'ka 1/12 Lao'na ~10 miles, roughly manhattan -> flushing
 - Lao'sa 1/12 Lao'ka ~0.86 miles, roughly a mile
 - Lao'va 1/12 Lao'sa ~380 feet, roughly a football field
 - Lao'ta 1/12 Lao'va ~31 feet, roughly 5 people height
-- Lao'cha 1/12 Lao'ta ~2.6 feet, also called a pace
+- Lao'cha 1/12 Lao'ta ~2.6 feet, also called a _pai_ or pace
 
 ## Dimension
 

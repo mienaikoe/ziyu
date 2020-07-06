@@ -56,15 +56,37 @@ I looked over to Annu and asked, "You've been to Rudjan, right?"
 
 "Yea..." thi said, thinking the same thing. "Well what if– ... no... but..."
 
-Even if we could pass the wall, we would face countless obstacles that, if failed, would mean death or enslavement. There had to be another way.
+I interrupted hae, "Even if we could pass the wall, we'll face many more obstacles. If we fail any of them, it means death or enslavement. There has to be another way."
 
 "Shh- do you hear that?" thi said. For once I wasn't the first to hear a thing.
 
-I removed the listener and put my ear to the wind. In the darkness of the ocean, I heard a maman's voice call out, "One Lao'ka to go. Steady your paddles."
+I removed the listener and put my ear to the air. In the dead air, I could hear the sound of lazy oars splashing through the slush out of time.
 
 "Looters?" I asked Annu.
 
 "No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
+
+In the darkness of the ocean, a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
+
+Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi loudly yelled, "Shinna!" as if hae belly no longer hurt.
+
+The oars cut back to a silence, but no response came.
+
+"You know them?" I asked.
+
+"I know that voice, I heard it often when I was stowed away on Ramne's ship."
+
+"How do you know we can trust them?"
+
+"There's a reason Ramne had to steal a boat."
+
+I smiled and couldn't wait to meet our new friends.
+
+"Shinna! It's Ginnu!" thi yelled again.
+
+The water remained silent for a moment more, then began with quiet disquiet, rummaging through the water. The sound followed a path toward the shore some fifty paces toward Rudjan. I looked to Annu who looked back at me with hae hand extended in a gesture of fellowship. I took it in mine, and together we walked along the shoreline toward the place where they were about to land.
+
+"Let's take a break all," Shinna said as their boat slid itself to a stop upon the sandy sea floor. A woman left the boat with a rope in hand and came ashore looking for a place to tie the other end. The rest sat forward on their benches, sprawled out upon their oarshafts to relieve their muscles.
 
 <!-- "Annu. What did you use to get here?"
 
