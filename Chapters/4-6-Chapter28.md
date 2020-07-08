@@ -150,9 +150,9 @@ Thi began to consider the offer.
 
 "And what about our next meal? Saving Liffa can only rouse a group so much. The rest is up to food."
 
-"Did Lissa and Ramne never feed you? We have stockpiles of smoke-dried fish and kelp for our many feasts."
+"Did Lissa and Ramne never feed you? We have stockpiles of bread, kelp, and smoke-dried fish for our feasts."
 
-"Slave labor, no doubt."
+"Made by slave labor, no doubt."
 
 "That's old Ulukoma. We don't do that anymore."
 
