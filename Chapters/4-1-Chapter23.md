@@ -1,5 +1,36 @@
 ## Chapter 23
 
+"So that's how it happened?"
+
+"I did what I could"
+
+My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma.
+
+"Where were you, nana? You promised to save hae."
+
+"The fire... it took me by surprise."
+
+"You. Promised."
+
+She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand off.
+
+"Linyu, we did what we could. The fire... surprised everyone. We were already engaged by the time-"
+
+"Fuck the fire," I growled and stood up. "A promise means 'no matter what'."
+
+"Linyu," she called to me as I stormed behind the ziyu, "stop this nonsense."
+
+I turned and screamed at her, "Everyone I love has died, and you dare call my feelings nonsense? Have some fucking empathy, nana."
+
+She looked at me, speechless, in a sort of way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take the patience of hae nather for granted. But her shock drove her away instead. She was my nather, but my mother raised me alone.
+
+I raised the microphone on the ziyu and spoke to hae.
+
+"Liffa. I don't know if you can hear this. I want you to know, that everything is quickly turning to chaos down here. But you are not forgotten. I'm trying to figure out where you'll land so I can get to you. If you can hear this... please send some sort of signal."
+
+The silence and static in my listener grew but my finger lingered on the speaking lever, waiting for a moment of hope. It didn't come.
+
+<!--
 "Liffa!"
 
 I stood in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of its urgency.
@@ -12,9 +43,9 @@ The silence grew but my hand ignored it. Setre said, "That's enough. They'll fin
 
 "So let them! We can fight!" I responded.
 
-"You have much to learn, Linyu. Now, stop this nonsense and come sit with the others."
 
-"Why are we just sitting here?!"
+
+"What good is sitting going to do?!"
 
 She looked at me in a way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take the patience of hae nather for granted.
 
@@ -32,11 +63,12 @@ I caught her meaning, albeit a little late, but she saw the value in this moment
 
 Her voice had calmed to a cajole, "By talking to the people around you. Now let's head back and start doing that."
 
-Reluctantly, I nestled the microphone onto a bend in the branches and looked out into the crowd of Heikoans and Ulukomans. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life.
+Reluctantly, I nestled the microphone onto a bend in the branches and
+ -->
 
-These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
+I looked out into the crowd of Heikoans and Ulukomans. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
-"Setre, we need to talk," said Pomri, approaching. I kept my position behind my nather, so as to avoid being a distraction, but I listened closely at what they had to say.
+"Setre, we need to talk," said Pomri, approaching her. I kept my position by the tree and listened closely.
 
 "Pomri," she spoke her name with pity, empathizing about Melna's loss. But Pomri was focused on her people.
 
@@ -50,11 +82,11 @@ She heard Pomri, and wanted to believe her, but she knew the power of the weapon
 
 "They will not stop. Not until everyone is under their thumb."
 
-"Then let us prick the thumb with sword and spear," she said with nearly a smile, "until there is no more blood to spill."
+"Then let us prick the thumb," she said, "'til there is no more blood to spill."
 
 Setre let out a sigh, seeing that she wouldn't be able to convince her that easily.
 
-"Look," Pomri said, "Maybe it's not high on your list of priorities right now, but this is for closure. We need to be able to say that we did all we could in the aftermath."
+"Setre," Pomri said, "This is for closure. We need to be able to say that we did all we could in the aftermath."
 
 "You already know what I'm going to say."
 
@@ -72,13 +104,11 @@ They stared at each other intensely, knowing they were not likely to reach an ag
 
 Setre spoke with gravity, as if to lay a blanket upon the conversation, "We're staying here."
 
-Pomri leaned back without breaking eye contact and looked at Setre sardonically.
+Pomri leaned back without breaking eye contact and gave Setre a sardonic look.
 
 "I understand," she said coldly. And without hesitation, she walked away and sat back down with a group that had kept space for her beside a fire. I jolted forward to walk with her, but my nather held me back, saying "Don't follow her, Linyu. Her judgment is clouded by anger." But I knew Pomri, had seen her act and heard her think. I knew that her judgment was not clouded, but could do nothing to change my nather's mind.
 
-"Linyu, I need your help," she stooped down and held my head a bit. "Sit on that branch while I speak to the group and watch how people react to what I say."
-
-I nodded in approval, taking up post in my usualy crevasse during talks. She stood upon the lip of the basin and took my hand into hers. The crowd, thousands strong, spared no time in quieting down to listen to what she had to say.
+Setre moved to stand upon the lip of the fire basin and took a blazing branch from the largest fire. The crowd, thousands strong, spared no time in quieting down to listen to what she had to say.
 
 "Alright everyone, it's time we explained to you what's happening."
 
@@ -130,17 +160,11 @@ All in the group hesitated, and Melna grew more frustrated. This was basic work 
 
 She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
 
-Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukoman maman assured her that the drug would work.
+Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukoman woman assured her that the drug would work.
 
-"Setre's kaln, I reckon," she greeted me as I approached. "I'm Fanla."
+"You know what you're doing," I said to the older woman, observing her movements.
 
-"You know what you're doing."
-
-"A good man taught me for only a short while, but I've had a lot of practice over the past few days."
-
-"Kipnu," I responded.
-
-"Y-Yes," she was surprised.
+"Kipnu taught me for only a moment, but I've had a lot of practice over the past few days."
 
 Her eyes looked closer at me for some sort of answer, and saw my eager face.
 

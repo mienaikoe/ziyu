@@ -66,7 +66,7 @@ I removed the listener and put my ear to the air. In the dead air, I could hear 
 
 "No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
 
-In the darkness of the ocean, a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
+In the darkness of the ocean, six lanterns suspended on the crooks of Rudjanese boats appeared, and a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
 
 Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi loudly yelled, "Shinna!" as if hae belly no longer hurt.
 
@@ -86,7 +86,117 @@ I smiled and couldn't wait to meet our new friends.
 
 The water remained silent for a moment more, then began with quiet disquiet, rummaging through the water. The sound followed a path toward the shore some fifty paces toward Rudjan. I looked to Annu who looked back at me with hae hand extended in a gesture of fellowship. I took it in mine, and together we walked along the shoreline toward the place where they were about to land.
 
-"Let's take a break all," Shinna said as their boat slid itself to a stop upon the sandy sea floor. A woman left the boat with a rope in hand and came ashore looking for a place to tie the other end. The rest sat forward on their benches, sprawled out upon their oarshafts to relieve their muscles.
+Three boats slid to a stop upon the sandy sea floor, their crew sitting forward on the benches, sprawled out upon their oarshafts to relieve their muscles. A maman hopped down from the back of the middle boat with a rope and lantern, and waded toward the land trying to make out anything identifiable.
+
+"Is anyone there?" thi called to the darkness, "Ginnu?"
+
+Annu waited for a moment, observing hae with caution. Thi opened up once thi felt ready, "Shinna, over here!"
+
+The maman paused and looked our way, hae eye catching the both of us.
+
+"Ginnu! is that really you?" thi exclaimed. Annu and I waded out to meet hae voice, while Shinna waded as far as hae rope would allow.
+
+"Melna told me what happened," said Shinna. There was a guilt about hae voice. "I didn't believe what she said until I saw the evidence."
+
+"I owe her everything."
+
+Shinna turned hae sight toward me, and then toward something behind me. I turned to see Laen and Boon walking toward us.
+
+"Looks like you've met some friends."
+
+"Linyu and these saffas have been throught a lot," thi said with an air of endearment. "But I'm glad they found me."
+
+"Let me find a rock 'n we can talk more on land."
+
+Thi found a sturdy rock to bind the rope to and with a few flicks of the wrist thi commuted a series of loops along the length of the rope, pulling it to and fro. As if from nowhere, a wide knot encircled the rock and held fast. I gasped in awe while Annu pulled me from my trance out of the cold water.
+
+"Ginnu," Shinna began, "I... I'm sorry I never checked on you."
+
+"Don't," thi swallowed hae emotions. "It exists only in the past. Leave it there."
+
+"I just... he promised us that you were a friend. That you wanted to remain discreet."
+
+"I can't fault you for things you didn't know."
+
+"It is my duty to know what happens on my ship."
+
+"Shinna, you can sulk about it all you want, but the past is the past. I'm done with that man. and I'd like it to stay that way."
+
+Thi bowed hae head, hae guilt defeated.
+
+Annu continued, "That name: Ginnu. It's what Ramne called me, but it's not who I am. My name is Annu."
+
+"Annu... I won't forget it," thi said solemnly. "Annu and Linyu. Mamen of the dark."
+
+I blushed, feeling vindicated at being called a maman again. I hadn't felt like a kaln since my mother-
+
+Annu changed the subject, "About your boat. We need a way to Ulukoma."
+
+"Why in Ara would you want to go there at a time like this?"
+
+"It's... complicated. And I don't completely understand it either. But I can assure you that it's the only place left in the world for us."
+
+"Bit dramatic, eh?" thi said. "My crew is already pretty demoralized. We just lost our ship and half our people to the blast. We've been rowing back home ever since. I couldn't very well convince them to row two strangers and their saffas out into colder waters on just a promise. Why don't you join us to Rudjan and then we'll get you sorted."
+
+"The saffas can paddle," said Annu, pleading to Shinna with the last of hae bargaining chips.
+
+I let go of Annu's hand and stepped forward, channeling my mother's bravery and trying on my gravest voice. "You saw that arc in the sky, cutting just above Heiko City?"
+
+"We did. It struck the fear in our bones, that another blast might be coming." Thi knealt to my level. "You know what it was?"
+
+"Liffa," I said with my best deadpan voice, "The great space hero, Melna's bundmaman. Thi is still up there, orbiting around the planet, but not forever. I know exactly when and where thi will land, but Liffa will drown unless we are there to pull hae out of the water."
+
+Thi began to consider the offer.
+
+"And what about our next meal? Saving Liffa can only rouse a group so much. The rest is up to food."
+
+"Did Lissa and Ramne never feed you? We have stockpiles of smoke-dried fish and kelp for our many feasts."
+
+"Slave labor, no doubt."
+
+"That's old Ulukoma. We don't do that anymore."
+
+"Yet still you benefit from their labor."
+
+"It would be wasteful to throw it away."
+
+"Oh I know. I'm simply waxing philosophical, wondering what will happen when those coffers are empty."
+
+"We will all be sleeping soundly in the Palace of Ghosts by then."
+
+"Palace of Ghosts, eh? And I presume that's the world-saving invention that Annu was talking about?"
+
+I nodded. Thi thought some more, looking at different parts of the air.
+
+I pleaded to hae, "Let me speak to them if-"
+
+"No need," thi said with a hand outstretched to quiet me, "We will take you and your saffas."
+
+Thi started toward hae crew, but stopped in the middle of the first step.
+
+"But if that kelp is shit-tier, you're dead."
+
+Shinna yelled out to hae crew, "Change of plans. We're headed toward Ulukoma for a feast! And we have some saffas to help us paddle."
+
+A random voice badgered hae from the shadow, "Can we eat the saffas?" followed by muted laughter from the rest.
+
+Thi replied, "I hear one of them has a palate for throngi. Perhaps you'd like to test the rumor?"
+
+The laughter had died in an instant.
+
+Annu nudged me in the shoulder with a giant grin on hae face.
+
+"Palace of Ghosts," thi said chuckling under hae breath.
+
+"What?" I asked coyly, but thi just held the grin and called the saffas.
+
+Shinna loaded Laen and Boon onto the outer boats with Annu and me laying on their backs to keep them warm. Surely as Annu had said, Laen and Boon immediately took to paddling in the water as if they had always known. Shinna's crew filled into the center boat and tethered their boat to both of ours – a sort of precaution against theft.
+
+I leaned forward into Laen's back and nuzzled my face his through his fur.
+
+"Time to save Liffa," I whispered.
+
+"Woooop!"
 
 <!-- "Annu. What did you use to get here?"
 

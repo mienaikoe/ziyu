@@ -194,11 +194,11 @@ The thought came to me again, this time with a wonder if I might lose Annu too. 
 
 "Who"
 
-"Ramne. He came upon the cove right after you left. I didn't have the heart to fight him alone."
+"Ramne. He came to the cove right after you left. I hid myself in fear."
 
 "What did he want with the boat?"
 
-"He didn't say. But he paddled off into the darkness of Ulu."
+"I don't know. The last I saw of him, he was paddling off toward Ulu."
 
 _Dammit_
 
@@ -244,15 +244,21 @@ I tried to understand what thi was saying, but I was frustrated. "I have no powe
 
 I took a few deep breaths and set my mind back into the calm of its deepest parts. Pomri came to mind and the frantic feeling took hold again. I stood up, contemplating what her life might be like from now on. And then I remembered the stories my nather told me: of mining for ore, escaping from Holrag. And I couldn't hold in my anger any longer.
 
-"They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts. "All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them. Ulukoma is next."
+"They're still out there, hunting us down," I said, standing up. Instinctively, I began to pace around in a circle, holding a head full of the worst imagined thoughts. "All of Heiko has been exiled, enslaved, murdered. They didn't want to live the last of their days in the shadow of a tyrant. So the tyrant erased them."
 
-I was angry now, recalling every injustice, every act of intimidation and coercion. And my face was flush with water.
+I was angry now, recalling every injustice, every act of intimidation and coercion.
 
-"Dammit!!" I screamed and my voice reverberated across the walls, reaching into every corner and every rock. A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles.
+"We need to fight back. We need to go after Pomri."
+
+"You can't track a boat that travels underwater."
+
+"Dammit!!" I screamed and my voice reverberated across the walls, reaching into every corner and every rock. "I'm not losing another one. Not again!"
+
+A soft whine echoed faintly through the air, joined by a chorus of heavy footsteps upon the pebbles.
 
 "Boon..."
 
-She walked slowly to us, sniffed on me and laid herself next to Laen with a deep sigh. There was an air of despair in that cove that I had never felt before: the feeling of giving everything for nothing. Not for a lack of effort or willpower, but a lack of weapons and ambition. But in that same space, we opened our hearts for some kind of hope that wait for us in the darkness. It drove us just enough to not want to end it all.
+She walked slowly to us, sniffed on me and laid herself next to Laen with a deep sigh. There was an air of despair in that cove that I had never felt before: the feeling of giving everything for nothing. Not for a lack of effort or willpower, but a lack of access to technology. But in that same space, we opened our hearts for some kind of hope that wait for us in the darkness. It drove us just enough to not want to end it all.
 
 Annu let haeself onto the floor in front of Boon, trying to comfort her with gentle pats of her shoulder.
 
@@ -268,7 +274,7 @@ I realized in an instant what she meant, and the disparate knowings that jumbled
 
 "The obscura," I said.
 
-Thi nodded. "There is another time, far beyond the time that we can see."
+Thi nodded. "There is another time, far beyond the horizon we see in this one."
 
 "A hundred lifetimes," I whispered.
 
