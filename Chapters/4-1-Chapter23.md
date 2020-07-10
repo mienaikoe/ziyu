@@ -92,7 +92,7 @@ Setre let out a sigh, seeing that she wouldn't be able to convince her that easi
 
 Pomri cursed the wind and turned away, looking at nothing in particular.
 
-Melna tried persuasion, "Let's give our people some rest for a time. "They've been through a lot."
+Melna tried to persuade her, "Let's give our people some rest for a time. "They've been through a lot."
 
 "Do you think any of us can rest at a time like this? Every idle moment could be a life saved from the rubble–"
 
@@ -128,9 +128,9 @@ Her voice broke a little but she maintained herself. I squeezed her hand a littl
 
 She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal. You can live out the rest of your days here, fishing, kelping, rebuilding, leaving a legacy to the survivors of the obscura. But to get to that point, we need to take things a day at a time. Right now, we need to figure out how to feed everyone and rebuild shelter from the snow."
 
-She pointed to a group of Ulukomans near her, focusing on a man and a maman, both of them fit enough to hold .
+She pointed to a group of Ulukomans near her, focusing on a man and a maman, both of them fit enough to carry an entire tree between them.
 
-"Kinsho will lead the fishers. Senri, the kelpers. If you are a constructor, come to me."
+"Kinsho will lead the fishers. Senri, the kelpers. If you are a constructor or a guardian, come to me."
 
 Kinsho and Senri nodded together in affirmation.
 
