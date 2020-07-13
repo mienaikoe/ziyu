@@ -140,57 +140,59 @@ Annu changed the subject, "About your boat. We need a way to Ulukoma."
 
 "The saffas can paddle," said Annu, pleading to Shinna with the last of hae bargaining chips.
 
-I let go of Annu's hand and stepped forward, channeling my mother's bravery and trying on my gravest voice. "You saw that arc in the sky, cutting just above Heiko City?"
+I let go of Annu's hand and stepped forward, channeling my mother's bravery, trying on my gravest voice. "You saw that arc in the sky, cutting just above Heiko City?"
 
 "We did. It struck the fear in our bones, that another blast might be coming." Thi knealt to my level. "You know what it was?"
 
-"Liffa," I said with my best deadpan voice, "The great space hero, Melna's bundmaman. Thi is still up there, orbiting around the planet, but not forever. I know exactly when and where thi will land, but Liffa will drown unless we are there to pull hae out of the water."
+"Liffa," I said with my best deadpan voice, "The great space pioneer. And Melna's bundmaman. Thi is still up there, orbiting around the planet, but not forever. I know exactly when and where thi will land, but Liffa will drown unless we are there to pull hae out of the water."
 
 Thi began to consider the offer.
 
-"And what about our next meal? Saving Liffa can only rouse a group so much. The rest is up to food."
+"And what about our next meal? We'd love to be heroes, but even a hero needs to eat."
 
-"Did Lissa and Ramne never feed you? We have stockpiles of bread, kelp, and smoke-dried fish for our feasts."
+"Did you never eat with us in Ulukoma?"
+
+"We never saw anyone. The crates were always waiting for us on the shore and Ramne would handle payment."
+
+"The Great Pavilion was a sight to behold. We had stockpiles of bread, kelp, and smoke-dried fish for our feasts. Much of the structure was reduced to ash in the fire but the stockpiles remain, buried underground."
 
 "Made by slave labor, no doubt."
 
-"That's old Ulukoma. We don't do that anymore."
+"That's the old Ulukoma. We don't do that anymore."
 
 "Yet still you benefit from their labor."
 
-"It would be wasteful to throw it away."
+"It would be wasteful not to."
 
-"Oh I know. I'm simply waxing philosophical, wondering what will happen when those coffers are empty."
+"Perhaps. But wondering what will happen when those coffers are empty."
 
 "We will all be sleeping soundly in the Palace of Ghosts by then."
 
-"Palace of Ghosts, eh? And I presume that's the world-saving invention that Annu was talking about?"
+"A palace, eh? And I presume that's the place Annu was talking about?"
 
-I nodded. Thi thought some more, looking at different parts of the air.
+Annu and I both nodded, our minds synchronized to the mission. Thi thought some more, looking into hae mind with closed eyes and long definite breaths, much the same way my mother taught me to look into the future. Thi opened hae eyes after a tedious pause, bowed to us, and turned toward hae boat.
 
 I pleaded to hae, "Let me speak to them if-"
 
-"No need," thi said with a hand outstretched to quiet me, "We will take you and your saffas."
+"No need," thi spoke with confidence, hae hand outstretched to quiet me. "We will take you and your saffas."
 
-Thi started toward hae crew, but stopped in the middle of the first step.
+Thi took a step but then thought of something else.
 
 "But if that kelp is shit-tier, you're dead."
 
-Shinna yelled out to hae crew, "Change of plans. We're headed toward Ulukoma for a feast! And we have some saffas to help us paddle."
+Shinna yelled out to hae crew, "Change of plans crew. We're headed toward Ulukoma for a feast! And now we have some saffas to help us paddle."
 
 A random voice badgered hae from the shadow, "Can we eat the saffas?" followed by muted laughter from the rest.
 
-Thi replied, "I hear one of them has a palate for throngi. Perhaps you'd like to test the rumor?"
+Thi replied, "I've been told that one of them has a palate for thick-headed men like you. Perhaps you'd like to test the rumor?"
 
-The laughter had died in an instant.
+Silence.
 
-Annu nudged me in the shoulder with a giant grin on hae face.
-
-"Palace of Ghosts," thi said chuckling under hae breath.
+"Palace of Ghosts," said Annu chuckling under hae breath. Thi nudged me in the shoulder with a giant grin on hae face.
 
 "What?" I asked coyly, but thi just held the grin and called the saffas.
 
-Shinna loaded Laen and Boon onto the outer boats with Annu and me laying on their backs to keep them warm. Surely as Annu had said, Laen and Boon immediately took to paddling in the water as if they had always known. Shinna's crew filled into the center boat and tethered their boat to both of ours – a sort of precaution against theft.
+Shinna led Laen and Boon onto the outer boats followed by Annu and me who laid on their backs to keep them warm and guide them. Surely as Annu had said, Laen and Boon immediately took to paddling in the water as if they had always known. Shinna's crew filled into the center boat and tethered their boat to both of ours – a sort of precaution against theft.
 
 I leaned forward into Laen's back and nuzzled my face his through his fur.
 

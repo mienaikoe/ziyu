@@ -22,12 +22,14 @@ Ch29
 -
 -->
 
-The boat stood, barely hanging onto a patch of sand not far from the shoddy fishing dock we left from.
+The boat laid bare, hanging onto a patch of sand not far from the shoddy fishing dock that Pomri and I had left from.
 
 "You were right, Annu," I yelled to her across the water. "He's here."
 
-A shudder must have overcome hae. Thi heard me, but thi had nothing to say.
+A shudder must have overcome hae. Thi heard me, but there was nothing thi had to say.
 
-We came to the dock and let Boon and Laen catch their breath as Shinna and I went through the motions with the ropes. Annu seemed to be a little out of sorts.
+We came to the dock and let Boon and Laen catch their breath as Shinna and I went through the motions with the ropes. I watched in awe again as Shinna formed a complex knot with a few quick flicks of the rope. Annu seemed to be a little out of sorts.
 
-"What do you really feel about him," I asked Shinna.
+"What do you really feel about him," I asked Shinna, "about Ramne."
+
+"He made us a bunch of money. But he's better off dead."
