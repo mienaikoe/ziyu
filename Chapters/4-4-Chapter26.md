@@ -377,7 +377,7 @@ Final Approach: Lao 2ka Off the Ulu coast of Ulukoma, Obscura + tova 4.11.6
 (Godspeed, Liffa)
 ```
 
-_4.1.6. You are not forgotten, Liffa. I'm coming for you._
+_4.11.6. You are not forgotten, Liffa. I'm coming for you._
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 
