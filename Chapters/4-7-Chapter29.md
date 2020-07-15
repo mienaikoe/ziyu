@@ -22,7 +22,9 @@ Ch29
 -
 -->
 
-The boat laid bare in the low tide of morning, hanging onto a patch of sand not far from the shoddy fishing dock that Pomri and I had left from.
+"Oi, Linyu!" Shinna called to me, "Wake up."
+
+I awoke from Laen's back, groggy but functional, and laid my eyes upon my homeland, Ulukoma. Only the trees were visible in the dim twilight, blotting out the few red stars that held their flames to the waning horizon. I looked around to orient myself, and found the shoddy fishing dock that Pomri and I had left from. A mere few paces away was the boat we had left with, hanging onto a patch of sand in the low tide of morning.
 
 "You were right, Annu," I yelled to her. "He's here."
 
@@ -48,10 +50,18 @@ Annu seemed to be a little out of sorts, still holding close to Boon whose tail 
 
 "Annu, are you coming?"
 
-"It's coming back to me now."
+"It's coming back to me now," thi said, looking deeply into the water.
 
-"What?" I asked, confused.
+"What is?" I asked, confused.
 
-"When I left. It was a big ship, parked further out. He dragged me through the water as I lay paralyzed. But I remember every moment: the feeling of water curling over my face, the little bits of sand that got into my nose. I remember what it felt like to die by his hand for the first time."
+"When I left... It was a big ship, anchored further out. He bound me with rope and dragged me through the water while I struggled for aiir. I can feel every moment. Even the little bits of sand and bubble across my face. The water got deeper, and... there was nothing to push against. I remember the tunnel vision. That stale air was so painful to hold inside, but the water was even worse."
 
-Thi began to tremble as hae eyes stared further and further into hae mind, clutching fast to Boon until she yelped, "Ai!"
+Thi began to tremble as hae eyes stared further and further into hae mind, clutching fast to Boon's fur until she yelped, "Ai!" and Annu snapped out of it.
+
+"I'm sorry Boon," thi said gently.
+
+I began to cry, as my own memories popped in and out of my consciousness and colored my empathy for hae.
+
+Thi said, "I can never erase these memories of dying. They haunt me everywhere I go."
+
+"Then don't," I said. "Those memories will save you from anything he might try to do here."
