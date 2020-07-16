@@ -64,4 +64,20 @@ I began to cry, as my own memories popped in and out of my consciousness and col
 
 Thi said, "I can never erase these memories of dying. They haunt me everywhere I go."
 
-"Then don't," I said. "Those memories will save you from anything he might try to do here."
+"Then don't," I implored. "Those memories will save you from going back to him."
+
+"Like antikan."
+
+My face flushed at the memory of my mother. _This is what thi would have done_.
+
+"Yea. A bit like antikan," I said.
+
+Behind us, Shinna adressed hae crew.
+
+"Smell that?" thi sniffed the air, finding smoke from the fire that ravaged the great pavilion. "The feast awaits us. Let's get to it!"
+
+The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with a long "Woooooo". All of these people deserved a big meal, but I worried about how Setre and the guardians might react at suddenly having to feed twenty sailors from Ramne's smuggling outfit.
+
+Shinna held hae hand to me and said, "Linyu, lead the way."
+
+I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. But the path had changed along with the life of the forest. Here, a branch had fallen, since removed by the mysteries of the forest. There, a colony of diving bugs making a new home in the ground. The footsteps that made up the path changed in response to the terrain. Nobody else could see it, the continuous flow of life and death. They didn't know the forest like I did.

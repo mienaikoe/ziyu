@@ -192,7 +192,7 @@ Silence.
 
 "What?" I asked coyly, but thi just held the grin and called the saffas.
 
-Shinna led Laen and Boon onto the outer boats followed by Annu and me who laid on their backs to keep them warm and guide them. Surely as Annu had said, Laen and Boon immediately took to paddling in the water as if they had always known. Shinna's crew filled into the center boat and tethered their boat to both of ours – a sort of precaution against theft, I suppose.
+Shinna led Laen and Boon onto the outer boats followed by Annu and me who laid on their backs to keep them warm and guide them. Surely as Annu had said, Laen and Boon immediately took to paddling in the water as if they had always known. Shinna's crew filled into the center boat, clearly pushing the limits of its capacity, and tethered their boat to both of ours – a sort of precaution against theft or sinking, I suppose.
 
 Laen's back kept me warm as I nuzzled my face into his fur.
 
