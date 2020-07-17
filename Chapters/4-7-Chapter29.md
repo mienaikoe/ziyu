@@ -80,4 +80,6 @@ The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with
 
 Shinna held hae hand to me and said, "Linyu, lead the way."
 
-I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. But the path had changed along with the life of the forest. Here, a branch had fallen, since removed by the mysteries of the forest. There, a colony of diving bugs making a new home in the ground. The footsteps that made up the path changed in response to the terrain. Nobody else could see it, the continuous flow of life and death. They didn't know the forest like I did.
+I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. The others didn't see the forest the way I did: a continuum of cause and effect, of quiet patterns in the noise of reality. Even the path, tread out by the footsteps of guardians, had changed to adapt to the forest. A fallen branch since removed by the mystery of decay, a colony of diving bugs making a new home in the ground; every new thing was proof that life had endured and would continue to do so. Our footsteps were merely one of them.
+
+Upon my arm was Annu, nearly blind from a relapse of the strange infection thi seemed to have. Shinna's party must have seen hae eyes but chose to ignore hae as if they assumed thi was an addict and never stopped to confirm their beliefs. I wanted to show them how ignorant they were, but I couldn't trust them yet.
