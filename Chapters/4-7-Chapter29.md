@@ -74,12 +74,20 @@ My face flushed at the memory of my mother. _This is what thi would have done_.
 
 Behind us, Shinna adressed hae crew.
 
-"Smell that?" thi sniffed the air, finding smoke from the fire that ravaged the great pavilion. "The feast awaits us. Let's get to it!"
+"Smell that?" thi sniffed the air catching particles of smoke from the fire that ravaged the great pavilion. "The feast awaits us!"
 
-The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with a long "Woooooo". All of these people deserved a big meal, but I worried about how Setre and the guardians might react at suddenly having to feed twenty sailors from Ramne's smuggling outfit.
+The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with a long "Woooooo". All of these people deserved what they came for, but I worried about how Setre and the guardians might react to a sudden need to feed twenty sailors from Ramne's old smuggling outfit.
 
 Shinna held hae hand to me and said, "Linyu, lead the way."
 
-I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. The others didn't see the forest the way I did: a continuum of cause and effect, of quiet patterns in the noise of reality. Even the path, tread out by the footsteps of guardians, had changed to adapt to the forest. A fallen branch since removed by the mystery of decay, a colony of diving bugs making a new home in the ground; every new thing was proof that life had endured and would continue to do so. Our footsteps were merely one of them.
+I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. The others didn't see the forest the way I did: a continuum of cause and effect, of quiet patterns in the noise of reality. Even the path, tread out by the footsteps of guardians, had changed to adapt to the forest. A fallen branch since removed by the mystery of decay, a colony of diving bugs making a new home in the ground; every deviation was proof that life had endured in spite of our insistence of boundaries and borders, roads and railways. It would continue to do so.
 
-Upon my arm was Annu, nearly blind from a relapse of the strange infection thi seemed to have. Shinna's party must have seen hae eyes but chose to ignore hae as if they assumed thi was an addict and never stopped to confirm their beliefs. I wanted to show them how ignorant they were, but I couldn't trust them yet.
+Upon my arm was Annu, nearly blind from a relapse of the strange Kanosin infection thi seemed to have. Shinna's party ignored hae as if to assume thi was an addict, requiring nothing further than to know that thi had been a servant of the kanosin peddler extraordinaire. Their ignorance frustrated me; not out of pity but of disdain for their will to maintain it. I wanted to show them that Annu was good. I wanted to show them the giant wound that Annu had suffered to save me, that thi knew of a way to save us. I wanted to show them how wrong they were about hae. But I couldn't trust them yet.
+
+"Ai, Linyu. How long?" asked Shinna. "The scent of smoked fish is making my belly grumble."
+
+_Not fish, you idiot._
+
+"Not long now," I said, "I can see the fire just ahead."
+
+The glow was faint – too faint to keep the injured warm, and barely large enough to cook for the masses – but I wasn't about to tell them that. Their disappointment would turn them against me soon if I didn't think of something fast.
