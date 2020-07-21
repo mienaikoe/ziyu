@@ -2,25 +2,25 @@
 
 "So that's how it happened?"
 
-"I did what I could"
+"I did what I had to"
 
-My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma.
+My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. She'd just told me that this was the place she found me.
 
-"Where were you, nana? You promised to save hae."
+"Where were you, Setre? You promised to save hae."
 
-"The fire... it took me by surprise."
+"I had to save you first, Lin."
 
-"You. Promised."
+"You. Promised." I glared at her, my face much closer to hers than I remember from standing under her before Lissa.
 
 She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand off.
 
-"Linyu, we did what we could. The fire... surprised everyone. We were already engaged by the time-"
+"Linyu, I did what I could. The fire... surprised everyone. We were already engaged by the time-"
 
-"Fuck the fire," I growled and stood up. "A promise means 'no matter what'."
+"Fuck the fire," I growled and stood up. "My mother meant something. Casra was willing to die for hae people, but you promised me you would never let it come to that. A promise means 'no matter what'."
 
 "Linyu," she called to me as I stormed behind the ziyu, "stop this nonsense."
 
-I turned and screamed at her, "Everyone I love has died, and you dare call my feelings nonsense? Have some fucking empathy, nana."
+I turned and screamed at her, "Everyone I love has died! You dare call my feelings nonsense? Have some fucking empathy!"
 
 She looked at me, speechless, in a sort of way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take the patience of hae nather for granted. But her shock drove her away instead. She was my nather, but my mother raised me alone.
 

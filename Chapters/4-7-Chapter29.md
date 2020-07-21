@@ -78,7 +78,9 @@ Behind us, Shinna adressed hae crew.
 
 The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with a long "Woooooo". All of these people deserved what they came for, but I worried about how Setre and the guardians might react to a sudden need to feed twenty sailors from Ramne's old smuggling outfit.
 
-Shinna held hae hand to me and said, "Linyu, lead the way."
+Shinna held hae hand to me, making me suddenly aware of my importance.
+
+"Linyu," thi said, "lead the way."
 
 I recalled the path through the trees with my feet, each step a little closer to the memory of home I knew from before Lissa. The others didn't see the forest the way I did: a continuum of cause and effect, of quiet patterns in the noise of reality. Even the path, tread out by the footsteps of guardians, had changed to adapt to the forest. A fallen branch since removed by the mystery of decay, a colony of diving bugs making a new home in the ground; every deviation was proof that life had endured in spite of our insistence of boundaries and borders, roads and railways. It would continue to do so.
 
@@ -90,4 +92,22 @@ _Not fish, you idiot._
 
 "Not long now," I said, "I can see the fire just ahead."
 
-The glow was faint – too faint to keep the injured warm, and barely large enough to cook for the masses – but I wasn't about to tell them that. Their disappointment would turn them against me soon if I didn't think of something fast.
+Yes, I could see the fire, but the glow was faint – too faint to keep the injured warm, and barely large enough to cook for more than a few people – but I didn't tell the others. Their disappointment would turn them against me soon if I didn't think of something fast.
+
+"Annu. We need to get out of here."
+
+<!--
+  - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
+    - part 3 also kind of mirrors Liffa's journey in Part 1
+    - Ramne might be responsible for the fire being lowered. Linyu would predict it.
+      - He's not on Kanosin but has a stash in his hand to see and in case he needs it.
+  - They could be captured by Ramne
+    - Ramne would offer Shinna+ a deal for their allegiance
+      - Eternal life (Linyu would be like OH SHIT NO I was gonna do that)
+        - "This kaln was going to cut you out of the deal. Feed you well, then shut you out"
+  - They could be captured by Setre + Guardians
+    - Setre wouldn't believe anything Linyu says, and would likely threaten Annu
+    - The crew wouldn't be fed, they'd turn on Linyu
+      - Everyone turning on Linyu is an excellent point of drama, but not easy to write out of.
+      - Fanla would believe because she saw it
+-->
