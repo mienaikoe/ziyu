@@ -82,15 +82,15 @@ I reached into my bag. "I have some vials of- ... I can get you to a place where
 
 "Nowhere is safe now."
 
-"There is such a place," I reassured hae, "It's hidden, in the darkness. The Holragi wouldn't know to go there."
+"There is such a place," I reassured hae, "It's hidden, in the darkness. The Holragi wouldn't know to go to Ulukoma."
 
 "The underworld..." thi looked through me as hae thoughts drifted off. "I'm not going back."
 
 _Underworld?_
 
-"I don't know of any underworld. Only of Ulukoma. There is a doctor there that can help you."
+"I don't know of any underworld. There is a doctor there that can help you."
 
-"A doctor has no business with the dead."
+Hae eyes turned back to reality. "A doctor has no business with the dead."
 
 "But you aren't dead."
 
@@ -140,17 +140,15 @@ Thi introduced herself, "The one that came before me was named Ginnu."
 
 A brief glimpse of her death flashed in my mind, and all the myriad emotions that went with it, crammed into a moment. Ginnu saw my stare, heard my silence, and understood.
 
-Hae voice perked up, "_You_ know Melna?"
-
 "She took me in when I woke up in Heiko," I said, grasping at my own voice for answers, "We fled with Pomri to Rudjan, but then we were separated. Pomri wounded a slaver that tried to kidnap me, so we hid and fled back to Heiko."
 
-I felt a sense of pride. "I heard Melna on my listener. Speaking to all of us. She prepared her people for what was to come. And she bought my people enough time to save most of them."
+A wave of pride flowed through me. "I heard Melna on my listener. Speaking to all of us. She prepared her people for what was to come. And she bought us Ulukomai enough time to save most of them."
 
-Thi lit up. "Did she survive the explosion?"
+"How did she die?" Thi asked, turning her head toward me. I remained silent but hae gaze held its link to me.
 
-I remained silent and hae face returned to its position.
+"The last time I saw her, she was fighting with their leader. A tall man with a fancy stick. I couldn't help, else I would have been shot like some of the others."
 
-"Nothing would have stopped her," thi said. "She knew her people were in danger and that was enough."
+Thi returned hae head to comfortable. "Nothing would have stopped her," thi said. "She knew her people were in danger and that was enough."
 
 In a slow gesture, thi grasped my hands with hae own and held silence between our palms. I searched for her spirit, for Kipnu and Pomri, for my mother. But there was only absence.
 

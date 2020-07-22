@@ -418,7 +418,7 @@ I was tempted to defend Kip, but this was not the time.
 
 "Damn right I am. We needed to study more about space when we had the chance. We have no clue what's up there. I moved to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'to. Now Palinan is powerless, huddling in the dark with no plan but to wait it out."
 
-"So you're just doing this to prove you were right all along. And I'm your Heikoan hero for all the PR."
+"So you're just doing this to prove you were right all along. And I'm your Heikoi hero for all the PR."
 
 "Lif, none of our dreams or grudges matter if we're all dead. I know this is the only way to survive, and I'm using what skills I have to convince the people we need for the job."
 

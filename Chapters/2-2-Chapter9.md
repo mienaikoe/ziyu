@@ -60,7 +60,7 @@ Thi held up glowing blue syringe to Kip and encouraged him to take it. He took t
 
 "Stop!" she commanded, tightening her grip. Lissa was licking the rim of his ear while still holding a dagger to his neck.
 
-Setre moved the syringe to his chest, away from his hearts, and punctured his skin, finishing the injection quicker than any he had ever done. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Lissa lowered it, saying "There you go, my little Heikoan. You'll start to feel it."
+Setre moved the syringe to his chest, away from his hearts, and punctured his skin, finishing the injection quicker than any he had ever done. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Lissa lowered it, saying "There you go, my little Heikoi. You'll start to feel it."
 
 He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immovable, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
 

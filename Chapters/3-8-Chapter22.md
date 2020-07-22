@@ -8,7 +8,7 @@ A bunch of them land and round people up to the station
 
 they form a wall toward the north
 
-the heikoans flee to the south, and Holrag can't catch up. Some are lost by musket.
+the Heikoi flee to the south, and Holrag can't catch up. Some are lost by musket.
 
  -->
 
@@ -148,7 +148,7 @@ Melna rose the microphone to her mouth and looked at her people. _This will be m
 
 She began.
 
-"Friends. Heikoans. Pangum of Palinan."
+"Friends. Heikoi. Pangum of Palinan."
 
 She watched as Pomri permeated the crowd, slowly passing through with no apparent destination. She was up to something. On the line, a faint beating hum could be heard. She paid no mind to it.
 

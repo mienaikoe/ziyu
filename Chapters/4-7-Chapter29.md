@@ -94,7 +94,11 @@ _Not fish, you idiot._
 
 Yes, I could see the fire, but the glow was faint – too faint to keep the injured warm, and barely large enough to cook for more than a few people – but I didn't tell the others. Their disappointment would turn them against me soon if I didn't think of something fast.
 
-"Annu. We need to get out of here."
+"Annu," I said, "We need to get out of here."
+
+"Not so fast."
+
+Setre's voice pierced me, made me wince in frustration. I had forgotten how much she cared for preparation.
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
@@ -110,4 +114,5 @@ Yes, I could see the fire, but the glow was faint – too faint to keep the inju
     - The crew wouldn't be fed, they'd turn on Linyu
       - Everyone turning on Linyu is an excellent point of drama, but not easy to write out of.
       - Fanla would believe because she saw it
+    -
 -->

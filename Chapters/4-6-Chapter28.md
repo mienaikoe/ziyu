@@ -218,7 +218,7 @@ or.. bail-out boats
 - Setre has landed to search for Linyu and Pomri
   - She would be searching in Heiko but may have started in Rudjan, to search Casra's home
     - They take some antikan with them
-  - She is safe in Rudjan because she isn't Heikoan and nobody knows her
+  - She is safe in Rudjan because she isn't Heikoi and nobody knows her
 
 
 Ending:

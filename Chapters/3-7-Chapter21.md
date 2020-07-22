@@ -66,7 +66,7 @@ Thi interrupted her, calling out to the people on the submersible again, "Permis
 
 "State your business!" one of the silhouettes spoke. She spoke with authority, "You should be at your posted position by now."
 
-"We have the Heikoan!" Shinna replied.
+"We have the Heikoi!" Shinna replied.
 
 The people on the tower were confused, so they sent someone down the tower and gestured to Shinna to hold steady.
 
@@ -142,7 +142,7 @@ He didn't wait for an answer.
 
 "We are about to make history. Your jundsmaman is nearly at the obscurae. I wanted you to see this in person. To see first-hand what kind of work we're trying to do. You see, I dream of a day when we can look back on the obscura as just another problem we all managed to fix by working together. If we continue to do nothing, we submit ourselves to the will of the universe and it will eventually kill us as it is now."
 
-He moved to stare closer to Melna's face. To make sure she was paying attention. But all she could think of was the odor of Heikoan grain glycol on his breath.
+He moved to stare closer to Melna's face. To make sure she was paying attention. But all she could think of was the odor of Heikoi grain glycol on his breath.
 
 "Our vision is one in which we are no longer slaves to the chaos that lurks in the dark. We can own that chaos, transform it into something much greater than it is."
 
@@ -162,7 +162,7 @@ He laughed through his nose as a father might to his child, "Yes. The survival o
 
 "Now that's unfair."
 
-"No, I get it. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoans at the same time. You think that's how people think of you. But you don't know that they all secretly fear you. Wish you were gone. All you'll be remembered as is the man who destroyed a city for his own self-righteousness," she raised her voice to an increasingly flustered Fajro.
+"No, I get it. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoi at the same time. You think that's how people think of you. But you don't know that they all secretly fear you. Wish you were gone. All you'll be remembered as is the man who destroyed a city for his own self-righteousness," she raised her voice to an increasingly flustered Fajro.
 
 "You're being ridiculous. I wouldn't destroy a city. My legacy is written in steel."
 
@@ -344,7 +344,7 @@ Tenets
 
 Melna thwarts an attempt to use Liffa as leverage against her because she knows bombing the obscura would be useless. Fajro forces her to speak to her people to tell them to become slaves to Holrag. She delivers a message on the shoreline with Fajro standing right next to her. She attempts to use the knife Shinna gave her to subdue Fajro and his soldiers. She wounds Fajro but a soldier wounds her fatally as she bleeds out.
 
-Some are killed by ships on the surface with early guns, and Fajro's craft divides into several craft that hunt for Heikoans, but Shinna throws them a line with hae ship and Setre's fleet appear from the fog. Most make it to Setre's ships and sail to Ulukoma.
+Some are killed by ships on the surface with early guns, and Fajro's craft divides into several craft that hunt for Heikoi, but Shinna throws them a line with hae ship and Setre's fleet appear from the fog. Most make it to Setre's ships and sail to Ulukoma.
 
 Melna's last sight is seeing her people safely outrun this giant blockade with a smile on her face.
 -->

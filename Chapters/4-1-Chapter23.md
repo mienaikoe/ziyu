@@ -66,7 +66,7 @@ Her voice had calmed to a cajole, "By talking to the people around you. Now let'
 Reluctantly, I nestled the microphone onto a bend in the branches and
  -->
 
-I looked out into the crowd of Heikoans and Ulukomans. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
+I looked out into the crowd of Heikoi and Ulukomai. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
 "Setre, we need to talk," said Pomri, approaching her. I kept my position by the tree and listened closely.
 
@@ -128,7 +128,7 @@ Her voice broke a little but she maintained herself. I squeezed her hand a littl
 
 She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal. You can live out the rest of your days here, fishing, kelping, rebuilding, leaving a legacy to the survivors of the obscura. But to get to that point, we need to take things a day at a time. Right now, we need to figure out how to feed everyone and rebuild shelter from the snow."
 
-She pointed to a group of Ulukomans near her, focusing on a man and a maman, both of them fit enough to carry an entire tree between them.
+She pointed to a group of Ulukomai near her, focusing on a man and a maman, both of them fit enough to carry an entire tree between them.
 
 "Kinsho will lead the fishers. Senri, the kelpers. If you are a constructor or a guardian, come to me."
 
@@ -140,7 +140,7 @@ Kinsho and Senri nodded together in affirmation.
 
 "Kelpers with me! Kelpers!" called Senri with a higher pitch, but just as loud. They walked in opposite directions, drawing eager people away from their grief, their paralysis, leaving only the doctors and the infirm. Pomri and a few from her group stayed with the doctors, helping wherever she could.
 
-My nather's hand led me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoans had joined her group of Ulukoman builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built. My mind wandered to Melna, seeing her and Fajro fall into the water. Of my nather keeping her ship a safe distance away while Pomri fought off solider after soldier on the shoreline, trying to get to Melna, but being pushed into the water instead.
+My nather's hand led me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoi had joined her group of Ulukomai builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built. My mind wandered to Melna, seeing her and Fajro fall into the water. Of my nather keeping her ship a safe distance away while Pomri fought off solider after soldier on the shoreline, trying to get to Melna, but being pushed into the water instead.
 
 "This is all we have?" she asked the group.
 
@@ -160,7 +160,7 @@ All in the group hesitated, and Melna grew more frustrated. This was basic work 
 
 She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
 
-Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukoman woman assured her that the drug would work.
+Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukomai woman assured her that the drug would work.
 
 "You know what you're doing," I said to the older woman, observing her movements.
 
