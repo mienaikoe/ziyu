@@ -98,7 +98,25 @@ Yes, I could see the fire, but the glow was faint – too faint to keep the inju
 
 "Not so fast."
 
-Setre's voice pierced me, made me wince in frustration. I had forgotten how much she cared for preparation.
+Setre's voice pierced me, and I winced in frustration. I looked toward Annu to see her spear held to hae neck.
+
+"All of you – back to the shore! You'll leave immediately!"
+
+Shinna approached with the swagger of a career smuggler, placing hae hand on a broadsword at hae waist. Hae crew did the same with their own weapons.
+
+"Unless the food is there," thi said, "We aren't going anywhere."
+
+"You'll find no food here. The ice has claimed everything."
+
+Shinna threw a sour glance at me and then back at Setre, and made a subtle signal with hae arm. Hae crew moved to surround Setre, their hands still at their sides, ready to strike.
+
+Thi said, "If it's nothing to you, we'd like to prove that for ourselves."
+
+From the darkness a number of blue lights appeared one-by-one, with blackened spears in their hands.
+
+"Guardians," I whispered to myself.
+
+They easily outnumbered Shinna's crew, and thi found haeself in a trap that I didn't know I had set. But suddenly I felt immensely vulnerable being at the center of all of this, and still close to Shinna. I saw hae looking at me with hungry eyes, calculating hae next move as if it might be hae last.
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
