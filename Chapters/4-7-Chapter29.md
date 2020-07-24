@@ -112,11 +112,27 @@ Shinna threw a sour glance at me and then back at Setre, and made a subtle signa
 
 Thi said, "If it's nothing to you, we'd like to prove that for ourselves."
 
-From the darkness a number of blue lights appeared one-by-one, with blackened spears in their hands.
+From the darkness a number of blue lights appeared one-by-one, surrounding us with blackened spears in their hands. Laen and Boon began to growl, but I raised my hands to them to calm them.
 
-"Guardians," I whispered to myself.
+"The Guardians," I whispered to myself.
 
-They easily outnumbered Shinna's crew, and thi found haeself in a trap that I didn't know I had set. But suddenly I felt immensely vulnerable being at the center of all of this, and still close to Shinna. I saw hae looking at me with hungry eyes, calculating hae next move as if it might be hae last.
+They easily outnumbered Shinna's crew, blocking them from moving forward. But suddenly, I realized my role in this and I felt immensely vulnerable. I saw Shinna looking at me with hungry eyes, calculating hae next move as if it might be hae last. From the corner of my eye, I glanced at Setre who saw Shinna drawing hae sword, but hesitated to move her blade from Annu's neck. Shinna leapt toward me, but I had reached for Annu to put myself between hae and Setre's blade and was no longer where I had been before. Shinna clutched the air, stumbling to the ground and brushing my leg with hae free hand, hae fingers narrowly catching my ankle. I fell before I made it to Annu and clawed the frosted ground to get away. A growling sound rang out, and then a cry of pain as Shinna's hand released its grip on my ankle. Setre lowered her spear and I clutched tightly to Annu. Upon the ground lie Shinna bracing hae sword hand with streaks of blood and water down hae arm, and Laen with his shadow eyes standing between hae and hae sword. I did not know where the hit had landed, but Laen knew that he had done the right thing.
+
+Setre grabbed the bloodied sword from off the ground and read the inscription.
+
+"Shinna um Rudjan, eh?" Setre said rhetorically. "You think you're a captain just caus you have a fancy sword? You're lucky I missed your right heart."
+
+She took a look at the rest of the crew, unmoving and unsure of what to do.
+
+"I won't be so sloppy with you lot. Now turn your asses around and get out of here."
+
+"Wait," I said to her, "They only came for food."
+
+"They don't need to threaten us for food," she said.
+
+"How were they to know that?"
+
+She looked them
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
