@@ -118,21 +118,39 @@ From the darkness a number of blue lights appeared one-by-one, surrounding us wi
 
 They easily outnumbered Shinna's crew, blocking them from moving forward. But suddenly, I realized my role in this and I felt immensely vulnerable. I saw Shinna looking at me with hungry eyes, calculating hae next move as if it might be hae last. From the corner of my eye, I glanced at Setre who saw Shinna drawing hae sword, but hesitated to move her blade from Annu's neck. Shinna leapt toward me, but I had reached for Annu to put myself between hae and Setre's blade and was no longer where I had been before. Shinna clutched the air, stumbling to the ground and brushing my leg with hae free hand, hae fingers narrowly catching my ankle. I fell before I made it to Annu and clawed the frosted ground to get away. A growling sound rang out, and then a cry of pain as Shinna's hand released its grip on my ankle. Setre lowered her spear and I clutched tightly to Annu. Upon the ground lie Shinna bracing hae sword hand with streaks of blood and water down hae arm, and Laen with his shadow eyes standing between hae and hae sword. I did not know where the hit had landed, but Laen knew that he had done the right thing.
 
-Setre grabbed the bloodied sword from off the ground and read the inscription.
+Setre grabbed the bloodied sword from off the ground and held it up to her face.
 
-"Shinna um Rudjan, eh?" Setre said rhetorically. "You think you're a captain just caus you have a fancy sword? You're lucky I missed your right heart."
+"Shinna um Rudjan, eh?" Setre said rhetorically. "You think you're a captain just caus you have a fancy sword? A captain should know how to fight."
 
-She took a look at the rest of the crew, unmoving and unsure of what to do.
+She took a look at the rest of the crew, all of them unmoving and unsure of what to do.
 
 "I won't be so sloppy with you lot. Now turn your asses around and get out of here."
 
 "Wait," I said to her, "They only came for food."
 
-"They don't need to threaten us for food," she said.
+"Hungry?" she laughed, "Hunger begs. Greed threatens." she said, as if to quote some Holragi proverb I'd never heard.
 
-"How were they to know that?"
+"They've given us safe passage back here. Just give them some sustenance and let them be on their way."
 
-She looked them
+She looked at Annu, at the saffas, and back to Shinna again, but not at me.
+
+"We have enough mouths to feed. Rev'i, call your guardians and escort this crew out. Take their weapons before you go."
+
+"We'll be defenseless!" Shinna plead.
+
+But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for the likes of you."
+
+"Wait!" Shinna yelled, "I know where Fajro is! I know his plan."
+
+Setre paused at hearing his name.
+
+"Thi's telling the truth," I plead as well.
+
+She ignored me and agressively grabbed Annu's arm. Thi stumbled a little to gain hae balance afterward. "Come, Linyu."
+
+I heard Shinna scream through the commotion of hae struggle, "You lying shit!" I knew it was directed at me. I couldn't leave that spot after what I had witnessed.
+
+"Linyu!" Setre scolded me.
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again

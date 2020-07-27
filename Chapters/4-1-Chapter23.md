@@ -118,7 +118,7 @@ Her voice was strong, but carried the slightest hint of quiver. Unnoticeable to 
 
 Her eyes darted across the area in an awkward silence, trying to think of what to say.
 
-"I probably don't need to tell you that everything you knew is likely gone. This was not an accident. A man named Fajro has been consolidating the world's navies and engineers. And this was their first move: a coordinated assault by sky and by land meant to force your people into submitting to slavery. Consider yourselves lucky to have a leader as clever and selfless as Melna."
+"I probably don't need to tell you that everything you knew is likely gone. This was not an accident. A man named Fajro has been consolidating the world's sccientists and engineers. And this was their first move: a coordinated assault by sky and by land meant to force your people into submitting to slavery. Consider yourselves lucky to have a leader as clever and selfless as Melna."
 
 My eyes found Pomri's and peered into them. The fire before her cast glintlights off the water forming on her eyes. Her expression fell into that constellation, fervid and tenacious, taking Setre's words and purifying them in the blinding rage within her.
 
@@ -130,7 +130,7 @@ She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal
 
 She pointed to a group of Ulukomai near her, focusing on a man and a maman, both of them fit enough to carry an entire tree between them.
 
-"Kinsho will lead the fishers. Senri, the kelpers. If you are a constructor or a guardian, come to me."
+"Kinsho will lead the fishers. Senri, the kelpers. Rev'i and the other guardians, resume your patrols. If you are a constructor, come to me."
 
 Kinsho and Senri nodded together in affirmation.
 
