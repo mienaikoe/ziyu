@@ -148,9 +148,13 @@ Setre paused at hearing his name.
 
 She ignored me and agressively grabbed Annu's arm. Thi stumbled a little to gain hae balance afterward. "Come, Linyu."
 
-I heard Shinna scream through the commotion of hae struggle, "You lying shit!" I knew it was directed at me. I couldn't leave that spot after what I had witnessed.
+"Lying shit!" Shinna screamed through the commotion of hae struggle. I knew it was directed at me.
 
-"Linyu!" Setre scolded me.
+"I won't forget this!"
+
+Her voice petrified me. For the first time, I felt responsible for the lives of thirty-some sailors and their captain. Like I had just committed them to a cold, dark death – to never have a part of the mythical afterlife that lied in waiting here. They were not faultless but they did not deserve to die for it.
+
+"Linyu!" Setre scolded me. I snapped out of my focus and walked toward her voice, with Annu still beside me. She wrested hae from me, silent but for the sound of her scowl.
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
