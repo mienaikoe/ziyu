@@ -112,7 +112,7 @@ Shinna threw a sour glance at me and then back at Setre, and made a subtle signa
 
 Thi said, "If it's nothing to you, we'd like to prove that for ourselves."
 
-From the darkness a number of blue lights appeared one-by-one, surrounding us with blackened spears in their hands. Laen and Boon began to growl, but I raised my hands to them to calm them.
+From the darkness a number of blue lights appeared one-by-one, surrounding us with blackened spears in their hands. Laen and Boon began to growl, but I raised my hands to calm them.
 
 "The Guardians," I whispered to myself.
 
@@ -138,23 +138,29 @@ She looked at Annu, at the saffas, and back to Shinna again, but not at me.
 
 "We'll be defenseless!" Shinna plead.
 
-But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for the likes of you."
+But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for Ramne's crew."
 
-"Wait!" Shinna yelled, "I know where Fajro is! I know his plan."
+"Wait!" Shinna yelled, "I know where Ramne is! I know his plan."
 
-Setre paused at hearing his name.
+Setre paused at momentarily, but dismissed hae.
 
-"Thi's telling the truth," I plead as well.
-
-She ignored me and agressively grabbed Annu's arm. Thi stumbled a little to gain hae balance afterward. "Come, Linyu."
+"Thi's telling the truth," I plead as well, but she ignored me.
 
 "Lying shit!" Shinna screamed through the commotion of hae struggle. I knew it was directed at me.
 
 "I won't forget this!"
 
-Her voice petrified me. For the first time, I felt responsible for the lives of thirty-some sailors and their captain. Like I had just committed them to a cold, dark death – to never have a part of the mythical afterlife that lied in waiting here. They were not faultless but they did not deserve to die for it.
+Hae voice petrified me. For the first time, I felt responsible for peoples' lives. I had led them to Ulukoma with the hope of life-giving sustenance. I knew it was a false hope, but that hope was necessary for my own ends. Shinna's crew might make it back through the icy ocean, or the cold and fatigue might get the best of them. They were not faultless but they did not deserve this.
 
-"Linyu!" Setre scolded me. I snapped out of my focus and walked toward her voice, with Annu still beside me. She wrested hae from me, silent but for the sound of her scowl.
+Setre took one step toward me and pulled Annu's hand from mine, silent but for audible thoughts her scowl conjured within my mind. With a tug she moved Annu to her other side, causing hae to stumble, but Setre held Annu's body up with one hand, never letting hae go. I looked behind me at Laen and Boon. Their growling had stopped, but they still looked uneasily at the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
+
+I looked at that mass of blue lights and remembered the dance of the amber lights while Pomri was being taken, the pain that I felt for losing her again. My plan would not be foiled. I would not lose another.
+
+<!--
+What comes next:
+- Linyu
+
+-->
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
