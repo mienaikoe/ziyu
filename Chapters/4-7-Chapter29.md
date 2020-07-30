@@ -134,31 +134,49 @@ She took a look at the rest of the crew, all of them unmoving and unsure of what
 
 She looked at Annu, at the saffas, and back to Shinna again, but not at me.
 
-"We have enough mouths to feed. Rev'i, call your guardians and escort this crew out. Take their weapons before you go."
+"We have enough mouths to feed. Rev'i, take your guardians and escort this rabble out. Remove their weapons before you go."
 
 "We'll be defenseless!" Shinna plead.
 
 But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for Ramne's crew."
 
-"Wait!" Shinna yelled, "I know where Ramne is! I know his plan."
+"Wait!" Shinna yelled, "Ramne is here! I know his plan."
 
-Setre paused at momentarily, but dismissed hae.
+Setre paused at momentarily.
 
-"Thi's telling the truth," I plead as well, but she ignored me.
+"My judgment is final," she said, and waved to dismiss them.
 
-"Lying shit!" Shinna screamed through the commotion of hae struggle. I knew it was directed at me.
+"Thi's telling the truth," I plead as well, but she ignored me as well.
 
-"I won't forget this!"
+A commotion stirred as Rev'i signalled and nearly a hundred blue lights approached.
+
+"Fight!" said Shinna. "Fight, you cowards!"
+
+But none of them were foolish enough to heed hae words. One maman raised hae sword to strike a guardian, but five others rushed in and immobilized hae arm with their spears. The others heeded Setre's words and removed their weapons.
+
+Shinna looked at me with furious, smoldering eyes.
+
+"Lying kaln!" thi said. "I'll never forget this!"
 
 Hae voice petrified me. For the first time, I felt responsible for peoples' lives. I had led them to Ulukoma with the hope of life-giving sustenance. I knew it was a false hope, but that hope was necessary for my own ends. Shinna's crew might make it back through the icy ocean, or the cold and fatigue might get the best of them. They were not faultless but they did not deserve this.
 
-Setre took one step toward me and pulled Annu's hand from mine, silent but for audible thoughts her scowl conjured within my mind. With a tug she moved Annu to her other side, causing hae to stumble, but Setre held Annu's body up with one hand, never letting hae go. I looked behind me at Laen and Boon. Their growling had stopped, but they still looked uneasily at the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
+Setre took one step toward me and pulled Annu's hand from mine, silent but for audible thoughts her scowl conjured within my mind. With a tug she moved Annu to her other side, causing hae to stumble, but Setre held Annu's body up with one hand, never letting hae go. I looked behind me at Laen and Boon. Their growling had stopped, but their gazes were trained uneasily on the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
 
-I looked at that mass of blue lights and remembered the dance of the amber lights while Pomri was being taken, the pain that I felt for losing her again. My plan would not be foiled. I would not lose another.
+I watched the guardians' light dance into the darkness, remembered that same dance in the amber lights while Pomri was being taken. The same chaotic pattern I saw in Melna's escape and Kipnu's battle, of people trying to see through the darkness, blindly clutching to the first sign of hope. I felt the pain of losing all of them: cuts so deep they filled my spirit and bled together.
+
+A hand fell upon my shoulder. "Quite the dictator, isn't she?" said Ramne.
+
+I turned around, tripping over a rock in the darkness. I looked for Laen and Boon, but they were several paces away, eating something they had found on the ground.
+
+"
 
 <!--
 What comes next:
-- Linyu
+- Setre shows Annu to the others. Makes a fool of hae, says thi is responsible for hae actions, and foments lots of rage against hae for Ramne's actions of getting them addicted.
+- Linyu gets captured by Ramne and is forced to hide in the shadows with him as he tries to convince Linyu that Setre is evil. "The only way to save hae is to kill Setre"
+- Linyu agrees, and takes a dagger. But has tricked Ramne, and saves Annu without killing Setre.
+
+
 
 -->
 
