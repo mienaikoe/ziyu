@@ -160,15 +160,49 @@ Shinna looked at me with furious, smoldering eyes.
 
 Hae voice petrified me. For the first time, I felt responsible for peoples' lives. I had led them to Ulukoma with the hope of life-giving sustenance. I knew it was a false hope, but that hope was necessary for my own ends. Shinna's crew might make it back through the icy ocean, or the cold and fatigue might get the best of them. They were not faultless but they did not deserve this.
 
-Setre took one step toward me and pulled Annu's hand from mine, silent but for audible thoughts her scowl conjured within my mind. With a tug she moved Annu to her other side, causing hae to stumble, but Setre held Annu's body up with one hand, never letting hae go. I looked behind me at Laen and Boon. Their growling had stopped, but their gazes were trained uneasily on the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
+Setre took one step toward me and pulled Annu's hand from mine, silent but for audible thoughts her scowl conjured within my mind. With a tug she moved Annu to her other side, causing hae to stumble, but Setre held Annu's body up with one hand, never letting hae go.
 
-I watched the guardians' light dance into the darkness, remembered that same dance in the amber lights while Pomri was being taken. The same chaotic pattern I saw in Melna's escape and Kipnu's battle, of people trying to see through the darkness, blindly clutching to the first sign of hope. I felt the pain of losing all of them: cuts so deep they filled my spirit and bled together.
+"What are you doing with hae?" I asked.
 
-A hand fell upon my shoulder. "Quite the dictator, isn't she?" said Ramne.
+She didn't respond.
 
-I turned around, tripping over a rock in the darkness. I looked for Laen and Boon, but they were several paces away, eating something they had found on the ground.
+"What are you doing with hae?!" I yelled, pulling my nather's spear arm, but she shoved me away saying nothing to me. Behind me, Laen and Boon were growling had stopped, but their gazes were trained uneasily on the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
 
-"
+I watched the guardians' light dance into the darkness, remembered that same dance in the amber lights of Pomri's captors. It was that same chaotic pattern I saw in Melna's escape and Kipnu's battle, of people trying to see through the darkness, blindly clutching to the first sign of hope. I felt the pain of losing all of them: cuts so deep they filled my spirit and bled together.
+
+A hand fell upon my shoulder. "Quite the ruler, isn't she?" said Ramne.
+
+I turned around, tripping over a rock in the darkness. I looked for Laen and Boon, but they were several paces away, eating something they had found on the ground. I had no doubt it was his doing.
+
+"I must admit: when I was the leader of her faction, I didn't think much of her. But then Casra ran off with you to Rudjan and all the rage she hid inside of her came out. Must be something in that Holragi blood."
+
+"Go away," I said, shrugging him off and hiding my fear. "I don't have time."
+
+I headed back toward the shore, hoping to pull him away from Annu and toward the Guardians.
+
+"Now now," he said raising a long dagger to my neck, "You're still a kaln. You've got plenty of time."
+
+I stopped abruptly to avoid the blade.
+
+He explained to me, "We've got a lot of catching up to do. So many things you missed while you were out."
+
+_Out? Was he there?_
+
+"Your nather is a tough cookie, I'll have you know. I figured she'd die in the fire or at least the chaos after. But somehow she convinced people to let her rule. Even got her own special flow tattoo pattern to prove it. Casra would be prou–"
+
+"Don't talk about my mother," I said. The blade of the dagger cleaving my words in two.
+
+"Oh you think I didn't want her to stay alive? Addict slaves are great but willing slaves are even better. She would have brought me so much money. But ... let's just say things got a little out of hand."
+
+"Fuck you!"
+
+He looked at me through narrowed eyes.
+
+"You know, it sounds like Casra never taught you any manners. I'll be the man you always wanted me to be today, how about that?"
+
+I was furious, but I wouldn't him know that. Anger only made him happy.
+
+"After you, father."
 
 <!--
 What comes next:

@@ -4,11 +4,15 @@
 
 "I did what I had to"
 
-My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. She'd just told me that this was the place she found me.
+My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. This was the place where she said she found me, unconscious, smoke covering my face.
 
-"Where were you, Setre? You promised to save hae."
+"And mom?"
 
-"I had to save you first, Lin."
+Setre sighed and looked down.
+
+"You promised to save hae. Where were you?"
+
+"I had to save you first, Lin. It was–"
 
 "You. Promised." I glared at her, my face much closer to hers than I remember from standing under her before Lissa.
 
@@ -16,7 +20,7 @@ She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand of
 
 "Linyu, I did what I could. The fire... surprised everyone. We were already engaged by the time-"
 
-"Fuck the fire," I growled and stood up. "My mother meant something. Casra was willing to die for hae people, but you promised me you would never let it come to that. A promise means 'no matter what'."
+"Fuck the fire," I growled and stood up. "My mother was willing to die to restore justice to Ulukoma. But you promised me you would never let it come to that. A promise means 'no matter what'."
 
 "Linyu," she called to me as I stormed behind the ziyu, "stop this nonsense."
 
