@@ -138,7 +138,7 @@ She looked at Annu, at the saffas, and back to Shinna again, but not at me.
 
 "We'll be defenseless!" Shinna plead.
 
-But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for Ramne's crew."
+But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for Ramne's crew. You're lucky to be leaving this place alive."
 
 "Wait!" Shinna yelled, "Ramne is here! I know his plan."
 
@@ -166,15 +166,15 @@ Setre took one step toward me and pulled Annu's hand from mine, silent but for a
 
 She didn't respond.
 
-"What are you doing with hae?!" I yelled, pulling my nather's spear arm, but she shoved me away saying nothing to me. Behind me, Laen and Boon were growling had stopped, but their gazes were trained uneasily on the guardians as they ebbed into the darkness. I tried to calm them with my hand, but their trust in this place had been drained. I had very little time to rebuild it.
+"What are you doing with hae?!" I yelled, pulling my nather's spear arm, but she shoved me away saying nothing to me. Behind me, Boon snarled at my nather. Laen snorted to her, trying to calm her down, and I raised my hand to reassure Boon that everything was okay. But she trusted neither of us. She darted off toward Setre, kicking up dirt and twigs as she flew past me. Laen hesitated, glancing at me to look for guidance, but I gave him none. He decided for himself that he had to follow after Boon.
 
-I watched the guardians' light dance into the darkness, remembered that same dance in the amber lights of Pomri's captors. It was that same chaotic pattern I saw in Melna's escape and Kipnu's battle, of people trying to see through the darkness, blindly clutching to the first sign of hope. I felt the pain of losing all of them: cuts so deep they filled my spirit and bled together.
+I watched them disappear into the night after Setre, looked back at the guardians' light ebb into the darkness. I felt history repeat itself in a different hues. It was the same pattern in Pomri's capture, in Fajro's plan, in Lissa's form. A pattern of people trying to see through the darkness, blindly taking everything they can - even other people. I felt the pain of all who were lost in it: like cuts that bled together. Like kanosin and blood.
 
 A hand fell upon my shoulder. "Quite the ruler, isn't she?" said Ramne.
 
-I turned around, tripping over a rock in the darkness. I looked for Laen and Boon, but they were several paces away, eating something they had found on the ground. I had no doubt it was his doing.
+I turned around, tripping over a rock in the darkness. I looked for Laen and Boon, but they were long gone.
 
-"I must admit: when I was the leader of her faction, I didn't think much of her. But then Casra ran off with you to Rudjan and all the rage she hid inside of her came out. Must be something in that Holragi blood."
+"I must admit: when I was the leader of her faction, I didn't think much of Setre. But when Casra ran off with you to Rudjan, all the rage she hid inside of her came out. Must be something in that Holragi blood."
 
 "Go away," I said, shrugging him off and hiding my fear. "I don't have time."
 
@@ -203,16 +203,6 @@ He looked at me through narrowed eyes.
 I was furious, but I wouldn't him know that. Anger only made him happy.
 
 "After you, father."
-
-<!--
-What comes next:
-- Setre shows Annu to the others. Makes a fool of hae, says thi is responsible for hae actions, and foments lots of rage against hae for Ramne's actions of getting them addicted.
-- Linyu gets captured by Ramne and is forced to hide in the shadows with him as he tries to convince Linyu that Setre is evil. "The only way to save hae is to kill Setre"
-- Linyu agrees, and takes a dagger. But has tricked Ramne, and saves Annu without killing Setre.
-
-
-
--->
 
 <!--
   - If Linyu, Annu and the Saffas go to the hideout, it would be like part2 all over again
