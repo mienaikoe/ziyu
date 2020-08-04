@@ -136,9 +136,9 @@ She looked at Annu, at the saffas, and back to Shinna again, but not at me.
 
 "We have enough mouths to feed. Rev'i, take your guardians and escort this rabble out. Remove their weapons before you go."
 
-"We'll be defenseless!" Shinna plead.
+"We'll be defenseless!" Shinna plead, "Slavers would take us in an instant!"
 
-But Melna was unaffable. "The living shall wield justice for the dead," she said solemnly. "There is no fate harsh enough for Ramne's crew. You're lucky to be leaving this place alive."
+But Melna was unaffable. "The dead wield justice through the living," she said solemnly. "There is no fate harsh enough for those who betrayed Melna. You're lucky to be leaving this place alive."
 
 "Wait!" Shinna yelled, "Ramne is here! I know his plan."
 
@@ -188,11 +188,17 @@ He explained to me, "We've got a lot of catching up to do. So many things you mi
 
 _Out? Was he there?_
 
-"Your nather is a tough cookie, I'll have you know. I figured she'd die in the fire or at least the chaos after. But somehow she convinced people to let her rule. Even got her own special flow tattoo pattern to prove it. Casra would be prou–"
+"Your nather is a tough cookie, you know? I figured she'd die in the fire or at least the chaos after. But somehow she survived; convinced people to let her rule. Even got her own special flow tattoo to prove it. Casra would be prou–"
 
-"Don't talk about my mother," I said. The blade of the dagger cleaving my words in two.
+"Don't talk about my mother," I said. The blade of the dagger cleaving my breath in two.
 
-"Oh you think I didn't want her to stay alive? Addict slaves are great but willing slaves are even better. She would have brought me so much money. But ... let's just say things got a little out of hand."
+"Oh you think I didn't want hae to stay alive? Addict slaves are great. They never fight, they never speak. Sometimes they die but those monstrosities always come back. But... willing slaves? Oh they're even better. They die when you kill them, and they work so hard. All for the glory of their Ulukoma and its great leader Casra. They'd never have known we were selling the fruits of their labor for a premium price."
+
+"Shut up!"
+
+He gripped my arm and stooped down to look closely at me.
+
+"Casra could have made so much money for the two of you. But thi didn't have the willpower. Let's just say I added some fuel to a small fire named Lissa and things kind of spiralled from there."
 
 "Fuck you!"
 
