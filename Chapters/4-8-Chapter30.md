@@ -1,26 +1,32 @@
 # Chapter 30
 
-He picked a vantage point in a ziyu above the new pavilion. He pulled some short kelp straps from his sleeves and signalled for me to climb first. I was much faster than him.
+He picked a ziyu far enough way that climbing wouldn't alert anyone, but close enough that moving across the canopy wouldn't be difficult. From his sleeves, he produced two short kelp straps and signalled for me to climb first. I obliged. I went at my usual quick pace up the tree, and upon reaching the canopy, I plotted a path along the thick branches to reach an area above the pavilion. If I moved quickly, I could alert someone about Ramne.
 
-Being there gave me a pang of familiarity that I didn't quite understand. I looked to the red stars for some shred of memory. Kipnu's face came to mind: a glimpse of something obscured from my memory. But as Ramne caught up with me, I had no more time to remember. Annu and Liffa needed me now.
+Being in the canopy again gave me a pang of familiarity that I didn't quite understand. I looked to the red stars for some shred of memory. Kipnu's face came to mind: a glimpse of something obscured from my memory. But as Ramne caught up with me, I had no more time to remember. Annu needed me now.
 
-Ramne pointed down at the pavilion for me to observe. Near the larger fire was Setre, standing where the injured had been. All of them were now elsewhere now, leaving a stack of straw cushions they had used to rest their heads, now neatly arranged save for one. Upon it was Annu, bound and sitting before Setre.
+With quick feet, I deftly hopped from branch to branch, careful not to slip on a patch of frost or lose my balance on a shaky branch. When I was nearly above the fire, I peered down, looking for any sign of a person, but I saw none. In the darkness a little ways out I could see three figures, one of them sitting. It was Annu, bound with Setre and another person I didn't know. I inhaled deeply to yell out, but a hand covered my mouth and nose before I could finish. I tried to scream but no air would move under the pressure of his hands.
 
-"There's no time for this," said Annu, "Ramne knows this place. He will kill us all. We have to hide!"
+"Now, now. Don't you go telling on me."
 
-Ramne chuckled quietly. "That kaln doesn't know a thing," he said.
+He moved my head to face him.
 
-Setre was impatient. "Shut up!" she said, "Ramne isn't here!"
+"This is our little secret."
+
+Ramne rested on a branch immediately next to me and looked around. Near the larger fire was a stack of straw cushions that the injured had used to rest their heads. But nobody remained. Some might have been fishing, but there should have been at least some people building. I felt a strong sense of unease.
+
+"There's no time for this," said Annu, "Ramne is here. He will kill us all. We have to hide!"
+
+Ramne chuckled quietly. "The kaln has some sense," he whispered.
+
+Setre was impatient. "Shut it!" she snapped.
 
 "He is! We saw the boat!"
 
-Setre shoved Annu forward until thi stumbled onto the ground, knealt down to speak into hae ear. I felt angry, but not shocked. The expectation I felt toward my nather's actions disturbed me.
-
 "And why would I trust his own spy?"
 
-"What?" Thi replied fearfully, hae voice muffled by dirt and leaves.
+The third person intervened. A woman's voice, bold and sweet as Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
-"I know what you're up to, Ginnu."
+"I know what thi's up to, Fanla. This is fearmongering to make us easy targets to loot. Look," she pointed to hae eyes, not fully blind, but undoubtedly blue, "Thi's even on it now. Ramne sent hae here to take all the kanosin he couldn't carry from the fire."
 
 <!--
 What comes next:
