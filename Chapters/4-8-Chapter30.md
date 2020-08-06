@@ -26,10 +26,45 @@ Setre was impatient. "Shut it!" she snapped.
 
 The third person intervened. A woman's voice, bold and sweet as Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
-"I know what thi's up to, Fanla. This is fearmongering to make us easy targets to loot. Look," she pointed to hae eyes, not fully blind, but undoubtedly blue, "Thi's even on it now. Ramne sent hae here to take all the kanosin he couldn't carry from the fire."
+"This is fearmongering, Fanla. To soften us up so thi can loot this place. Look," she pointed to hae eyes, dimly blue in the darkness. I couldn't be sure if thi had enough to escape death again. "Thi is an addict. Ginnu was sent here to take all the kanosin Ramne couldn't carry from the fire."
+
+"And what of your kaln? Thi brought hae here too, didn't thi?"
+
+"A token of false trust to bring our guard down."
+
+"Do you hear yourself right now?"
+
+Setre was taken aback. I glanced at Ramne who had a satisfied grin on his face.
+
+"Oh I love this," he whispered with an almost giddy tone. "Your nather doesn't know when to stop."
+
+Setre reached for her spear and Fanla held her arm up. 
+
+"Don't," said Fanla. She took a step. "If you hurt hae, you threaten the very trust that binds this place together. Anyone could be put to death. And some may not come back."
+
+"The wicked deserve no lesser punishment."
+
+"And who are you to separate the wicked from the pure?"
+
+Setre pulled her spear from her back.
+
+Fanla repeated, "Don't do it!"
+
+I looked again at Ramne, who was now looking at me with a wide smile and a round, polished stone in his hand.
+
+"You want to save hae, don't you?"
+
+I nodded apprehensively.
+
+"Then you you know what you have to do. Kill her."
+
+He placed the rock into my hand; its weight, my soul took on. I now had to choose between my nather and the pure-hearted maman that saved my life.
+
+
 
 <!--
 What comes next:
+
 - Setre shows Annu to the others. Makes a fool of hae, says thi is responsible for hae actions, and foments lots of rage against hae for Ramne's actions of getting them addicted.
 - Linyu gets captured by Ramne and is forced to hide in the shadows with him as he tries to convince Linyu that Setre is evil. "The only way to save hae is to kill Setre"
 - Linyu agrees, and takes a dagger. But has tricked Ramne, and saves Annu without killing Setre.

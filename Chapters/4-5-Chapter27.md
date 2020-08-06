@@ -162,7 +162,7 @@ I took note of the kanosin blue in hae eyes: faint but evident. If thi had been 
 
 "It is an illness, and I would rather be rid of it. I fear life, for life means another death is coming."
 
-I was taken aback by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That most evil of thoughts crossed my mind, too. To exchange the life of a friend for that of an acquaintence. But I stopped myself from lending it any time. _It doesn't become me_, as my mother would say.
+I was aghast by what thi was saying. A gift so powerful was wasted on someone who wished it gone. That most evil of thoughts crossed my mind, too. To exchange the life of a friend for that of an acquaintence. But I stopped myself from lending it any time. _It doesn't become me_, as my mother would say.
 
 "What is his name?" I asked.
 
@@ -176,7 +176,7 @@ Thi took a deep, painful breath.
 
 "Ginnu once loved him, or so he would tell me. I used to think that meant I had to find a way to love him again. That recovering my past life would make me whole again. But Melna saw the new me, the real me. 'Your body is a vessel for the many lives that may fill and empty through it,' she told me. 'Whatever may have filled it before does not affect the beauty that fills it now.' She gave me the gift of sight by some magic potion in that glass vial."
 
-_Parnu kept his word._
+_Parnu kept his word. But now thi Annu was vulnerable. A death no would surely be hae last._ 
 
 "She set me free in more ways than one. I owe her my life and any that come after to her."
 
