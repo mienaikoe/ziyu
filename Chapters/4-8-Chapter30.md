@@ -14,19 +14,19 @@ He moved my head to face him.
 
 Ramne rested on a branch immediately next to me and looked around. Near the larger fire was a stack of straw cushions that the injured had used to rest their heads. But nobody remained. Some might have been fishing, but there should have been at least some people building. I felt a strong sense of unease.
 
-"There's no time for this," said Annu, "Ramne is here. He will kill us all. We have to hide!"
+"There's no time for this," said Annu, "Ramne is here. He will kill us all!"
 
 Ramne chuckled quietly. "The kaln has some sense," he whispered.
 
-Setre was impatient. "Shut it!" she snapped.
+Setre snapped at Annu impatiently, "Shut it!"
 
-"He is! We saw the boat!"
+"I know it's hard to believe but it must be true! I saw a boat moored here. It was the same one he left the mainland on."
 
-"And why would I trust his own spy?"
+"You sat and watched while he burned this place to the ground. Casra, Kipnu: they might have survived if you had told us what Ramne was going to do. But you betrayed your right to be trust long ago when you banded with him."
 
 The third person intervened. A woman's voice, bold and sweet as Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
-"This is fearmongering, Fanla. To soften us up so thi can loot this place. Look," she pointed to hae eyes, dimly blue in the darkness. I couldn't be sure if thi had enough to escape death again. "Thi is an addict. Ginnu was sent here to take all the kanosin Ramne couldn't carry from the fire."
+"This is fearmongering, Fanla. To make us easy targets. Look," she pointed to hae eyes, dimly blue in the darkness. It reminded me that thi was still vulnerable to death. "Thi is an addict. Ginnu was sent here to take all the kanosin Ramne couldn't carry from the fire."
 
 "And what of your kaln? Thi brought hae here too, didn't thi?"
 
@@ -50,15 +50,19 @@ Setre pulled her spear from her back.
 
 Fanla repeated, "Don't do it!"
 
-I looked again at Ramne, who was now looking at me with a wide smile and a round, polished stone in his hand.
+I looked again at Ramne, who was now looking at me with an eager smile. Before me, he held a polished metal ball in his hand, bisected, with something inside attaching the two together.
 
-"You want to save hae, don't you?"
+"You want to save hae, don't you?" he asked.
 
 I nodded apprehensively.
 
-"Then you you know what you have to do. Kill her."
+"Then you you know what you have to do."
 
-He placed the rock into my hand; its weight, my soul took on. I now had to choose between my nather and the pure-hearted maman that saved my life.
+He placed the ball into my hand; its weight surprised me. 
+
+"Hit Setre with this and the whole "
+
+I now had to choose between my nather and the pure-hearted maman that saved my life.
 
 
 
