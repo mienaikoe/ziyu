@@ -4,7 +4,7 @@ He picked a ziyu far enough way that climbing wouldn't alert anyone, but close e
 
 Being in the canopy again gave me a pang of familiarity that I didn't quite understand. I looked to the red stars for some shred of memory. Kipnu's face came to mind: a glimpse of something obscured from my memory. But as Ramne caught up with me, I had no more time to remember. Annu needed me now.
 
-With quick feet, I deftly hopped from branch to branch, careful not to slip on a patch of frost or lose my balance on a shaky branch. When I was nearly above the fire, I peered down, looking for any sign of a person, but I saw none. In the darkness a little ways out I could see three figures, one of them sitting. It was Annu, bound with Setre and another person I didn't know. I inhaled deeply to yell out, but a hand covered my mouth and nose before I could finish. I tried to scream but no air would move under the pressure of his hands.
+With quick feet, I deftly hopped from branch to branch, careful not to slip on a patch of frost or lose my balance on a shaky branch. When I was nearly above the fire, I peered down, looking for any sign of people. A few paces from the fire I could see three figures, one of them sitting. It was Annu, bound with Setre and another person I didn't know. I inhaled deeply to yell out, but a hand covered my mouth and nose before I could finish. I tried to scream but no air would move under the pressure of his hands.
 
 "Now, now. Don't you go telling on me."
 
@@ -12,7 +12,7 @@ He moved my head to face him.
 
 "This is our little secret."
 
-Ramne rested on a branch immediately next to me and looked around. Near the larger fire was a stack of straw cushions that the injured had used to rest their heads. But nobody remained. Some might have been fishing, but there should have been at least some people building. I felt a strong sense of unease.
+Ramne rested on a branch immediately next to me and looked below. Near the larger fire was a stack of straw cushions that the injured had used to rest their heads. But nobody remained. Some might have been fishing, but there should have been at least some people building. I felt a strong sense of unease.
 
 "There's no time for this," said Annu, "Ramne is here. He will kill us all!"
 
@@ -24,11 +24,11 @@ Setre snapped at Annu impatiently, "Shut it!"
 
 "You sat and watched while he burned this place to the ground. Casra, Kipnu: they might have survived if you had told us what Ramne was going to do. But you betrayed your right to be trust long ago when you banded with him."
 
-The third person intervened. A woman's voice, bold and sweet as Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
+The third person intervened. A woman's voice, bold and sweet. Like Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
 "This is fearmongering, Fanla. To make us easy targets. Look," she pointed to hae eyes, dimly blue in the darkness. It reminded me that thi was still vulnerable to death. "Thi is an addict. Ginnu was sent here to take all the kanosin Ramne couldn't carry from the fire."
 
-"And what of your kaln? Thi brought hae here too, didn't thi?"
+"And what of your kaln? Thi brought hae here safe and sound."
 
 "A token of false trust to bring our guard down."
 
@@ -40,9 +40,9 @@ Setre was taken aback. I glanced at Ramne who had a satisfied grin on his face.
 
 Setre reached for her spear and Fanla held her arm up. 
 
-"Don't," said Fanla. She took a step. "If you hurt hae, you threaten the very trust that binds this place together. Anyone could be put to death. And some may not come back."
+"Don't," said Fanla. She took a step. "If you hurt hae, you threaten the very trust that binds this place together."
 
-"The wicked deserve no lesser punishment."
+"The wicked deserve no less than death."
 
 "And who are you to separate the wicked from the pure?"
 
@@ -58,11 +58,9 @@ I nodded apprehensively.
 
 "Then you you know what you have to do."
 
-He placed the ball into my hand; its weight surprised me. 
+He placed the ball into my hand; its weight surprised me. Inside of it was some other object freely moving about some fluid. I had no doubts that such a thing was designed to kill somehow. In his other hand, he brandished the dagger, making sure I knew what would happen to me if I disobeyed. Below was silence, hesitation. The sound of their belabored breaths hung in my mind as I struggled with the choice I had been given.
 
-"Hit Setre with this and the whole "
-
-I now had to choose between my nather and the pure-hearted maman that saved my life.
+She raised the spear and I raised my arm, and as the ball left my fingers I felt the deep pain of loss take me again. It spun through the air with all the inertia I could give and hit exactly where I had intended it to. A large explosion erupted and knocked me back, landing me on a flimsy branch that arched under my body weight. I grasped for it to keep from falling but my hands found nothing.
 
 
 
