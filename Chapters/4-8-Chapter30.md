@@ -4,7 +4,9 @@ He picked a ziyu far enough way that climbing wouldn't alert anyone, but close e
 
 Being in the canopy again gave me a pang of familiarity that I didn't quite understand. I looked to the red stars for some shred of memory. Kipnu's face came to mind: a glimpse of something obscured from my memory. But as Ramne caught up with me, I had no more time to remember. Annu needed me now.
 
-With quick feet, I deftly hopped from branch to branch, careful not to slip on a patch of frost or lose my balance on a shaky branch. When I was nearly above the fire, I peered down, looking for any sign of people. A few paces from the fire I could see three figures, one of them sitting. It was Annu, bound with Setre and another person I didn't know. I inhaled deeply to yell out, but a hand covered my mouth and nose before I could finish. I tried to scream but no air would move under the pressure of his hands.
+With quick feet, I deftly hopped from branch to branch, careful not to slip on a patch of frost or lose my balance on a shaky branch. When I was nearly above the fire, I peered down, looking for any sign of people. A few paces from the fire I could see three figures, one of them sitting with hands bound and a woman standing over hae: Annu and Setre. There was a woman standing next to Setre with a wide metal shield. She struck some vague familiar chord within my thoughts, though I couldn't place where I knew her from.
+
+Below me, I spotted Laen and Boon, munching on some morsel of food with their legs tied to a tree. I inhaled deeply to yell out to them, but a hand covered my mouth and nose before I could finish. I tried to scream but no air would move under the pressure of his hands.
 
 "Now, now. Don't you go telling on me."
 
@@ -58,21 +60,37 @@ I nodded apprehensively.
 
 "Then you you know what you have to do."
 
-He placed the ball into my hand; its weight surprised me. Inside of it was some other object freely moving about some fluid. I had no doubts that such a thing was designed to kill somehow. In his other hand, he brandished the dagger, making sure I knew what would happen to me if I disobeyed. Below was silence, hesitation. The sound of their belabored breaths hung in my mind as I struggled with the choice I had been given.
+He placed the ball into my hand; its weight surprised me. Inside of it was some kind of fluid but I couldn't tell what kind. I had no doubts that such a thing was designed to kill somehow. In his other hand, he brandished the dagger, making sure I knew what would happen to me if I disobeyed. I looked below and saw only silence, hesitation amongst the three. The sound of my own belabored breath hung in my mind as I struggled with the choice I had been given.
 
-She raised the spear and I raised my arm, and as the ball left my fingers I felt the deep pain of loss take me again. It spun through the air with all the inertia I could give and hit exactly where I had intended it to. A large explosion erupted and knocked me back, landing me on a flimsy branch that arched under my body weight. I grasped for it to keep from falling but my hands found nothing.
+She raised the spear and I raised my arm, and as the ball left my fingers I felt a deep pain in my chest. The ball spun through the air, tumbling and falling toward its target; I had to turn away. A metallic sound rang out and a large explosion folded the air on itself and knocked me back, landing me on a flimsy branch that arched under my body weight. I grasped for it to stop myself from falling but my grip wasn't firm enough and I only managed to slow myself down. At the end of the branch I finally caught a small tuft of twig and leaf and swung from it back toward the tree's trunk.
+
+A voice called out toward me, but the blast had caused a ringing in my ears that made everything sound like a hum. I looked up to find Ramne, but he had disappeared from his spot in the tree. I looked below and saw a stream of blood running down my body and suddenly felt the cold of death begin to close in again.
+
+"-inyu?!" I heard my name, followed by more hums of muffled speech.
 
 
 
 <!--
 What comes next:
 
-- Setre shows Annu to the others. Makes a fool of hae, says thi is responsible for hae actions, and foments lots of rage against hae for Ramne's actions of getting them addicted.
-- Linyu gets captured by Ramne and is forced to hide in the shadows with him as he tries to convince Linyu that Setre is evil. "The only way to save hae is to kill Setre"
-- Linyu agrees, and takes a dagger. But has tricked Ramne, and saves Annu without killing Setre.
+- Fanla frees Laen and Boon
+- Linyu falls onto Laen's Back
+- Fanla and Setre treat Linyu's wound
+  - Linyu talks about the underworld
+- The others come back
+  - Annu corroborates what Linyu says
+  - Setre is furious but the group wants to hear
+- They go to the underworld
+  - Many get kanosin and sink in
+- Linyu, Annu, Setre, and Ramne (who has disguised himself with the crowd) are the last to get in
+  - They duke it out
+  - Setre falls prone
+  - Annu saves her life and pushes Ramne and haeself out of the underworld
+- Linyu speaks endlessly about Annu and/or Liffa as Setre plunges hae under the water
+- Chapter Ends
 
-OR
+Prologue
 
-- Ramne and Linyu go to the Guardians. Ramne sets a trap to capture them all.
+- Shinna's crew picks up Liffa after seeing writing on Linyu's arm
 
 -->
