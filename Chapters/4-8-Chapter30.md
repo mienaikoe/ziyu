@@ -64,9 +64,15 @@ He placed the ball into my hand; its weight surprised me. Inside of it was some 
 
 She raised the spear and I raised my arm, and as the ball left my fingers I felt a deep pain in my chest. The ball spun through the air, tumbling and falling toward its target; I had to turn away. A metallic sound rang out and a large explosion folded the air on itself and knocked me back, landing me on a flimsy branch that arched under my body weight. I grasped for it to stop myself from falling but my grip wasn't firm enough and I only managed to slow myself down. At the end of the branch I finally caught a small tuft of twig and leaf and swung from it back toward the tree's trunk.
 
-A voice called out toward me, but the blast had caused a ringing in my ears that made everything sound like a hum. I looked up to find Ramne, but he had disappeared from his spot in the tree. I looked below and saw a stream of blood running down my body and suddenly felt the cold of death begin to close in again.
+A voice called out toward me, but the blast had caused a ringing in my ears that made everything sound like a hum. I looked up to find Ramne, but he had disappeared from his spot in the tree. I looked below and saw a slow stream of blood running down my body from my chest.
 
-"-inyu?!" I heard my name, followed by more hums of muffled speech.
+"-inyu?!" I heard my name, followed by more hums of muffled speech. Two voices echoed in my head as I struggled to stay awake and keep a grip on the branch. I felt the branch stutter under my weight, slowly fracturing with the sway of my body. With a loud *snap* the branch finally broke, upending my sense of direction as I fell for what seemed like several moments compressed and molded to fit into the space of one. A dark figure appeared below me as I was about to land: large and quick. As my body pressed into it, I felt its softness, then its warmth as it moved with me as if to soften the blow. Then as if to rouse me awake, it made a soft humming sound that vibrated through my body.
+
+I heard my name called again by muffled speech, and saw the two figures crowd around me. Deft hands raced across my body, jostling different parts of me left and right, up and down. I felt a finger on the wound on my chest and winced in pain. My upper clothes were torn to reveal the cause.
+
+"Annu..." I said to them. I didn't mind who they were.
+
+"A-... Ginnu. Listen to hae."
 
 
 
