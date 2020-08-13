@@ -24,7 +24,7 @@ Setre snapped at Annu impatiently, "Shut it!"
 
 "I know it's hard to believe but it must be true! I saw a boat moored here. It was the same one he left the mainland on."
 
-"You sat and watched while he burned this place to the ground. Casra, Kipnu: they might have survived if you had told us what Ramne was going to do. But you betrayed your right to be trust long ago when you banded with him."
+"You sat and watched while he burned this place to the ground. Casra and Kipnu might have survived if you had warned us. But you betrayed your trustworthiness long ago when you banded with him."
 
 The third person intervened. A woman's voice, bold and sweet. Like Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
@@ -38,19 +38,19 @@ The third person intervened. A woman's voice, bold and sweet. Like Rudjanese bre
 
 Setre was taken aback. I glanced at Ramne who had a satisfied grin on his face.
 
-"Oh I love this," he whispered with an almost giddy tone. "Your nather doesn't know when to stop."
+"Oh I love this," he whispered with an almost giddy tone. "She doesn't know when to stop."
 
 Setre reached for her spear and Fanla held her arm up. 
 
 "Don't," said Fanla. She took a step. "If you hurt hae, you threaten the very trust that binds this place together."
 
-"The wicked deserve no less than death."
+"The wicked deserve punishment."
 
 "And who are you to separate the wicked from the pure?"
 
-Setre pulled her spear from her back.
+Setre shook off Fanla's hand and pulled the spear from her back.
 
-Fanla repeated, "Don't do it!"
+Fanla stood between them and repeated, "Don't do it!"
 
 I looked again at Ramne, who was now looking at me with an eager smile. Before me, he held a polished metal ball in his hand, bisected, with something inside attaching the two together.
 
@@ -68,11 +68,29 @@ A voice called out toward me, but the blast had caused a ringing in my ears that
 
 "-inyu?!" I heard my name, followed by more hums of muffled speech. Two voices echoed in my head as I struggled to stay awake and keep a grip on the branch. I felt the branch stutter under my weight, slowly fracturing with the sway of my body. With a loud *snap* the branch finally broke, upending my sense of direction as I fell for what seemed like several moments compressed and molded to fit into the space of one. A dark figure appeared below me as I was about to land: large and quick. As my body pressed into it, I felt its softness, then its warmth as it moved with me as if to soften the blow. Then as if to rouse me awake, it made a soft humming sound that vibrated through my body.
 
-I heard my name called again by muffled speech, and saw the two figures crowd around me. Deft hands raced across my body, jostling different parts of me left and right, up and down. I felt a finger on the wound on my chest and winced in pain. My upper clothes were torn to reveal the cause.
+I heard my name called again by muffled speech, and saw the two figures crowd around me. Deft hands raced across my body, jostling different parts of me left and right, up and down. I felt a finger slide under my coat and catch the wound on my chest. I winced in pain and soon after the fastenings of my coat were undone and a blue light shined above me, showing Setre's face.
 
-"Annu..." I said to them. I didn't mind who they were.
+"An- Gin-..." hae name turned over in my mind and upon my tongue. Fanla pulled out a flask of water and poured some on the wound. It stung for a moment but then resolved. I opened my eyes to see Setre, Laen, and Boon crowded around me.
 
-"A-... Ginnu. Listen to hae."
+"Where is Annu?"
+
+Fanla and Setre paused, puzzled at the question, but Boon raised her head to look in a specific direction and let out two "woop" sounds. A silhouette with soft blue eyes slowly appeared behind Setre, still bound with a rope leading to Setre. Thi was safe for now.
+
+Setre leaned in close and asked me loud enough to hear, "Who did this?"
+
+I responded with the name she least wanted to hear. 
+
+"Ramne."
+
+She instinctively turned her head to Annu but I gently pulled her hand to divert her attention.
+
+I said to her sternly, "I'll never forget what you almost did," then sank back down to ride out the waves of pain.
+
+A crowd began to form. Fishers and builders returning from their work.
+
+
+
+
 
 
 
