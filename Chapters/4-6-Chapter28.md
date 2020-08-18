@@ -56,19 +56,19 @@ I looked over to Annu and asked, "You've been to Rudjan, right?"
 
 "Yea..." thi said, thinking the same thing. "Well what if– ... no... but..."
 
-I interrupted hae, "Even if we could pass the wall, we'll face many more obstacles. If we fail any of them, it means death or enslavement. There has to be another way."
+I interrupted hae, "Even if we could pass the wall, we'll face many more obstacles. If we get caught, it means death or enslavement. There has to be another way."
 
 "Shh- do you hear that?" thi said. For once I wasn't the first to hear a thing.
 
 I removed the listener and put my ear to the air. In the dead air, I could hear the sound of lazy oars splashing through the slush out of time.
 
-"Looters?" I asked Annu.
+"Slavers?" I asked Annu.
 
 "No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
 
 In the darkness of the ocean, six lanterns suspended on the crooks of Rudjanese boats appeared, and a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
 
-Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi loudly yelled, "Shinna!" as if hae belly no longer hurt.
+Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi yelled, "Shinna!" with a bellow as if hae belly no longer hurt.
 
 The oars cut back to a silence, but no response came.
 
@@ -132,7 +132,7 @@ I blushed, feeling vindicated at being called a maman again. I hadn't felt like 
 
 Annu changed the subject, "About your boat. We need a way to Ulukoma."
 
-"Why in Ara would you want to go there at a time like this?"
+Shinna scoffed at the idea. "Why would you want to go there at a time like this?"
 
 "It's... complicated. And I don't completely understand it either. But I can assure you that it's the only place left in the world for us."
 
@@ -144,11 +144,15 @@ I let go of Annu's hand and stepped forward, channeling my mother's bravery, try
 
 "We did. It struck the fear in our bones, that another blast might be coming." Thi knealt to my level. "You know what it was?"
 
-"Liffa," I said with my best deadpan voice, "The great space pioneer. And Melna's bundmaman. Thi is still up there, orbiting around the planet, but not forever. I know exactly when and where thi will land, but Liffa will drown unless we are there to pull hae out of the water."
+"Liffa," I said, "The great space pioneer. And Melna's bundmaman."
 
-Thi began to consider the offer.
+Thi laughed, "You expect me to believe that thing had a live human in it?"
 
-"And what about our next meal? We'd love to be heroes, but even a hero needs to eat."
+But I maintained a serious face. "I've been listening," I said, pointing to the lisitener on my ear. "Thi is still up there, orbiting around the planet, but not forever. Thi is landing in the darkness of Ulukoma at 11.6, but Liffa will drown unless we are there to pull hae out of the water."
+
+Thi began to think.
+
+"And what about our next meal?" thi asked. "We'd love to be heroes, but even a hero needs to eat."
 
 "Did you never eat with us in Ulukoma?"
 

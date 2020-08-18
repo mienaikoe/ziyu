@@ -370,7 +370,7 @@ On Obscura tova 0.9, I inspected the spacerail and The agreed and checked trajec
 
 First Bleed Entry: Over Heiko Center, Obscura + tova 4.3.7
 Second Bleed Entry: Over Holragi-Spacerail, Obscura + tova 4.7.12
-Final Approach: Lao 2ka Off the Ulu coast of Ulukoma, Obscura + tova 4.11.6
+Final Approach: Lao 2-ka Off the Ulu coast of Ulukoma, Obscura + tova 4.11.6
 
 - Jesse
 

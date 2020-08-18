@@ -86,7 +86,7 @@ She instinctively turned her head to Annu but I gently pulled her hand to divert
 
 I said to her sternly, "I'll never forget what you almost did," then sank back down to ride out the waves of pain.
 
-A crowd began to form. Fishers and builders returning from their work.
+A crowd began to form as they took me toward the fire. 
 
 
 
