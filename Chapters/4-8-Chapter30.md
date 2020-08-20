@@ -82,11 +82,75 @@ I responded with the name she least wanted to hear.
 
 "Ramne."
 
-She instinctively turned her head to Annu but I gently pulled her hand to divert her attention.
+She instinctively turned her head to Annu but I gently pulled her hand to bring her closer.
 
-I said to her sternly, "I'll never forget what you almost did," then sank back down to ride out the waves of pain.
+I said to her sternly, "I'll never forget what you almost did," and sank back down to wait for the ringing in my ears to pass. Fanla took me in her arms and moved me toward the dying fire as Setre stood in the dark, spanning the distance of her unrest, keeping an eye on Annu as thi hesitantly joined Fanla and me.
 
-A crowd began to form as they took me toward the fire. 
+A crowd slowly began to form, the laborers returning from their work, alarmed at the sound of an explosion. They huddled around Setre, asking questions and fearing for their lives at each answer. Annu sat near Fanla as she massaged my neck to relieve the ringing sound. Thi stared blankly into the darkness.
+
+"You're looking for him," I said to hae. Fanla was startled by the volume of my voice.
+
+"Listening," thi said loudly back to me. "I cannot see."
+
+Fanla chimed in, "Ramne won't be back with this many people. He only strikes when he sees an opportunity."
+
+"How do you know?" I asked.
+
+"All of the ruin you see around you was caused by him. The smoke that slipped you into the great darkness - that was caused by him. Nobody knew how it had started until long after it had ravaged this place."
+
+I told them, "He coerced me because I was alone."
+
+"Then it's best the three of us stick together from now on," she said. 
+
+Fanla stopped massaging and shook her hand to loosen it up. I motioned for her to stop when she tried to go back to my neck.
+
+"It's fine. I'm fine," I said, sitting up. She moved her hands to her trousers, dusting off some invisible debris before placing them together on her lap. But before she could settle in, a clamor of people erupted into the camp as blue lights flailed about and small explosions crackled through the trees. The three of us leapt to our feet as the explosions grew closer and closer.
+
+"Holragi!" the guardians yelled. "Holragi!"
+
+Setre flung herself toward the commotion and found some cover behind a big ziyu. She covered the light at her chest and arms with her poncho, and stooped low to stay hidden. I saw Fanla start to follow her but stop in her steps as she saw movement in the distance.
+
+I yelled to Annu, "It's time."
+
+Thi nodded and bellowed to the crowd "To Ulu! Run to Ulu!"
+
+Fanla and I bolted off into the crowd, yelling "To Ulu!" to all who we could find. Some of the Heikoi were packing food into bags, clutching their children close. 
+
+"No time!" said Fanla, "Run!"
+
+She motioned for me to follow, but I couldn't. My bond to my nather kept me frozen and planted. 
+
+"I'll look after Setre!" she said. "Go!"
+
+The first of the Holragi made it into the clearing, and the guardians who had fled before were now attacking from all sides. Explosions and shouts littered the cold air and I was certain Setre was amidst that cacophony. But I knew that I would be more trouble than help. I knew that it was best not to be by her side. So I turned. And I ran.
+
+Far ahead, Annu was running slowly with hae arms held out, tripping on the various traps the forest had set. I sped to hae side and picked hae up on my back.
+
+"You need to be there to tell us what to do!"
+
+"I can't. I can't do it."
+
+I slowed my walk to hear hae clearer.
+
+"We can still make it before the Holragi!"
+
+"No, no," thi sobbed deeply into my shoulder. "Everyone must die to live. I'm sending them all to their deaths."
+
+I paused my speech to take in her meaning, still running toward the shore. It was something I knew but had never acknowledged. Annu would be responsible for the future of our lives. Every one of us would die here. This was the end. The people that inhabit our bodies in a hundred lifetimes may forget about everything they used to be. They'll move along the path of time never knowing the bonds we used to share or the memories we used to enjoy. But the alternative would be far worse.
+
+"Annu, I know this is hard, but you're the only one who can do this. We have no other options."
+
+
+
+
+
+<!--
+
+
+
+--> 
+
+
 
 
 
