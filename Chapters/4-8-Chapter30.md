@@ -126,7 +126,7 @@ The first of the Holragi made it into the clearing, and the guardians who had fl
 
 Far ahead, Annu was running slowly with hae arms held out, tripping on the various traps the forest had set. I sped to hae side and picked hae up on my back.
 
-"You need to be there to tell us what to do!"
+"It's me" I said, "I'll get you there."
 
 "I can't. I can't do it."
 
@@ -134,11 +134,33 @@ I slowed my walk to hear hae clearer.
 
 "We can still make it before the Holragi!"
 
-"No, no," thi sobbed deeply into my shoulder. "Everyone must die to live. I'm sending them all to their deaths."
+"No, no," thi sobbed deeply into my shoulder. "Everyone... I'm sending them all to die."
 
-I paused my speech to take in her meaning, still running toward the shore. It was something I knew but had never acknowledged. Annu would be responsible for the future of our lives. Every one of us would die here. This was the end. The people that inhabit our bodies in a hundred lifetimes may forget about everything they used to be. They'll move along the path of time never knowing the bonds we used to share or the memories we used to enjoy. But the alternative would be far worse.
+I paused my speech to take in her meaning, still running toward the shore. It was something I knew but had never acknowledged. Annu's responsibility encompassed the future of our species. Every one of us would die here. This was an end. The people that inhabit our bodies in a hundred lifetimes may forget about everything they used to be. They would move along the path of time unaware of the memories we used to share, the places we used to dwell, the people we used to love. Or perhaps we *would* remember, and continue our quarrels until we wiped each other out again.
 
-"Annu, I know this is hard, but you're the only one who can do this. We have no other options."
+But this was not question of memory or of self or even of right or wrong. This was a gamble for the future of our species; for our collective knowledge, our ways of life; for any recollection that any of our lives were meaningful. If just one person rose with those memories, then all of our struggles would have been worth it.
+
+We came to a clearing in the darkness where thousands of figures with illuminated hands and feet dotted the beach. The warm sand filled in the crevasses between my toes and a wave of comfort came over me. I lowered Annu to the ground, and wrapped hae in my arms. Hae breathing was heavy and hae crying had turned into screams and uncontrolled lurching on the ground. I was horrified to see that something so invisible could be so painful.
+
+I did not hold hae down or scold hae, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
+
+"Annu," I said with a heavy heart, "I know that this is hard. An enormous burden has been placed upon you."
+
+"There is... a feeling," thi stammered, "A terrible feeling. That a deep pit of regret could be lurking around the corner."
+
+I took hae cheek in my hands and spoke as hae eyes struggled to stay open.
+
+"Regret hides behind every corner. But still we turn to carry on."
+
+Thi slowed hae crying and looked squarely into my eyes. Hae face was full of fear.
+
+"Melna entrusted her spirit to you. Now I entrust you with my life. Wholly and firmly. If you've lost all faith in yourself, then have faith in that."
+
+
+
+
+
+
 
 
 
