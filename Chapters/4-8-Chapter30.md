@@ -156,7 +156,9 @@ Thi slowed hae crying and looked squarely into my eyes. Hae face was full of fea
 
 "Melna entrusted her spirit to you. Now I entrust you with my life. Wholly and firmly. If you've lost all faith in yourself, then have faith in that."
 
+Thi formed a broken smile just for a moment, and took a deep breath.
 
+"I knew there was something special about you," thi said.
 
 
 
