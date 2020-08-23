@@ -276,17 +276,16 @@ Thi nodded. "There is another time, far beyond the horizon we see in this one."
 
 "A hundred lifetimes," I whispered.
 
-"We cannot defeat our enemies in this time."
+Thi said, "we cannot defeat our enemies in this time."
 
-"But we can outlast them until the next."
-
-I smirked with vigor at our words.
+"but we can outlast them until the next," I said. And I smirked with vigor at our words.
 
 "But first," she interjected, "Let's get some rest. We'll be safe here for a while."
 
 I took the spot at Laen's warm belly and he let out a satisfied "oo". Throughout the night, I thought about Pomri. Grieved at the fate that lie before her. But then I thought of my nather, and all the others in Ulukoma who were waiting for a sign of hope. I took Annu's words into my heart through the water of grief on my cheeks and in my eyes. And my lungs had never felt so full of life.
 
 <!--
+
 - Pomri is captured by the Holragi
   - Leave this for a future book
 
@@ -345,7 +344,7 @@ She looked at me as if to see me for the first time.
 
 "And you would abandon someone to make sure you're right?"
 
-"To make sure you and I survive? I absolutely would. A maman on hae deathbed is dead weight."
+"To make sure you and I survive? Absolutely."
 -->
 
 <!--

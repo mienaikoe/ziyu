@@ -140,7 +140,7 @@ I paused my speech to take in her meaning, still running toward the shore. It wa
 
 But this was not question of memory or of self or even of right or wrong. This was a gamble for the future of our species; for our collective knowledge, our ways of life; for any recollection that any of our lives were meaningful. If just one person rose with those memories, then all of our struggles would have been worth it.
 
-We came to a clearing in the darkness where thousands of figures with illuminated hands and feet dotted the beach. The warm sand filled in the crevasses between my toes and a wave of comfort came over me. I lowered Annu to the ground, and wrapped hae in my arms. Hae breathing was heavy and hae crying had turned into screams and uncontrolled lurching on the ground. I was horrified to see that something so invisible could be so painful.
+We came to a clearing in the darkness where thousands of figures with illuminated hands and feet dotted the beach. The warm sand filled in the crevasses between my toes and a wave of comfort came over me. I lowered Annu to the ground, and wrapped hae in my arms. Hae breathing was heavy and thi was shivering from something far deeper than the cold. I was horrified to see that such an invisible pain.
 
 I did not hold hae down or scold hae, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
 
@@ -154,9 +154,23 @@ I took hae cheek in my hands and spoke as hae eyes struggled to stay open.
 
 Thi slowed hae crying and looked squarely into my eyes. Hae face was full of fear.
 
-"Melna entrusted her spirit to you. Now I entrust you with my life. Wholly and firmly. If you've lost all faith in yourself, then have faith in that."
+"Melna entrusted her spirit to you. And now I do the same. Wholly. Firmly. If you've lost faith in yourself, then borrow our faith in you."
 
-Thi formed a broken smile just for a moment, and took a deep breath.
+A broken smile showed just for a moment, calming the storm of shivers that crackled through hae body,
+
+"Help us, Annu."
+
+Thi stared at me with those same gentle eyes, hae soul, crushed, but hae spirit boundless. And it was in that moment that I felt the sacred permeate that binds us all unlock, and a flood of a thousand souls flowed out from the sea and into the spaces between us. I felt a presence in Annu that could only be understood as a reflection of myself.
+
+"Gather up the bluekelp," thi said. "One handful for each."
+
+I spared not a minute to repeat hae words, and neither did the people around us. Everyone able-bodied enough to swim jumped into the water to fetch kelp and the others stayed behind to find rocks to tear it with.
+
+
+
+
+
+
 
 "I knew there was something special about you," thi said.
 
