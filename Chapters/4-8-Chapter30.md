@@ -108,7 +108,7 @@ Fanla stopped massaging and shook her hand to loosen it up. I motioned for her t
 
 "Holragi!" the guardians yelled. "Holragi!"
 
-Setre flung herself toward the commotion and found some cover behind a big ziyu. She covered the light at her chest and arms with her poncho, and stooped low to stay hidden. I saw Fanla start to follow her but stop in her steps as she saw movement in the distance.
+Setre flung herself toward the commotion and found some cover behind a big ziyu. She covered the light at her chest and arms with her poncho, and stooped low to stay hidden. I saw Fanla start to follow her but she stopped abruptly, seeing something moving in the distance. Immediately, she turned around and signalled for us to run.
 
 I yelled to Annu, "It's time."
 
@@ -124,13 +124,15 @@ She motioned for me to follow, but I couldn't. My bond to my nather kept me froz
 
 The first of the Holragi made it into the clearing, and the guardians who had fled before were now attacking from all sides. Explosions and shouts littered the cold air and I was certain Setre was amidst that cacophony. But I knew that I would be more trouble than help. I knew that it was best not to be by her side. So I turned. And I ran.
 
+*"Tova'na to re-entry"*
+
 Far ahead, Annu was running slowly with hae arms held out, tripping on the various traps the forest had set. I sped to hae side and picked hae up on my back.
 
 "It's me" I said, "I'll get you there."
 
 "I can't. I can't do it."
 
-I slowed my walk to hear hae clearer.
+I slowed my walk to listen.
 
 "We can still make it before the Holragi!"
 
@@ -142,7 +144,7 @@ But this was not question of memory or of self or even of right or wrong. This w
 
 We came to a clearing in the darkness where thousands of figures with illuminated hands and feet dotted the beach. The warm sand filled in the crevasses between my toes and a wave of comfort came over me. I lowered Annu to the ground, and wrapped hae in my arms. Hae breathing was heavy and thi was shivering from something far deeper than the cold. I was horrified to see that such an invisible pain.
 
-I did not hold hae down or scold hae, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
+I did not hold hae down or lose my temper, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
 
 "Annu," I said with a heavy heart, "I know that this is hard. An enormous burden has been placed upon you."
 
@@ -160,19 +162,51 @@ A broken smile showed just for a moment, calming the storm of shivers that crack
 
 "Help us, Annu."
 
-Thi stared at me with those same gentle eyes, hae soul, crushed, but hae spirit boundless. And it was in that moment that I felt the sacred permeate that binds us all unlock, and a flood of a thousand souls flowed out from the sea and into the spaces between us. I felt a presence in Annu that could only be understood as a reflection of myself.
+Thi stared at me with those same gentle eyes; hae soul was crushed but hae spirit, boundless. It was in that moment that I felt the sacred permeate, that most precious of ethers that binds us all to each other. My mind unlocked the future, and a flood of a thousand souls flowed out from the sea and into the spaces between us. I felt a presence in Annu that could only be understood as a reflection of myself.
 
-"Gather up the bluekelp," thi said. "One handful for each."
+"I knew there was something special about you," thi said, "Melna lives on inside you."
 
-I spared not a minute to repeat hae words, and neither did the people around us. Everyone able-bodied enough to swim jumped into the water to fetch kelp and the others stayed behind to find rocks to tear it with.
+Hae hand traced my cheek until it held my neck gently in its calloused ridges.
+
+"Gather up the bluekelp. A half handful for each."
+
+I spared no pause to repeat hae words, and neither did anyone who heard. Everyone able-bodied enough to swim jumped into the water to harvest kelp and the others stayed behind to find sharp rocks to tear it with. They made quick work of each task, quickly building a pile of short kelp ribbons on a large rock plate. Annu had found some strength to stand, and listened to the crowd to find hae way to me.
+
+"Say a few words, and then I'll tell them," thi said, and I nodded to hae in agreement.
+
+I gathered those around me and mustered up enough mental fortitude to speak to them. But I knew how precious our time was, and I began before I was ready. 
+
+"As you know, the Holragi have cornered us into this beach and we're out of options. I had hoped we could have some time to discuss this, but this is our last and only option. What we're asking you to do today will take incredible courage and indominitable will from each and every one of you."
+
+I took a moment to see each one of them for who they were, that they would be remembered if only for a moment. It was the children that brought the hint of tears. Some barely a na'tova younger than myself. Many without parents. For every ray of illumination that landed upon them, a bead of water, a furrowed brow, a subtle tremble. They wore their fear like a uniform. They looked to me as their captain.
+
+"Each of you will wade out into the get a small handful of kelp. Chew it, swallow the liquid, and spit out the rest."
+
+Thi took a deep sigh, as if to swallow something of hae own.
+
+"Then, we swim. Far away. To a place where the Holragi can never find us."
+
+"Where is this place?" a young boy asked.
+
+Thi turned away, and I came to hae side.
+
+"What's wrong?" I asked.
+
+Thi replied, "Nothing...nothing..."
+
+And then I knew why this was so difficult for hae.
+
+I turned around and said, "Lao 2-ka off the Ulu coast of Ulukoma."
+
+<!-- Ramne shows up? -->
+
+"Ginnu, didn't see you there."
 
 
 
 
 
 
-
-"I knew there was something special about you," thi said.
 
 
 

@@ -96,7 +96,7 @@ Of interesting note is the bluekelp which grows abundantly in the waters near an
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members.
 -->
 
-## The Black Crown (Heigi)
+## The Black Crown? (Heigi)
 
 There are about 5 shell colonies (known as Gems). Each shell is self-sustaining and elliptical - Most people living in a ring valley. The "higher" parts of the ellipse are to keep the atmosphere inside, provide a very strong, lightsource, and provide surface area for solar and cosmic energy capture. The shells are made of asteroidic iron formed into a steel. The outer parts are coated with a semiconductor film that captures energy to be used in the central light source. There are large sapphire windows at ground-level that help with crop-growing.
 
