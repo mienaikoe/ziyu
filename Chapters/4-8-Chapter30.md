@@ -144,7 +144,9 @@ But this was not question of memory or of self or even of right or wrong. This w
 
 We came to a clearing in the darkness where thousands of figures with illuminated hands and feet dotted the beach. The warm sand filled in the crevasses between my toes and a wave of comfort came over me. I lowered Annu to the ground, and wrapped hae in my arms. Hae breathing was heavy and thi was shivering from something far deeper than the cold. I was horrified to see that such an invisible pain.
 
-I did not hold hae down or lose my temper, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
+From the forest came Laen and Boon, sniffing around for me. They saw a shaken Annu on the ground, and nuzzled hae with their wet noses to wake hae up, but still thi couldn't stop.
+
+I did not yell at hae or lose my temper, but I held hae hand as thi held it even tighter, and the tremors began to subside. I sat hae up on a ridge of sand and placed my weight on hae, holding hae closely and speaking into hae ear.
 
 "Annu," I said with a heavy heart, "I know that this is hard. An enormous burden has been placed upon you."
 
@@ -170,7 +172,7 @@ Hae hand traced my cheek until it held my neck gently in its calloused ridges.
 
 "Gather up the bluekelp. A half handful for each."
 
-I spared no pause to repeat hae words, and neither did anyone who heard. Everyone able-bodied enough to swim jumped into the water to harvest kelp and the others stayed behind to find sharp rocks to tear it with. They made quick work of each task, quickly building a pile of short kelp ribbons on a large rock plate. Annu had found some strength to stand, and listened to the crowd to find hae way to me.
+I spared no pause to repeat hae words, and neither did anyone who heard. Straight away, the kelpers and the fishers jumped into the water to find sharp rocks and harvest. The others stayed behind to find large flat rocks to build a sort of shallow vessel in the ground. They made quick work of each task: a pile of short kelp squares appeared in mere moments. Annu had found some strength to stand, and asked Fanla guide hae way to me.
 
 "Say a few words, and then I'll tell them," thi said, and I nodded to hae in agreement.
 
@@ -180,27 +182,65 @@ I gathered those around me and mustered up enough mental fortitude to speak to t
 
 I took a moment to see each one of them for who they were, that they would be remembered if only for a moment. It was the children that brought the hint of tears. Some barely a na'tova younger than myself. Many without parents. For every ray of illumination that landed upon them, a bead of water, a furrowed brow, a subtle tremble. They wore their fear like a uniform. They looked to me as their captain.
 
-"Each of you will wade out into the get a small handful of kelp. Chew it, swallow the liquid, and spit out the rest."
+"Each of you will get a small square of kelp. Chew it, swallow the liquid, and spit out the rest. Then..."
 
-Thi took a deep sigh, as if to swallow something of hae own.
+Thi took a deep sigh, looking to the crowd.
 
-"Then, we swim. Far away. To a place where the Holragi can never find us."
+"...We swim... Far far away... Where Holrag can never find us."
 
-"Where is this place?" a young boy asked.
+They seemed confused by this cryptic answer. 
 
-Thi turned away, and I came to hae side.
+"Where do we go?" asked a boy, nearly my age.
 
-"What's wrong?" I asked.
+"Toward Ulu."
 
-Thi replied, "Nothing...nothing..."
+"There's nothing but ice out there," he said.
 
-And then I knew why this was so difficult for hae.
+There was no response from hae, but a steady gaze toward the darkness. I glanced and saw tears in the shallows of hae eyes, and knew that thi couldn't say it. Nothing of truth or fallacy would satisfy a life that longs to continue but can't.
 
-I turned around and said, "Lao 2-ka off the Ulu coast of Ulukoma."
+I spoke for hae, "We will live on the ice. The Holragi would never dare go further than this point."
 
-<!-- Ramne shows up? -->
+Annu couldn't look me in the eye, but gave my chest a nod of approval and gratitude.
 
-"Ginnu, didn't see you there."
+"Let's begin," I called. "Form two lines and move quickly!"
+
+The crowd did not form two lines, and instead nearly trampled each other, but Fanla saw this coming and kept the weaker and smaller ones protected. I grabbed a few squares each for Laen and Boon and held tightly to a corner as they chewed away on the rest. As I went back to the pile to get one for myself, a familiar hand caught my eye as it reached out toward the pile.
+
+"I'll be right back," I said to Annu.
+
+"Wait, where-," thi objected, but I was gone before thi could stop me.
+
+I found Fanla maintaining a line near the crowd.
+
+"Keep an eye on me," I asked her.
+
+The crowd was densely packed, full of people bobbing left and right to see the rest of the line. But I knew who I was looking for. I reached the end then doubled back on the other side of the lines, certain that I would find him, but his face did not appear. Then I heard Annu scream, and a raucous of confused voices. Fanla and I rushed toward the noise from different sides. No one had stopped their rush for bluekelp save for a Heikoan girl who waved at us to approach.
+
+"A man took Annu into the forest," she said. Fanla took off into the forest, but the girl asked me, "what's he gonna do?"
+
+"Don't worry, we'll track them down," I said. "Just make sure to get your kelp."
+
+She held out her square proudly, and I smiled before sending her off and running into the forest after Fanla.
+
+The sound of metal clanging on metal rang in the chilly air, mingled with the smell of sparks. I caught up to Fanla who was staring into the darkness with a firm wooden staff in hand. 
+
+She held me back. "It's too dangerous. Wait until they stop."
+
+As my eyes began to adjust, I could see their figures in the light of Fanla's outstretched hands. We waited for an opening, a distance just long enough for us to hold Ramne back and disarm him, but every time Annu would move backward Ramne would close the distance in the blink of an eye.
+
+"You are a scourge on humanity!" yelled Ramne, "An affront to life! And now you'll finally die!" 
+
+He wailed on hae but thi caught every blow and jab he tried. Annu caught his dagger in the hook of hae own and flung them both into the snow.
+
+"Go!" Annu said to us, "Get out of here before the Holragi find you!"
+
+In the distance, the explosions grew closer, but I knew this was the opening we had been waiting for. I ran toward them, but Fanla quickly pulled me back.
+
+"No! Annu!" I screamed. "Annu!"
+
+As much as I screamed and pried at her arms, Fanla would not stop. She had a duty to protect the sanctity of life, and the power to weigh its value.
+
+The darkness swallowed their battle and all its sounds mixed with the percussion of an advancing Holragi army.
 
 
 

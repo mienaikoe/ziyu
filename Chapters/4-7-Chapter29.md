@@ -135,9 +135,9 @@ She took a look at the rest of the crew, all of them unmoving and unsure of what
 
 She looked at Annu, at the saffas, and back to Shinna again, but not at me.
 
-"We have enough mouths to feed. Rev'i, take your guardians and escort this rabble out. Remove their weapons before you go."
+"We have enough mouths to feed. Rev'i, take your guardians and escort these traitors off the island. Remove their weapons before you go."
 
-"We'll be defenseless!" Shinna plead, "Slavers would take us in an instant!"
+"We'll be defenseless!" Shinna plead, "The slavers will find us unarmed and take us in an instant!"
 
 But Melna was unaffable. "The dead wield justice through the living," she said solemnly. "There is no fate harsh enough for those who betrayed Melna. You're lucky to be leaving this place alive."
 
