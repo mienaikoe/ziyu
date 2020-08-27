@@ -282,9 +282,7 @@ Setre stopped, considering the idea, but then shook it off.
 
 Kip had never seen such a formidable spirit. In the face of capture Cas retained every thread of hae conviction.
 
-Setre removed her spear and held it to Cas's neck. Thi didn't flinch as they both stared each other down.
-
-
+Setre removed her spear and held it to Casra's neck. Thi didn't flinch as they both stared each other down.
 
 
 "You're coming with me," She said in a broken voice, pushing Casra back on the pathway to the Great Pavilion.

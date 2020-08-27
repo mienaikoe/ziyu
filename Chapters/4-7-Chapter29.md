@@ -181,7 +181,7 @@ I turned around, tripping over a rock in the darkness. I looked for Laen and Boo
 
 I headed back toward the shore, hoping to pull him away from Annu and toward the Guardians.
 
-"Now now," he said raising a long dagger to my neck, "You're still a kaln. You've got plenty of time."
+"Now now," he said raising a dagger to my neck, "You're still a kaln. You've got plenty of time."
 
 I stopped abruptly to avoid the blade.
 

@@ -222,33 +222,66 @@ The crowd was densely packed, full of people bobbing left and right to see the r
 
 She held out her square proudly, and I smiled before sending her off and running into the forest after Fanla.
 
-The sound of metal clanging on metal rang in the chilly air, mingled with the smell of sparks. I caught up to Fanla who was staring into the darkness with a firm wooden staff in hand. 
+The sound of metal clanging on metal rang in the chilly air, mingled with the smell of sparks. I caught up to Fanla who was staring into the darkness toward the clamor.
 
 She held me back. "It's too dangerous. Wait until they stop."
 
-As my eyes began to adjust, I could see their figures in the light of Fanla's outstretched hands. We waited for an opening, a distance just long enough for us to hold Ramne back and disarm him, but every time Annu would move backward Ramne would close the distance in the blink of an eye.
+As my eyes began to adjust, I could see their figures in the light of Fanla's outstretched hands. A jingling sound accompanied Annu's dodging and weaving through Ramne's attacks. As I looked closer, I saw that thi held Melna's binding pendant taut in front of hae as a sort of weapon. We waited for an opening, a distance just long enough for us to hold Ramne back and disarm him, but every time Annu would create distance between them Ramne would close it in an instant.
 
-"You are a scourge on humanity!" yelled Ramne, "An affront to life! And now you'll finally die!" 
+"You can't stop this, Annu!" yelled Ramne, "The Holragi have control!" 
 
-He wailed on hae but thi caught every blow and jab he tried. Annu caught his dagger in the hook of hae own and flung them both into the snow.
+He wailed on hae but thi dodged every blow and jab he tried. In a fake motion, Ramne thrusted his dagger in a stabbing motion toward hae belly, then twisted in the direction of hae dodge and struck the front of hae shoulder, nearly landing his blow on hae neck. Annu growled between hae teeth in pain and stepped away from Ramne a few paces, but thi did not let hae guard down. I wanted to run and help hae, but Fanla saw Ramne approaching again and held me back. He tried the same movement again, twisting in the direction of hae dodge, but this time Annu predicted his movements and dodged his second swing.
 
-"Go!" Annu said to us, "Get out of here before the Holragi find you!"
+"You're an undertake, Ginnu. A fool. You're sending these people to their deaths!"
 
-In the distance, the explosions grew closer, but I knew this was the opening we had been waiting for. I ran toward them, but Fanla quickly pulled me back.
+A third time, he lunged at hae, and this time thi dodged underneath his free hand, slipping behind him in his most vulnerable stance. Thi caught his neck in the strand of the pendant and held him back, while Fanla rushed in to prevent a counterattack. Ramne writhed with his dagger and landed a blow on Annu's belly, to which thi cried in pain and forced him onto the ground. Fanla deftly pinned his arm down and wrested the dagger free. 
 
-"No! Annu!" I screamed. "Annu!"
+Thi stopped to his ear, and spoke to him in a fevered voice, "Remember this as you breathe your last. My name is Annu. You sent me to my death countless times, only because you knew you could do it again. The pain... the suffering you caused can never be erased. Death is now every part of me. It becomes me. And nothing makes me happier than returning this gift to you."
 
-As much as I screamed and pried at her arms, Fanla would not stop. She had a duty to protect the sanctity of life, and the power to weigh its value.
+Thi moved hae knee onto his head and pushed his face firmly into the frozen dirt. 
 
-The darkness swallowed their battle and all its sounds mixed with the percussion of an advancing Holragi army.
+And it was done.
 
+In the distance, the sound of explosions and yells grew closer. 
 
+"The guardians are being pushed back," said Fanla.
 
+*Setre.*
 
+Annu stood up from Ramne's lifeless body and watched the motion in the trees grow closer. Thi took up Ramne's dagger, laughed with that same fervored voice, and readied haeself as if to go into battle.
 
+"Run!" yelled Fanla.
 
+I swiftly ran to Ramne's body and fetched the pendant, wanting to help hae fight. But Fanla pulled hard on my arm to wrest me from that idea. I screamed and pried at her arms, but Fanla would not stop until we had reached the shore.
 
+*Nather.*
 
+The darkness swallowed the percussion of an advancing Holragi army as we came back into the clearing. Everyone had a faint blue glow underneath their skin, and seemed in somewhat of a euphoric state.
+
+"Into the water, everyone! The Holragi are on their way!"
+
+The crowd waded into the water, kicking up a large blue froth that spanned the coast for as far as we could see. I checked on Laen and Boon, made sure the skin under their fur was turning blue. They were fighting sleep, but refused to go without me. Overhead, a dim streak of light formed in the sky and a rumbling noise came over my listener.
+
+*"If anyone can hear me, I'm landing Lao 2-ka Ulu Ulukoma. Lao 2-ka. Ulu. Ulukoma. I need assistance."*
+
+"Come on!" yelled Fanla, impatiently.
+
+I looked around for anything that floated, but this shore had none – only trees and sand. A single tear formed in the corner of my eye as I knew that I'd run out of time. I took my listener off, and buried it snugly in the sand. Thi made a beautiful red arc in the sky, and I regretted that this imaginary friend of mine couldn't see the light of truth thi had made for all of us. I whispered to hae through the air my last goodbye.
+
+"Liffa..."
+
+"I'm... sorry."
+
+Fanla produced two kelp squares from her pocket, and gave one to me. We swallowed the bitterness and spat out the rest, and felt that life-bringing death come upon us. The panic that pervaded our minds had melted away, and left us with clarity of mind, of purpose.
+
+As we waded into the water, a song of my mother's lulled me to sleep.
+
+```
+A little fish, swimming down below,
+A little bird, floating up above,
+With Ara's light filling up the sky,
+It's you who fills our lives with love.
+```
 
 
 
@@ -257,37 +290,6 @@ The darkness swallowed their battle and all its sounds mixed with the percussion
 
 
 <!--
-
-
-
---> 
-
-
-
-
-
-
-
-
-
-<!--
-What comes next:
-
-- Fanla frees Laen and Boon
-- Linyu falls onto Laen's Back
-- Fanla and Setre treat Linyu's wound
-  - Linyu talks about the underworld
-- The others come back
-  - Annu corroborates what Linyu says
-  - Setre is furious but the group wants to hear
-- They go to the underworld
-  - Many get kanosin and sink in
-- Linyu, Annu, Setre, and Ramne (who has disguised himself with the crowd) are the last to get in
-  - They duke it out
-  - Setre falls prone
-  - Annu saves her life and pushes Ramne and haeself out of the underworld
-- Linyu speaks endlessly about Annu and/or Liffa as Setre plunges hae under the water
-- Chapter Ends
 
 Prologue
 
