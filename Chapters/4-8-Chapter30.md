@@ -272,9 +272,9 @@ I looked around for anything that floated, but this shore had none – only tree
 
 "I'm... sorry."
 
-Fanla produced two kelp squares from her pocket, and gave one to me. We swallowed the bitterness and spat out the rest, and felt that life-bringing death come upon us. The panic that pervaded our minds had melted away, and left us with clarity of mind, of purpose.
+Fanla produced two kelp squares from her pocket, and gave one to me. We swallowed the bitterness and spat out the rest, and felt that life-bringing death come upon us. All of the turmoil that pervaded our minds had melted away, and left us with ultimate clarity. We stood within our minds, together in an infinitely transparent space. We knew our purpose, for time knew it for us.
 
-As we waded into the water, a song of my mother's lulled me to sleep.
+As we waded into the water, my mother's voice came to me. Like a ziyu in the morning.
 
 ```
 A little fish, swimming down below,

@@ -370,14 +370,14 @@ On Obscura tova 0.9, I inspected the spacerail and The agreed and checked trajec
 
 First Bleed Entry: Over Heiko Center, Obscura + tova 4.3.7
 Second Bleed Entry: Over Holragi-Spacerail, Obscura + tova 4.7.12
-Final Approach: Lao 2-ka Off the Ulu coast of Ulukoma, Obscura + tova 4.11.6
+Final Approach: Ulukoma - Ulu Lao 2-ka, Obscura + tova 4.11.6
 
 - Jesse
 
 (Godspeed, Liffa)
 ```
 
-_4.11.6. You are not forgotten, Liffa. I'm coming for you._
+"4.11.6. Ulukoma - Ulu Lao 2-ka" I said aloud as I wrote on my arm. "You are not forgotten, Liffa. I'm coming for you."
 
 I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 

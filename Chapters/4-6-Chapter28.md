@@ -110,15 +110,15 @@ Shinna turned hae sight toward me, and then toward something behind me. I turned
 
 Thi found a sturdy rock to bind the rope to and with a few flicks of the wrist thi commuted a series of loops along the length of the rope, pulling it to and fro. As if from nowhere, a wide knot encircled the rock and held fast. I gasped in awe while Annu pulled me from my trance out of the cold water.
 
-"Ginnu," Shinna began, "I... I'm sorry I never checked on you."
+"Ginnu," Shinna began awkwardly, "I... I'm sorry I never checked on you."
 
 "Don't," thi swallowed hae emotions. "It exists only in the past. Leave it there."
 
-"I just... he promised us that you were a friend. That you wanted to remain discreet."
+"He promised us that you were a friend. That you wanted to remain discreet."
 
 "I can't fault you for things you didn't know."
 
-"It is my duty to know what happens on my ship."
+"It's my duty to know what happens on my ship."
 
 "Shinna, you can sulk about it all you want, but the past is the past. I'm done with that man. and I'd like it to stay that way."
 
@@ -130,7 +130,7 @@ Annu continued, "That name: Ginnu. It's what Ramne called me, but it's not who I
 
 I blushed, feeling vindicated at being called a maman again. I hadn't felt like a kaln since my mother-
 
-Annu changed the subject, "About your boat. We need a way to Ulukoma."
+"About your boat," Annu changed the subject, "We need a way to Ulukoma."
 
 Shinna scoffed at the idea. "Why would you want to go there at a time like this?"
 
@@ -148,9 +148,9 @@ I let go of Annu's hand and stepped forward, channeling my mother's bravery, try
 
 Thi laughed, "You expect me to believe that thing had a live human in it?"
 
-But I maintained a serious face. "I've been listening," I said, pointing to the lisitener on my ear. "Thi is still up there, orbiting around the planet, but not forever. Thi is landing in the darkness of Ulukoma at 11.6, but Liffa will drown unless we are there to pull hae out of the water."
+But I maintained a serious face. "I found notes from Heiko's observer," I said, recalling the writing on my arm. "And I've been listening to hae communications. Thi is still up there, orbiting around the planet, but not forever. Thi is scheduled to land soon, near Ulukoma. But thi will drown unless we're there to pull hae out of the water."
 
-Thi began to think.
+Thi began to think, staring closely at my arm.
 
 "And what about our next meal?" thi asked. "We'd love to be heroes, but even a hero needs to eat."
 
@@ -202,33 +202,5 @@ Laen's back kept me warm as I nuzzled my face into his fur.
 
 "Time to save Liffa," I whispered.
 
-<!-- "Annu. What did you use to get here?"
-
-"Ramne brought me here. I think I was asleep at that time."
-
-"But if Ramne had to steal a boat, then he must have lost his last one. I wonder where  -->
-
-<!--
-
-the ship from Shinna comes to the rescue!!!
-
-or.. bail-out boats
-
- -->
-
-<!--
-- Liffa's first bleed perigee
-- Linyu sees that Annu's wound has healed
-- Setre has landed to search for Linyu and Pomri
-  - She would be searching in Heiko but may have started in Rudjan, to search Casra's home
-    - They take some antikan with them
-  - She is safe in Rudjan because she isn't Heikoi and nobody knows her
 
 
-Ending:
-- Liffa is saved by Linyu and Annu and barely makes it to Ulukoma's Crypt
-- Annu sacrifices haeself to kill Ramne and save the rest
-- Setre goes on a quest for Pomri (epilogue?)
-
-
--->

@@ -24,38 +24,31 @@ She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand of
 
 "Linyu," she called to me as I stormed behind the ziyu, "stop this nonsense."
 
-I turned and screamed at her, "Everyone I love has died! You dare call my feelings nonsense? Have some fucking empathy!"
+I turned and screamed at her, "Everyone I love has died! How can you call my feelings nonsense? Have some fucking empathy!"
 
-She looked at me, speechless, in a sort of way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take the patience of hae nather for granted. But her shock drove her away instead. She was my nather, but my mother raised me alone.
+She looked at me, speechless, in a sort of way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take her patience for granted. But we both knew the truth. She was my nather, but my mother raised me alone.
 
-I raised the microphone on the ziyu and spoke to hae.
+I raised the microphone on the ziyu and spoke.
 
 "Liffa. I don't know if you can hear this. I want you to know, that everything is quickly turning to chaos down here. But you are not forgotten. I'm trying to figure out where you'll land so I can get to you. If you can hear this... please send some sort of signal."
 
 The silence and static in my listener grew but my finger lingered on the speaking lever, waiting for a moment of hope. It didn't come.
 
-<!--
-"Liffa!"
+"That's enough," Setre said. "They'll find us here if you keep that up."
 
-I stood in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion. My hand perched firmly over the lever that connected me to hae, sure of its urgency.
-
-"Liffa!" I screamed hysterically into the microphone, but I knew that thi couldn't hear me across such a distance. Holrag had undoubtedly given up on hae, but I wouldn't.
-
-Setre came to me and put a hand on my shoulder, but I was stubborn, shrugged her hand off, and pressed the button, "Liffa, please pick up if you can hear this."
-
-The silence grew but my hand ignored it. Setre said, "That's enough. They'll find us here if you keep that up."
-
-"So let them! We can fight!" I responded.
-
-
-
-"What good is sitting going to do?!"
+"So let them! We can fight!" I responded. "What good is sitting?!"
 
 She looked at me in a way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take the patience of hae nather for granted.
 
-She tried persuasion. "Lin. What did your mother teach you to do with a problem?"
+"Lin. What did your mother teach you to do with a problem?"
 
-"Solve it."
+"Don't talk to me about my mother."
+
+She paused and looked to the side, softened her voice. "She meant a lot to more than just you, you know."
+
+Still I couldn't look her in the eye, but I felt a small pang of guilt.
+
+"Solve it," I answered her.
 
 "Before that."
 
@@ -63,18 +56,19 @@ She tried persuasion. "Lin. What did your mother teach you to do with a problem?
 
 "And how do you understand a problem you've never seen before?"
 
-I caught her meaning, albeit a little late, but she saw the value in this moment.
+I caught her meaning, but late.
 
-Her voice had calmed to a cajole, "By talking to the people around you. Now let's head back and start doing that."
+Her voice had calmed to a cajole, "By talking to the people around you. We'll never get anywhere fighting, so let's look ahead and try our best."
 
-Reluctantly, I nestled the microphone onto a bend in the branches and
- -->
+"You're just looking to shirk your responsibilities. Be honest, you didn't grieve when thi died."
 
-I looked out into the crowd of Heikoi and Ulukomai. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
+She raised her voice again, "I can't afford to grieve!" It was broken, and it was hurt, and I regretted what I had just said. 
+
+With a loud thud of her spear against the ground, she lifted herself and stormed off toward the crowd, leaving me to my own thoughts. I looked out into the crowd of Heikoi and Ulukomai. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
 "Setre, we need to talk," said Pomri, approaching her. I kept my position by the tree and listened closely.
 
-"Pomri," she spoke her name with pity, empathizing about Melna's loss. But Pomri was focused on her people.
+"Pomri," she spoke her name with a solemn pity, empathizing about Melna's loss, trying to keep her voice from breaking again. But Pomri was focused on her people.
 
 "Heiko has just been wiped away. Half of our people have been captured or killed. Why are we just sitting here?", Pomri asked, incredulous, "We should go back. Look for survivors, recover what's left of our homeland."
 
@@ -134,7 +128,7 @@ She cleared her throat, and spoke again. "Ulukoma is a place of rebirth, renewal
 
 She pointed to a group of Ulukomai near her, focusing on a man and a maman, both of them fit enough to carry an entire tree between them.
 
-"Kinsho will lead the fishers. Senri, the kelpers. Rev'i and the other guardians, resume your patrols. If you are a constructor, come to me."
+"Kinsho will lead the fishers. Senri, the kelpers. Fanla will continue with the medical team. Rev'i and the other guardians, resume your patrols. If you are a constructor, come to me."
 
 Kinsho and Senri nodded together in affirmation.
 
