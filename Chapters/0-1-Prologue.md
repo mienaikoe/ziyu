@@ -1,33 +1,36 @@
 
 ## Prologue
 
-  You cannot hear the first note of a ziyu's song. There is no grand entrance or catchy hook. No meandering conversation between a point and its counter. Each leaf is but the gentlest voice in a choir of wind. In the calm, or when it's too chilly the song is inaudible. But as the wind slowly picks up and the light of Ara peeks above the horizon, you start to recognize the sound, only it's been there for a while and you can't place exactly when it began. At full breeze you are deafened by the sound of every leaf and the complexity of the resounding chords and flourishes.
+You cannot hear the first note of a ziyu's song. There is no grand entrance or catchy hook. No meandering conversation between a point and its counter. Each leaf is a gentle voice in a choir of the wind, finding its voice with the morning breeze. The tree is silent in the night, when the air is still and the stems curl up into themselves. But each morning, the light of Ara grows upon the horizon and awakens the breeze. You start to recognize the sound, only it's been there for a while, and you can't place exactly when it began. By the time Ara is full, every leaf is perched and singing, their harmonies intertwined in unimaginable complexity.
 
-  It was under this tree that I was born. Among its leaves and stems and branches, I made my first cry to the world and the world sang back to me. My mother used to describe to me how beautiful it was to hold me in her arms for the first time in this place. I still imagine it sometimes when I come here: laying in her arms after a nap, hidden within the greatest sound in all the world. She would sleep longer than me, and I would stare at her hair bobbing in the wind against the pale orange of Ara, our white dwarf.
+It was under this tree that I was born. Among its leaves and stems and branches, I made my first cry to the world and the world sang back to me. My mother used to tell me how beautiful it was to hold me in have arms for the first time in this place. I still imagine it sometimes when I come here: waking up after a nap, hidden within the greatest sound in all the world. Thi would still be asleep, and I would stare at hae hair bobbing in the wind against the pale light of Ara.
 
-  The traditions say it is good luck to be born under a ziyu, and to be born under its song is a blessing unmatched by any other. I've never felt particularly blessed, born a normal maman in an agricultural town. No real talents other than tilling soil or harvesting root vegetables. I once caught the milta that had nibbled on at least 50 of our Pohua crop, so I guess I'm quick as well, but that's pretty typical for a maman. Perhaps it is simply that I have never put my luck to the test. I tried falling in love, and I joined with my junds so I wouldn't have to do it again. I go to the city sometimes with my junds, but it's usually to help with something at Mel's work. People say we should have children, but we decided to wait for a while so that Kip can finally have some free time. I leave my adventures to the dealings of my garden, and my library of books.
+The traditions say it's good luck to be born under a ziyu, and to be born under its song is a blessing unmatched by any other. I've never felt particularly blessed. I was born a normal maman in a farming town in Heiko province. As a child I tilled the soil and harvested root vegetables. I once caught the milta that had nibbled through at least 50 of our pohua crop, so I guess I'm quick as well, but that's pretty typical for a maman. I tried my luck at a school for the sciences, but fate had a different plan for me. I fell in love with a man and a woman and I was so scared of my feelings that I joined with them as soon as I could so I would never have to fall in love again. I go to the city sometimes with them, but it's usually to help Kipnu with something. People say we should have children, but we decided to wait until my spouses have more freedom. These days, I leave my adventures to the dealings of my garden, and my library of books.
 
-  This morning's adventure was to come back to my birthplace, a birthday tradition of Throngia. Though my parents have passed, I still feel their presence here whenever I come back. They welcome me as the tree does with its great branch-arms stretched wide toward Ara. "I'm back," I tell them, and they let out a sigh of relief that I have made it another year. I take my place at its trunk and wait for the song to lift me.
-  Silence.
+This morning's adventure was to come back to my birthplace, as is tradition. Though my parents have passed, I still feel their presence here whenever I come back. They welcome me as the tree does with its great branch-arms stretched wide toward Ara. "I'm back," I tell it, and it lets out a sigh of relief that I've made it another year. I settle in against its trunk and then its song begins to lift.
 
-  "Something is wrong," my subconscious began.
+Silence.
 
-  I fought back, "It's fine. It's just a little late," and went back to waiting.
+*Something is wrong,* my thoughts began.
 
-  "...It's not coming. Something is wrong."
+*No. It's fine. Just a little late.* 
 
-  The wind had picked up and the sunlight was warming the land, but the ziyu remained silent.
+*...It's not coming. Something is wrong.*
 
-  "It's gone. Why is it gone?"
+The wind had picked up and the sunlight was warming the land, but the ziyu remained silent.
 
-  I stopped my panicked head with a deep breath. "It's just too cold," I said aloud. "The leaves are too cold to sing."
+"It's gone," I said aloud. "What's happened?"
 
-  The air had the faintest chill, but the tree remained silent as I tossed and turned trying to come up with an answer that would settle my mind. None came.
+I took a deep breath and examined the tree, but nothing about it looked different. The air had a chill as it picked up.
 
-  I stood up and dusted off my trousers, catching a last glimpse of the red horizon through the leaves. This place began to unsettle me, as if it were possessed by some malicious spirit, unseen and brooding.
+"It's just too cold," I said aloud. "The leaves are too cold to sing."
 
-  A memory of my mother's voice passed through my mind, pulling me back into the past,    
+I lay there trying to come up with an answer that would settle my mind, but none came. There would be no song today.
 
-  *"The ziyu speaks in the silence."*
+I stood up and dusted off my trousers, catching a last glimpse of the twilight-pink sky through the leaves. The silence of the tree began to unsettle me, as if it were possessed by some malicious spirit, brooding within its fibers.
 
-  "What is it saying?" I asked her, as I always would. She always told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was hearing only the beginning of the answer, and it was deafening.
+But then a memory of my mother's voice passed through my mind and it pulled my mind toward the past.
+
+"The wind speaks," thi would say, "Ziyu tells us what it's saying."
+
+"What is it saying?" I must have asked her a thousand times. She told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was finally hearing such an answer. But the trouble, my friends, was in the question.
