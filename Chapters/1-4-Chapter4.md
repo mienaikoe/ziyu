@@ -2,7 +2,7 @@
 
 The station was just filling up for the next train after the day's first nap. I was feeling sluggish from running around and skipping lunch and sleep, so I settled for two rolls from Gilli's; a sweet one for Laen-Laen and a savoriy one for me. I left him in at the corner, humming with his already-eaten roll and a handful of water, and made my way to the platform.
 
-My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kip if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Mel would ask Tig to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Thimlu says, then those crops don't matter in the scheme of things. Heiko would understand.
+My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Melna would ask Tig to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Thimlu says, then those crops don't matter in the scheme of things. Heiko would understand.
 
 The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare for marshalling."
 
@@ -105,7 +105,7 @@ I took out the letter to review it and think about how I might deliver it. The l
   If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
 ```
 
-"What is this??" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. _Kip... Mel... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
+"What is this??" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. _Kip... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
 
 "You look like you've seen something you regret," said the man, startling me.
 
@@ -115,9 +115,9 @@ I took out the letter to review it and think about how I might deliver it. The l
 
 I shot my eyes toward him, and he explained.
 
-"Kip told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
+"Kipnu told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
 
-_Damn it, Kip._
+_Damn it, Kipnu._
 
 I snapped back, "And you intend to stop me with that leg of yours?"
 
@@ -125,7 +125,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "Why would you do that?"
 
-"My name is Fajro. I used to work with Mel in the senate. I was a fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+"My name is Fajro. I used to work with Melna in the senate. I was a fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
 
 "I assure you it is."
 
@@ -149,7 +149,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "So? People get into shouting matches all the time."
 
-"Has Mel never told you what the Senate's laws are like? The laws were written by religious fanatics hundreds of Ma'to ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+"Has Melna never told you what the Senate's laws are like? The laws were written by religious fanatics hundreds of Ma'to ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
 
 "Why you and not the others?"
 
@@ -175,7 +175,7 @@ _Mel_. "No...I couldn't. I would tarnish her reputation forever."
 
 "How important is this discovery?"
 
-I thought about how Mel might react. She would be furious no matter what I did. Her reputation in the senate would be forever tied to me, but if the observers are right, then we would be remembered in a positive light.
+I thought about how Melna might react. She would be furious no matter what I did. Her reputation in the senate would be forever tied to me, but if the observers are right, then we would be remembered in a positive light.
 
 "I'll do it."
 

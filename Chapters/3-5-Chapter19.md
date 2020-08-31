@@ -88,7 +88,7 @@ Thi finally was able to stand up with Melna's help.
 
 "Thank you, darling."
 
-She hesitated and introduced herself, "Mel-", she rethought her words, "ka. Melka."
+She hesitated and introduced herself, "Melna-", she rethought her words, "ka. Melka."
 
 "Melka. A beautiful name," thi said. "I'm Shinna. My ship is at the northernmost dock. We're about to depart, but come find me if you're ever in the area."
 
@@ -136,7 +136,7 @@ Melna was in awe at Shinna's depth of knowledge, chocking it up to one of the ma
 
 "Crew!", Shinna addressed the crowd of around twenty. The volume of her voice shocked Melna out of her daydream. "This is uh.." Thi leaned toward Melna, trying to remember her name.
 
-"Mel-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
+"Melna-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
 
 "Oy," They all greeted her. She was too paranoid about her identity to correct Shinna, but also too amused to mind.
 

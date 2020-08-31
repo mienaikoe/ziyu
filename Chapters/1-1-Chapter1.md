@@ -18,9 +18,9 @@ She stared at me for a moment - I assume to size up my strange behavior, and the
 
 ---
 
-Kip was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
+Kipnu was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
 
-"Who's the letter from?", I asked Kip casually.
+"Who's the letter from?", I asked Kipnu casually.
 
 "My parents. They're on vacation to the east bay this week."
 
@@ -32,37 +32,37 @@ I was immediately excited. "Oh, I've heard about that. They say there are no clo
 
 "And I bet it's hot enough to pass out too," he remarked, still not convinced.
 
-"That sounds awful," said Mel, her eyes still focused her work, "Why would someone choose that place to meditate in?"
+"That sounds awful," said Melna, her eyes still focused her work, "Why would someone choose that place to meditate in?"
 
-Kip shrugged and let out a hopeless hum, more focused on the letter than the now boiling soup pot. I came closer and nudged him away to remove the pot from the focus while he took a moment to snap out of reading.
+Kipnu shrugged and let out a hopeless hum, more focused on the letter than the now boiling soup pot. I came closer and nudged him away to remove the pot from the focus while he took a moment to snap out of reading.
 
 "A bowl would be great," I told him.
 
 "Ah yea. A bowl," he fetched one and held it out for me to pour into.
 
-Mel walked over to us to check on the food. "Let me make sure it's still like my Amma used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
+Melna walked over to us to check on the food. "Let me make sure it's still like my Amma used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
 
 I did as she said and finally sat down to eat.
 
-A moment of quiet slurping went by and I could see Mel's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
+A moment of quiet slurping went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
 
 "Thinking about traveling?" I chimed at her.
 
 "I am. It's been too long since we've gone anywhere."
 
-Kip joined, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
+Kipnu joined, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
 
 "Hey, we all had fun uh... catching fish," I defended myself.
 
-"You mean sleeping all day," Mel interjected.
+"You mean sleeping all day," Melna interjected.
 
 I defended my position, "Hey, catching fish was fun too."
 
-"There was literally nothing else to do," Kip reminded me.
+"There was literally nothing else to do," Kipnu reminded me.
 
 "Yea... but I'd totally do it again!"
 
-And I would. I was happy with them wherever we went. He and Mel shook heads and laughed while I broke the smarmiest smile.
+And I would. I was happy with them wherever we went. He and Melna shook heads and laughed while I broke the smarmiest smile.
 
 ---
 
@@ -80,7 +80,7 @@ She moved to the mirror and I followed her. The growing light of Ara had been sh
 
 "The farmers... we have a responsibility, you know. If a wind current drift is happening, we need to know so we aren't caught by an early-"
 
-"Lif... I've already told you all I that I know. I will learn more when I attend today's vote."
+"Liffa... I've already told you all I that I know. I will learn more when I attend today's vote."
 
 She was a stone wall of secrets. I was unsatisfied, but it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
@@ -92,19 +92,19 @@ She looked at me through the mirror for a moment, searching for motives in a fac
 
 I let out a frustrated sigh and made my way to the doorway of her room.
 
-"Lif..."
+"Liffa..."
 
 I stopped.
 
-"Don't tell Kip about this."
+"Don't tell Kipnu about this."
 
 I continued.
 
 ---
 
-Kip was going over his schedule of patients in the same spot we had left him. He looked up and took a glance at me, burying his head in the schedule again.
+Kipnu was going over his schedule of patients in the same spot we had left him. He looked up and took a glance at me, burying his head in the schedule again.
 
-"Mel got you down?"
+"Melna got you down?"
 
 "How could you tell?"
 
@@ -114,7 +114,7 @@ I waited for him to elaborate.
 
 "...Reasons."
 
-_Thanks Kip._
+_Thanks Kipnu._
 
 I mustered up a response, "Don't want to talk about it right now."
 
@@ -122,7 +122,7 @@ He wasn't convinced, but he was more accepting about these things than I was.
 
 "Okay... suit yourself"
 
-I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Mel came downstairs and looked us over. She had a confused look for a brief moment, but resumed her recessional.
+I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her recessional.
 
 "I'm headed to the train."
 
@@ -142,10 +142,10 @@ I looked in her eyes more intently. Something about her eyes was very out of pla
 
 I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate.
 
-"Thank you. Lif."
+"Thank you. Liffa."
 
-Kip walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. He and I watched as she entered the daylight and headed toward the rail station without looking back. I held my binding pendant tightly.
+Kipnu walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. He and I watched as she entered the daylight and headed toward the rail station without looking back. I held my binding pendant tightly.
 
-"What's eating her?" Kip asked again.
+"What's eating her?" Kipnu asked again.
 
 "Nothing. Just a chill in the air."

@@ -1,36 +1,36 @@
 <!--
-  Cas teaches Kip about radio,
+  Cas teaches Kipnu about radio,
     ( It annoys me that Lin is just a background character so far. )
   Casra secretly plans with Setre to be taken to Lissa as a martyrdom
   A sound is broadcast to people with coils, and they start a mutiny against Lissa. Lissa and Casra are killed in the action.
-    Set mourns over hae. Lin is vengeful to Set. Kip mourns from a distance, feeling a bit guilty for being an intruder.
-    Casra says hae last words to them and talks about a better future - Kip is reminded that hae death will be for nothing unless he does something to stop the ice age.
-    Kip hears messages about Lif from Holrag and listens to hae fear on the radio.
+    Set mourns over hae. Lin is vengeful to Set. Kipnu mourns from a distance, feeling a bit guilty for being an intruder.
+    Casra says hae last words to them and talks about a better future - Kipnu is reminded that hae death will be for nothing unless he does something to stop the ice age.
+    Kipnu hears messages about Liffa from Holrag and listens to hae fear on the radio.
 
   Interlogue:
-    Next day, a boat comes for everyone who is able-bodied and able-minded to help with preparations. Kip gets on the boat with a radio and regrets what happened at the Great Pavilion, but feels hopeful for the future with Setre in charge. Mel is waiting for him at Shaki Harbor.
+    Next day, a boat comes for everyone who is able-bodied and able-minded to help with preparations. Kipnu gets on the boat with a radio and regrets what happened at the Great Pavilion, but feels hopeful for the future with Setre in charge. Melna is waiting for him at Shaki Harbor.
 
 
   Thoughts:
   - The reader will be unsatisfied about Casra being killed off.
     - But it's a satisfying death.
   - Is radio that useful?
-    - It will be to listen to Lif who will give instructions for sending a sign of good will
+    - It will be to listen to Liffa who will give instructions for sending a sign of good will
       - A weapon like Holrag would plan to send would be a sign of bad will, and more robots would come later (BOOK 2)
       - Their alternative is for people from all 3 corners of the rim to collaboratively work on a problem and send an ambassador to deliver it.
-        - Mel volunteers
+        - Melna volunteers
         - They can collaborate with telegraph. Why is wireless important?
           - Wireless will teach them about far infrared/CO2/Greenhouse effect ???
           - Wireless is how they will keep in contact with the machines instead of destroying them like Holrag
-            - Machines to Mel: "There is more you must learn." Mel gets angry and tries to convince them. "Give me back my Lif."
-    - Mel will want to know Holrag's plans.
+            - Machines to Melna: "There is more you must learn." Melna gets angry and tries to convince them. "Give me back my Liffa."
+    - Melna will want to know Holrag's plans.
 -->
 
 ## Ch11
 
 "Lin, fetch a listener and some bluekelp," Casra requested.
 
-Kip was surprised, "What are we doing now?"
+Kipnu was surprised, "What are we doing now?"
 
 "You wanted to learn about these coils right? If we're to change anything in the Great Pavilion, you're going to have to learn how to use them."
 
@@ -38,11 +38,11 @@ Kip was surprised, "What are we doing now?"
 
 "You'll see."
 
-The air had picked up and become colder than before. Kip considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. _Mel... What ire does your day bring? Will you take me back?_
+The air had picked up and become colder than before. Kipnu considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. _Mel... What ire does your day bring? Will you take me back?_
 
 Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a big flap of metal hiding another smaller coil and cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand - not the huge metal monstrosities he had imagined them to be.
 
-Thi handed the listener to Kip and told him, "This is my newest one. Don't go and break it."
+Thi handed the listener to Kipnu and told him, "This is my newest one. Don't go and break it."
 
 Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
 
@@ -54,13 +54,13 @@ Thi left an area clear where Casra had cleared away the leaves and opened anothe
 
 "What's that handle for?" he asked.
 
-"To wake up the miltas that power it," Linyu joked, but Kip didn't get it.
+"To wake up the miltas that power it," Linyu joked, but Kipnu didn't get it.
 
 "That was a joke," thi said again. Kipnu chuckled but still was looking for an answer.
 
 Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
 
-Kip was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
+Kipnu was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
 
 "I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your ear to the rock while I knocked on it with a hammer from the other side."
 
@@ -72,15 +72,15 @@ Kip was confused. "How?" He asked, "I mean we learned electricity in medical, bu
 
 "All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
 
-"Ahh, I see," Kip said, only half understanding.
+"Ahh, I see," Kipnu said, only half understanding.
 
-"Come over here, Kip," Casra said. Thi took the listener from Kip and held it up to the light from the bluekelp.
+"Come over here, Kipnu," Casra said. Thi took the listener from Kipnu and held it up to the light from the bluekelp.
 
 "See these two glass beads?" Thi asked, pointing to a large transparent bulb, and a smaller opaque one. "These work together to pull sound out of the electricity in the air - that knocking on the wall. When you talk into a transmitter box, the machine translates your speech into something it can put into the air, so you need these beads to translate it back." Thi moved hae hand to the coil around the tree. "All these coils you see around are what keeps those bumps in the air constant. They're like bells - they ring when sung to. If you make one event slightly different in any way, it will respond to a different tone of singing, so each one must be made the same."
 
-Casra handed the listener back to Kip and asked, "You want to try it?"
+Casra handed the listener back to Kipnu and asked, "You want to try it?"
 
-Kip could barely understand what thi was talking about, but was eager to learn anyway.
+Kipnu could barely understand what thi was talking about, but was eager to learn anyway.
 
 "Ok, so take this listener, and walk about fifty paces back. Don't look back - just listen to what you can hear from it."
 
@@ -90,7 +90,7 @@ Kip could barely understand what thi was talking about, but was eager to learn a
 
 He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. _Are the trees talking to each other?_ And then from the device on his ear, he heard the faint noise of a maman clearing hae throat. _Casra?_
 
-Hae voice began with a single tone, chanting in a steady beat. At first it was quiet, muddied by reverberations and echoes, barely audible through the static. But with every new beat, the thunderous reverberations re-aligned, gradually coalescing to single signal, until at once, Kip could hear hae as if hae voice were coming from inside his own head. Thi began singing on top of the beat as if a lone voice stood next to him while a choir of thousands continued chanting from the treetops.
+Hae voice began with a single tone, chanting in a steady beat. At first it was quiet, muddied by reverberations and echoes, barely audible through the static. But with every new beat, the thunderous reverberations re-aligned, gradually coalescing to single signal, until at once, Kipnu could hear hae as if hae voice were coming from inside his own head. Thi began singing on top of the beat as if a lone voice stood next to him while a choir of thousands continued chanting from the treetops.
 
 <!-- TODO: This song is pretty cringey -->
 
@@ -145,7 +145,7 @@ He made his way back, and saw a beam of joy on their faces. There was no doubt i
 
 "What's happened that people are suddenly at each others' necks? When we left Shaki, everything was boring and humdrum in the news."
 
-Kip paused and pondered again if he should mention it.
+Kipnu paused and pondered again if he should mention it.
 
 He said, "I'll tell you later."
 
@@ -153,7 +153,7 @@ He said, "I'll tell you later."
 
 He stood up and walked back toward their home.
 
-"Kip. We deserve to know," thi said.
+"Kipnu. We deserve to know," thi said.
 
 He turned back around, and stared at Casra and hae kaln with despair. They needed to know.
 
@@ -169,7 +169,7 @@ He turned back around, and stared at Casra and hae kaln with despair. They neede
 
 Casra started talking to her self, "All our work... Everyone I've ever known..."
 
-Kip noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to understand hae own mortality.
+Kipnu noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age was, but not quite old enough to understand hae own mortality.
 
 "I'm sorry... I've said too much."
 
@@ -177,7 +177,7 @@ Casra leaned in to hug Linyu, while keeping her eyes up.
 
 "It's fine. It's better to face reality prepared than to live in willful ignorance," thi said. "I appreciate that you were trying to protect me, but my plans won't change. I will not divert from my plan to liberate the Great Pavilion."
 
-Kip, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
+Kipnu, kneeled down to sit with her and said, "You came here without a sentence, didn't you? Come with me to Heiko after your work here is done. Maybe we can use radio to talk to those things at Ara."
 
 "I appreciate your intentions, Kipnu, but I would rather die than leave this place. I let it fall into anarchy once before and I must not let it happen again."
 
@@ -189,11 +189,11 @@ He smirked and bowed his head, acknowledging that thi couldn't be swayed.
 
 "Well, I'll try my best to learn then," he said.
 
-"Thank you...Kip."
+"Thank you...Kipnu."
 
 Thi stood up again, and pushed Linyu toward home. "Let's get our first nap, shall we? The next shipment will arrive in a Va'la and I want to be prepared for anything."
 
-"Shipment?" Kip asked.
+"Shipment?" Kipnu asked.
 
 "Of convicted. The same one we came in on yesterday."
 

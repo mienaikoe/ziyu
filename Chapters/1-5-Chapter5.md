@@ -96,7 +96,7 @@ I remained silent and compliant, too nervous to say anything. We followed the in
 
 "How can we get through them?" I asked, feeling doubtful.
 
-"Leave that to me. This is why Kip sent me after all. I'll distract them while you go around and slip through the door."
+"Leave that to me. This is why Kipnu sent me after all. I'll distract them while you go around and slip through the door."
 
 A pang of anger welled up in me but I kept my eyes faced forward, "What sort of plan is that?"
 

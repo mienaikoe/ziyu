@@ -1,19 +1,16 @@
-
-
 ## Chapter 8
 
+The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and rusted nails. despite its mostly ramshackle shape, its risers were strong and held tightly against the power rails, likely out of fear of the sails snapping in an eager wind. Kipnu was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough.
 
-The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and rusted nails. despite its mostly ramshackle shape, its risers were strong and held tightly against the power rails, likely out of fear of the sails snapping in an eager wind. Kip was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough. 
+The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of the exiles seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a child, with clear signs of withdraw. _These people need medical help. Ulu will only make them worse._
 
-The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles aboard, but each was accompanied by an escort. Most of the exiles seemed mentally detached - either addicted to kanosin or just plain depressed. One was just a child, with clear signs of withdraw. *These people need medical help. Ulu will only make them worse.*
+After a few va'ma, they came near to a large island with tall trees and a bright bonfire roaring quite a way from the shore. The dimness of the sky made it feel like the end of the day, but they hadn't gone far. They could still see the outskirts of Shaki from across the sea. Kipnu's escort unchained his arms and shoved him to get in a line along the side of the boat with the others. The boat was still quite a ways from shore, and Kipnu couldn't tell what they were lining up for until he felt another stiff push behind him and the cold water hit like needles in his skin. He quickly surfaced and saw others fall in after him, some of them struggling to stay afloat. But he didn't have the strength to help them - he had to swim.
 
-After a few va'ma, they came near to a large island with tall trees and a bright bonfire roaring quite a way from the shore. The dimness of the sky made it feel like the end of the day, but they hadn't gone far. They could still see the outskirts of Shaki from across the sea. Kip's escort unchained his arms and shoved him to get in a line along the side of the boat with the others. The boat was still quite a ways from shore, and Kip couldn't tell what they were lining up for until he felt another stiff push behind him and the cold water hit like needles in his skin. He quickly surfaced and saw others fall in after him, some of them struggling to stay afloat. But he didn't have the strength to help them - he had to swim.
-
-The cold turned into numbness as he kept his head above water and swam his hardest toward the shore. The wind was strongly against him and toward Ara, and was kicking up a current that would push him back if he stopped, but his efforts were focused on getting to shore, and he had purged his mind of all other worries in order to survive. He felt a tug at his leg in the middle of an exhale and he went under while another person clambered over his submerged back and jumped forward, leaving him disoriented and deprived of oxygen. He panicked and flailed around in the water until he felt his feet touch something solid. The water wasn't so deep here, he must be close. He dug his toes into the pebble bed and powered back to the surface to resume his swim to shore. When he made it to standing depth, he stopped to catch his breath while he looked for other people make it ashore. He spotted a young and very thin maman whose muscles were locking up in the cold. A surge of urgency rushed through him, and he swam back out to hae. Kip latched hae arms to his shoulders while he swam backward to shore, making sure both of their heads were above water. Hae lips were turning blue and hae muscles relaxed again before Kip could make it back.
+The cold turned into numbness as he kept his head above water and swam his hardest toward the shore. The wind was strongly against him and toward Ara, and was kicking up a current that would push him back if he stopped, but his efforts were focused on getting to shore, and he had purged his mind of all other worries in order to survive. He felt a tug at his leg in the middle of an exhale and he went under while another person clambered over his submerged back and jumped forward, leaving him disoriented and deprived of oxygen. He panicked and flailed around in the water until he felt his feet touch something solid. The water wasn't so deep here, he must be close. He dug his toes into the pebble bed and powered back to the surface to resume his swim to shore. When he made it to standing depth, he stopped to catch his breath while he looked for other people make it ashore. He spotted a young and very thin maman whose muscles were locking up in the cold. A surge of urgency rushed through him, and he swam back out to hae. Kipnu latched hae arms to his shoulders while he swam backward to shore, making sure both of their heads were above water. Hae lips were turning blue and hae muscles relaxed again before Kipnu could make it back.
 
 "Come on. Stay awake, kid," he said, but the maman was unresponsive.
 
-Once they got ashore, Kip searched for a pulse and didn't feel one.
+Once they got ashore, Kipnu searched for a pulse and didn't feel one.
 
 "Shit. No no no. Don't die."
 
@@ -25,21 +22,21 @@ He quickly dug a small trench in the pebbles to insulate them while he used his 
 
 "Well this isn't working," the man responded.
 
-Kip butted in, "It will take too long to get there. Thi'll be dead by the time we start running."
+Kipnu butted in, "It will take too long to get there. Thi'll be dead by the time we start running."
 
 The crowd paused in thought, and then a maman spoke up, "Everyone gather kindling from the forest. We'll start a fire here."
 
-Those who were able sprung into action while the maman rushed over to Kip who was still pushing on the child's hearts.
+Those who were able sprung into action while the maman rushed over to Kipnu who was still pushing on the child's hearts.
 
 Thi said, "I'm Casra, a doctor from Shaki. I can take over if you're tired."
 
-Kip responded between pushes. "Thank you...shouldn't...stop". Casra understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit while Casra stood them to form a cone. Suddenly, a cough was heard and all turned to find the child moving.
+Kipnu responded between pushes. "Thank you...shouldn't...stop". Casra understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit while Casra stood them to form a cone. Suddenly, a cough was heard and all turned to find the child moving.
 
-"You're alive!" Kip said, jubilant.
+"You're alive!" Kipnu said, jubilant.
 
-Casra reset hae focus and produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. A woman sat down beside hae and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kip carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
+Casra reset hae focus and produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. A woman sat down beside hae and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kipnu carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
 
-Meanwhile Kip was trying to talk to the child to keep hae awake and aware.
+Meanwhile Kipnu was trying to talk to the child to keep hae awake and aware.
 
 "Hey, what's your name?"
 
@@ -47,15 +44,15 @@ Meanwhile Kip was trying to talk to the child to keep hae awake and aware.
 
 "Hey, you're ok now. We made it to shore."
 
-Kip kept his arms and legs wrapped around the child while the smolders turned to flames and then to fire and hae shivers settled. The whole group was huddled closely around the fire now, some napping to regain their strength they had just encountered while Casra remained close to Kip and the child.
+Kipnu kept his arms and legs wrapped around the child while the smolders turned to flames and then to fire and hae shivers settled. The whole group was huddled closely around the fire now, some napping to regain their strength they had just encountered while Casra remained close to Kipnu and the child.
 
 "Colder than I thought it would be," she tried to make small talk.
 
-Kip paused, wondering if he should mention the obstruction.
+Kipnu paused, wondering if he should mention the obstruction.
 
 Thi changed the subject, "I didn't get your name earlier."
 
-Kip responded, relieved, "I'm Kip. A doctor from Heiko."
+Kipnu responded, relieved, "I'm Kipnu. A doctor from Heiko."
 
 "Two doctors in Ulu. What are the odds?"
 
@@ -67,13 +64,13 @@ He asked her, "So, Casra, how did you wind up here?"
 
 "Well. I pinned a guy against a wall who wanted to send my jund to space."
 
-Casra laughed until thi noticed that Kip wasn't.
+Casra laughed until thi noticed that Kipnu wasn't.
 
 "Oh. That... must be a long story."
 
 "It is."
 
-Kip felt a sense of longing for Lif and Mel, but then realized he was being too cold. "It's a story best told in the light."
+Kipnu felt a sense of longing for Liffa and Melna, but then realized he was being too cold. "It's a story best told in the light."
 
 "I see."
 
@@ -83,15 +80,15 @@ Kip felt a sense of longing for Lif and Mel, but then realized he was being too 
 
 "Sure."
 
-Thi noticed that Kip was getting sleepy and whispered to him, "Hey, why don't you rest your arms. I can take care of hae."
+Thi noticed that Kipnu was getting sleepy and whispered to him, "Hey, why don't you rest your arms. I can take care of hae."
 
 He nodded and gently laid the child into Casra's arms before leaning over and falling asleep next to hae. Casra briefly looked at him admiringly, as if to wonder how such a good heart wound up in such a miserable place, but thi remembered that all hearts have a dark side, including her own.
 
 ---
 
-Kip woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. *What time of day is it? Can hardly tell in the eternal twilight here*. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his cold and aching back to an upright position, and then noticed that Casra and the child were gone. *Where would they have run off to in this darkness? I need to find them.* He moved to the fire and searched for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. The darkness was something he had anticipated, but he had never planned for the difficulties of surviving in the wild. The stories of Ulukoma had always painted to him a picture of a large prison, not a lawless forest island. But now wasn't the time to be frustrated about the past; he carried the light into the towering forest, determined to uncover its mysteries and secure nourishment for his new group.
+Kipnu woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. _What time of day is it? Can hardly tell in the eternal twilight here_. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his cold and aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. The darkness was something he had anticipated, but he had never planned for the difficulties of surviving in the wild. The stories of Ulukoma had always painted to him a picture of a large prison, not a lawless forest island. But now wasn't the time to be frustrated about the past; he carried the light into the towering forest, determined to uncover its mysteries and secure nourishment for his new group.
 
-The forest floor was covered with dried thin leaves and branches that had fallen from the canopy. Kip listened closely for signs of life as he tried his best to quiet his crunching underfoot. This was not a place for Throngia. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
+The forest floor was covered with dried thin leaves and branches that had fallen from the canopy. Kipnu listened closely for signs of life as he tried his best to quiet his crunching underfoot. This was not a place for Throngia. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
 
 "There was a bonfire when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His memory of where the fire was foggy but he set out in the direction of Ulu, where he presumed the center of the island to be.
 
@@ -113,7 +110,7 @@ He turned around to find the child following his footsteps.
 
 "This isn't my first time here."
 
-Kip was aghast imagining what this child's life might be like.
+Kipnu was aghast imagining what this child's life might be like.
 
 "Where are your parents?"
 
@@ -121,11 +118,11 @@ Kip was aghast imagining what this child's life might be like.
 
 "Lives here? What do you mean?"
 
-Kip was confused, but then noticed that the kaln had been staring wide-eyed at something behind him. Kip turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kip's grasp with ease. Kip and the child began to run, but Kip struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kip grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kip's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kip. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
+Kipnu was confused, but then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kipnu's grasp with ease. Kipnu and the child began to run, but Kipnu struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kipnu grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kipnu's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kipnu. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
 
 She grabbed him by the shirt and demanded, "What do you know of Linyu?!"
 
-Kip remained silent in shock. The luminescent ink in her skin was reflecting off of Kip's terrified face and illuminating her own. Kip tried to wrestle free, but Setre drew her spear close to his neck.
+Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of Kipnu's terrified face and illuminating her own. Kipnu tried to wrestle free, but Setre drew her spear close to his neck.
 
 "Running is futile. Trust me, nobody here wants you dead."
 

@@ -12,7 +12,7 @@
 
 <!-- TODO: Add Linyu to this chapter -->
 
-Mel awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Lif at the front door watching hae garden in the light while Kip lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind. A million thirsty mouths quenched by countless tiny droplets dancing to and fro, dampening the noise of their goings and doings. But something was amiss in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up with Kip beside her and looked toward Lif at the door, looking back at the two of them with tears in hae eyes.
+Melna awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Liffa at the front door watching hae garden in the light while Kipnu lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind. A million thirsty mouths quenched by countless tiny droplets dancing to and fro, dampening the noise of their goings and doings. But something was amiss in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up with Kipnu beside her and looked toward Liffa at the door, looking back at the two of them with tears in hae eyes.
 
 "Kipnu... Melna... I love you." Thi turned and left, shutting the door behind hae.
 
@@ -88,7 +88,7 @@ With a firm grab of his neck hair, she hopped onto Laen's back and settled herse
 
 "Alright, Laen-Laen. Let's take a steady trip to the station."
 
-He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Mel focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
+He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Melna focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
 
 The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
 
@@ -110,7 +110,7 @@ Thi said, "You look familiar," and glanced at her bag from which hastily-packed 
 
 "You're the fidelant who gave away all our food."
 
-Mel suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
+Melna suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
 
 "Wonder if you hoarded any," thi said, as thi grasped for the bag. Melna pulled it away from hae fingers, but then she felt the cold touch of the steel bar across her neck and she stopped from fleeing. Linyu, who was listening intently, panicked tried to get Laen's attention.
 
@@ -122,7 +122,7 @@ She tried to reason with them, "We have no food. Only robes and water."
 
 "If we have nothing to eat, how will we survive? We don't have the luxury of choice," he said in his most scornful tone. It was clear he had been waiting for a moment to take his revenge.
 
-Mel hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
+Melna hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
 
 "Hurry it up!" The maman demanded with the bar still at Melna's neck.
 
@@ -154,7 +154,7 @@ Pomri wore a blank stare in an attempt to hide her frustration.
 
 "You never run out of strange ideas, do you?" she asked in an antagonizing tone.
 
-Mel let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
+Melna let out an exasperated sigh. "My ways may seem strange to you, Pomri, but I am desparate for answers. I'm doing this for the assurance that we tried everything that we could."
 
 "I only hope that we don't run out of time," she rebuked.
 
@@ -268,12 +268,12 @@ Slowly, she removed it from her neck and held it out to Linyu, who was still sta
 
 "Want to see it?"
 
-Linyu was confused but took a look anyway. Mel watched as thi looked intently at the engravings. Suddenly, thi reached into hae shirt and pulled out a pendant of hae own and began to compare the two. Melna was shocked to see Kipnu's pendant in the hands of this strange kaln.
+Linyu was confused but took a look anyway. Melna watched as thi looked intently at the engravings. Suddenly, thi reached into hae shirt and pulled out a pendant of hae own and began to compare the two. Melna was shocked to see Kipnu's pendant in the hands of this strange kaln.
 
-"Where did you get that?!" She asked, grasping to see Kip's pendant
+"Where did you get that?!" She asked, grasping to see Kipnu's pendant
 
 Linyu quickly finished checking the two and hae eyes started to water. Without a moment's pause, thi flung haeself at Melna and made whimpering breaths into her shoulder.
 
-"Kip," thi whispered through tears. She let hae cry a bit more but her mind kept racing back and forth to all of the possibilities that could have led to this moment.
+"Kipnu," thi whispered through tears. She let hae cry a bit more but her mind kept racing back and forth to all of the possibilities that could have led to this moment.
 
 -->

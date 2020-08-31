@@ -1,6 +1,6 @@
 ## Chapter 2
 
-After Kip left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me.
+After Kipnu left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me.
 
 I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. Every day was a repeat of the same movements I had ingrained in myself from countless mornings of dressing with my mother, but they had grown from a boring repetitive task, to a calming daily ritual.
 
@@ -22,7 +22,7 @@ My childhood attention span would always get the best of me before I could get c
 
 "Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
 
-She was referring to the tied-back robes of the members of the court where Mel worked. I ignored her and shifted my focus to my work.
+She was referring to the tied-back robes of the members of the court where Melna worked. I ignored her and shifted my focus to my work.
 
 "It's chilly today, isn't it?"
 
@@ -52,7 +52,7 @@ Her answer was unsatisfying, but I went back to working. Perhaps I was overreact
 
 "Like I said, I'll be fine." The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a few clicks, and then she began again.
 
-"How are Mel and Kip doing? Any new stories for an old lady?"
+"How are Melna and Kipnu doing? Any new stories for an old lady?"
 
 "They are fine."
 
@@ -60,9 +60,9 @@ Her answer was unsatisfying, but I went back to working. Perhaps I was overreact
 
 I snapped, "What do want, woman?"
 
-"Mind yourself, Lif. What sort of Maman raises hae voice to an elder?"
+"Mind yourself, Liffa. What sort of Maman raises hae voice to an elder?"
 
-"They're doing just fine, okay? Kip is having a great start at the clinic, and Mel is representing this village to the council. Is that what you're looking for?"
+"They're doing just fine, okay? Kipnu is having a great start at the clinic, and Melna is representing this village to the council. Is that what you're looking for?"
 
 She sughed, went quiet, and resumed her work while I stared at her indignantly.
 
@@ -76,7 +76,7 @@ My sense of humility or perhaps a feeling of unimportance surfaced as I entered 
 
 I took my boots and trousers off so as not to make a mess, and left them outside next to the door where the clay from countless planting days had painted a spot on the mossy pathway. I took a seat at the table next to the window to sit near an aromatic plant I had been cultivating for its calming effects. In a sigh, I took in everything around me as if it were all some dream that I would one day abruptly wake from.
 
-_Do I deserve to be here? I am not saving lives or building for the future like Kip or Mel. But I still contribute to the village and I make sure we have food and water and a functional home._
+_Do I deserve to be here? I am not saving lives or building for the future like Kipnu or Melna. But I still contribute to the village and I make sure we have food and water and a functional home._
 
 _"A jealous Maman never rests"_
 
@@ -90,7 +90,7 @@ There was a knock at the door to snap me awake. _Is it that Tiggu again come to 
 
 I cracked the door with my trousers still beside it and he started as soon as the door opened.
 
-“Lif, I have an urgent message for Melna. Is she here?”
+“Liffa, I have an urgent message for Melna. Is she here?”
 
 “Um. No she left a few clicks ago.”
 
@@ -103,10 +103,10 @@ He was still catching his breath, “We - we need to find a way to get it to her
 <!---
   Something felt out of place. *A cup. That's odd. I don't remember getting a cup out*. An uneasy feeling suddenly gripped me and amplified the silence. I left the cup just in case I would need to retrace the scene, and quietly inched my way toward the cellar to get something to defend myself with. *Crap. What if the killer is down there. Killer? You're being paranoid*. After a moment of indecisiveness, I grabbed a long glass bottle from the shelf and proceeded to slowly creep along the wall toward the back of the house.
 
-  In chapter 2, we unravel Lif's life and a little bit of her personal
+  In chapter 2, we unravel Liffa's life and a little bit of her personal
   complexes and suspicions through dialog with others where she seems suspicious
   of the cold but everyone older thinks she's overreacting.
-  Mel and Kip have gone to their respective workplaces.
+  Melna and Kipnu have gone to their respective workplaces.
   Main point of action is a surprise birthday party
 
   Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.

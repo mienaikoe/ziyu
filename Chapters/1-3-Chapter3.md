@@ -7,15 +7,15 @@
   The messenger, Thimlu is delivering a note from a local observatory
   that has found evidence of a peculiar sunspot that doesn't move and is growing.
 
-  He doesn't know what's in the message. Only that there has been an ongoing correspondence between Mel and observer Shib, and that this message was urgent.
+  He doesn't know what's in the message. Only that there has been an ongoing correspondence between Melna and observer Shib, and that this message was urgent.
 
-  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Thimlu nor Lif can understand it.
+  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Thimlu nor Liffa can understand it.
 
-  Lif decides to go to the city (about 100km - 5 clicks away) to find out more. Once she gets there, she is stopped and told to wait as the meeting is already underway. Lif uses her agility and stealth to snoop on the meeting after Mel has delivered her news. The meeting is still tough to understand as there is heated argument and debate about what to do. The chapter ends on a pivotal reveal of the plot driver
+  Liffa decides to go to the city (about 100km - 5 clicks away) to find out more. Once she gets there, she is stopped and told to wait as the meeting is already underway. Liffa uses her agility and stealth to snoop on the meeting after Melna has delivered her news. The meeting is still tough to understand as there is heated argument and debate about what to do. The chapter ends on a pivotal reveal of the plot driver
 
 -->
 
-"Ara? Why would Mel need to know about that?"
+"Ara? Why would Melna need to know about that?"
 
 "The observers on Falni Peak are doing some study about the stellar surface and they said they've found something big and need to tell the senate right away"
 
@@ -59,7 +59,7 @@ _Not the time for memories_. I snapped out and hopped on while rushing to the fr
 
 "Well, I never thought we would be delivering a message to the senate."
 
-"Sometimes you're just a barrel of surprises, Lif."
+"Sometimes you're just a barrel of surprises, Liffa."
 
 ---
 
@@ -153,19 +153,19 @@ He seemed defeated but looked up into my eyes and we locked gazes for a while.
 
 ---
 
-"Aey? Kip?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
+"Aey? Kipnu?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
 
 "Hey I'm sorry to wake you but I need to talk."
 
 He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
 
-"Lif? Oh, you surprised me. What brings you here?"
+"Liffa? Oh, you surprised me. What brings you here?"
 
 "I'm going on a trip to the capital."
 
 "What? Why?" He asked, his eyes now completely open.
 
-"It's just something between Mel and me"
+"It's just something between Melna and me"
 
 "You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
 
@@ -188,7 +188,7 @@ I turned to walk out the door, and he grabbed my wrist. I winced and looked back
 
 He released his grip, and I stood just outside the door, still vying with my own thoughts.
 
-_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kip and Mel would understand. In the worst case, I would get a little cold in the dark. But Kip? I would have to fend for him too. He doesn't know how to survive on the land_
+_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kipnu and Melna would understand. In the worst case, I would get a little cold in the dark. But Kipnu? I would have to fend for him too. He doesn't know how to survive on the land_
 
 He pushed again, "If you won't tell me, then I'm going with you to find out myself."
 
@@ -196,17 +196,17 @@ He pushed again, "If you won't tell me, then I'm going with you to find out myse
 
 "They can wait a va'ala until I return"
 
-"Kip-"
+"Kipnu-"
 
 "You really don't want me to go, do you?"
 
-"Kip...if you go with me, it will be a long time before you come back."
+"Kipnu...if you go with me, it will be a long time before you come back."
 
 "What are you talking about? The trains run four times a day."
 
 "This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
 
-"Stop being cryptic. What are you planning, Lif?"
+"Stop being cryptic. What are you planning, Liffa?"
 
 His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
 

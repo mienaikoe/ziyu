@@ -242,7 +242,7 @@ Melna kept looking at Ramne as he slowly regained his bearings. The crew crowded
 
   "I take it you're not a boat person. Well, we can't go back now so you're either coming with us or you're on your own again."
 
-  Thi took a moment, feeling angry at the predicament thi was put into. There was nowhere to run, standing outside a massive city barred from entry, and Laen-Laen, who could take hae anywhere if anywhere were safe anymore. Thi placed hae hand on Kip's pendant under hae shirt and closed hae eyes in thought.
+  Thi took a moment, feeling angry at the predicament thi was put into. There was nowhere to run, standing outside a massive city barred from entry, and Laen-Laen, who could take hae anywhere if anywhere were safe anymore. Thi placed hae hand on Kipnu's pendant under hae shirt and closed hae eyes in thought.
 
   "Together," thi whispered. Pomri smiled at hae courage.
 

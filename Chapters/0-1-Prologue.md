@@ -5,11 +5,13 @@ You cannot hear the first note of a ziyu's song. There is no grand entrance or c
 
 It was under this tree that I was born. Among its leaves and stems and branches, I made my first cry to the world and the world sang back to me. My mother used to tell me how beautiful it was to hold me in have arms for the first time in this place. I still imagine it sometimes when I come here: waking up after a nap, hidden within the greatest sound in all the world. Thi would still be asleep, and I would stare at hae hair bobbing in the wind against the pale light of Ara.
 
-The traditions say it's good luck to be born under a ziyu, and to be born under its song is a blessing unmatched by any other. I've never felt particularly blessed. I was born a normal maman in a farming town in Heiko province. As a child I tilled the soil and harvested root vegetables. I once caught the milta that had nibbled through at least 50 of our pohua crop, so I guess I'm quick as well, but that's pretty typical for a maman. I tried my luck at a school for the sciences, but fate had a different plan for me. I fell in love with a man and a woman and I was so scared of my feelings that I joined with them as soon as I could so I would never have to fall in love again. I go to the city sometimes with them, but it's usually to help Kipnu with something. People say we should have children, but we decided to wait until my spouses have more freedom. These days, I leave my adventures to the dealings of my garden, and my library of books.
+The traditions say it's good luck to be born under a ziyu, and to be born under its song is a blessing unmatched by any other. I've never felt particularly blessed. I was born a normal maman in a farming town in Heiko province. As a child I tilled the soil and harvested root vegetables. I once caught the milta that had nibbled through at least 50 of our pohua crop, so I guess I'm quick as well, but that's pretty typical for a maman. I tried my luck as an apprentice at the observatory, but fate decided that it was my mother's time to go. Hae farm, and all of the responsibilities and expectations that hae community imposed upon it, had fallen upon me.
 
-This morning's adventure was to come back to my birthplace, as is tradition. Though my parents have passed, I still feel their presence here whenever I come back. They welcome me as the tree does with its great branch-arms stretched wide toward Ara. "I'm back," I tell it, and it lets out a sigh of relief that I've made it another year. I settle in against its trunk and then its song begins to lift.
+Once, I fell in love with a man and a woman that I doted on in a drunken stupor and I was so afraid of my feelings that I joined with them as soon as I could so I would never have to fall in love again. As my luck would have it, they make my life easier for the most part, but occasionally I think that I'd prefer the company of a screaming toddler, though I won't get into that right now. These days, I leave my adventures to the dealings of my farm, and my library of books.
 
-Silence.
+But this day was special. It was my annual tradition with the ziyu – of returning to my place of birth. Though my parents had passed, I still felt their presence whenever I came back. They would welcome me as the tree did with its great branch-arms stretched wide toward Ara. "I'm back," I'd say, and they breathed a sigh of relief that I had made it another year. I'd settle in against its trunk and then its song would start to lift.
+
+But today, it was silent.
 
 *Something is wrong,* my thoughts began.
 
@@ -33,4 +35,4 @@ But then a memory of my mother's voice passed through my mind and it pulled my m
 
 "The wind speaks," thi would say, "Ziyu tells us what it's saying."
 
-"What is it saying?" I must have asked her a thousand times. She told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was finally hearing such an answer. But the trouble, my friends, was in the question.
+"What is it saying?" I must have asked her a thousand times. She told me to listen a little closer, that the answer was in what I didn't hear. Here, beneath my old tree, I was finally hearing such an answer. But the trouble, dear reader, was in the question.

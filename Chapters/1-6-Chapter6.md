@@ -5,7 +5,7 @@ I was on the Heiko side of the hall so I figured Melna would be somewhere close 
 
 "Are you lost?" A different voice interrupted the speaker and addressed me directly. _That must be the mediator._
 
-Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I had to say something.
+Every eye turned to me. I turned to Melna and her mouth was agape in disbelief. I had to say something.
 
 "I.. I've come with important news from observers in -"
 
@@ -17,7 +17,7 @@ Every eye turned to me. I turned to Mel and her mouth was agape in disbelief. I 
 
 _The mediator was shutting me up, as expected. But I was too far from Melna to get her help._
 
-"Please, allow hae to speak" A familiar voice boomed through the microphone. It was Mel but I had never heard her voice so loudly before.
+"Please, allow hae to speak" A familiar voice boomed through the microphone. It was Melna but I had never heard her voice so loudly before.
 
 "On what grounds?!" The mediator challenged her.
 
@@ -27,11 +27,11 @@ _The mediator was shutting me up, as expected. But I was too far from Melna to g
 
 "Mediator, if I may, the speaker from Pikshi was interrupted by your interjection, not by Liffa's footsteps."
 
-The room began to rumble as the mediator paused in shock. I took the pause to move to Mel as quickly as possible.
+The room began to rumble as the mediator paused in shock. I took the pause to move to Melna as quickly as possible.
 
 "Not another step!" The mediator called to me, but I continued.
 
-Mel walked out to receive me with a scowl on her face.
+Melna walked out to receive me with a scowl on her face.
 
 "What are you doing here?!" She whispered loudly.
 
@@ -45,19 +45,19 @@ The mediator simply pointed, and the guards began walking toward me. I had to sp
 
 "There is a growing object in space obstructing Ara. We have 90 days before it goes dark. We must-"
 
-The senate was in an uproar as Tinpo and Padji came closer to me. Mel yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms with a the tightest grip I had felt before and thrust me out of my chair and into the walkway. I screamed, "No!" and reached for the paper, but he was stronger than me. Mel quickly grabbed the paper and chased after me. She gripped my hand and said, "Don't worry, I will read your message. I'll come for you after we adjourn." Padji turned around and held Mel back as gently as she could. My last view of the senate was of Mel, in her robes, standing strong as always, with the message grasped firmly in her hand.
+The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms with a the tightest grip I had felt before and thrust me out of my chair and into the walkway. I screamed, "No!" and reached for the paper, but he was stronger than me. Melna quickly grabbed the paper and chased after me. She gripped my hand and said, "Don't worry, I will read your message. I'll come for you after we adjourn." Padji turned around and held Melna back as gently as she could. My last view of the senate was of Melna, in her robes, standing strong as always, with the message grasped firmly in her hand.
 
 ---
 
-My cell was dark and dusty. I was tempted several times to lay down on the dusty floor, but I talked myself out of it each time. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, a beetle stumbling on a rock, even the racing thoughts in my mind made an audible buzz. I was prepared for Ulukoma, but not for the gnawing anxiety and guilt I felt sitting in a cell alone. I wondered in an almost-prayer if the Senate would believe Mel. If they would ridicule her for allowing her jund to break into the Senate and address everyone. And where was Fajro? How did he think this would work? He couldn't have stood there distracting them forever.
+My cell was dark and dusty. I was tempted several times to lay down on the dusty floor, but I talked myself out of it each time. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, a beetle stumbling on a rock, even the racing thoughts in my mind made an audible buzz. I was prepared for Ulukoma, but not for the gnawing anxiety and guilt I felt sitting in a cell alone. I wondered in an almost-prayer if the Senate would believe Melna. If they would ridicule her for allowing her jund to break into the Senate and address everyone. And where was Fajro? How did he think this would work? He couldn't have stood there distracting them forever.
 
-A door opened in the next room, waking me from the droning trance of my cell. I heard a female voice start to talk to the watchman. I listened intently through the wall and I thought I heard Mel's voice, but couldn't be sure. They moved to the inner door which opened with a mechanical clink, and footsteps began to ring off the gray stone walls. I stood up to watch them by the lanterns they held to the shadow.
+A door opened in the next room, waking me from the droning trance of my cell. I heard a female voice start to talk to the watchman. I listened intently through the wall and I thought I heard Melna's voice, but couldn't be sure. They moved to the inner door which opened with a mechanical clink, and footsteps began to ring off the gray stone walls. I stood up to watch them by the lanterns they held to the shadow.
 
 "Liffa, you have a visitor," the watchman said.
 
-I kept looking until their faces came into view. It was Mel.
+I kept looking until their faces came into view. It was Melna.
 
-"Mel... before you say anything I–"
+"Melna... before you say anything I–"
 
 She took my hand and expressed a gentleness I hadn't expected, "Shh... Liffa... you did the right thing today."
 
@@ -65,7 +65,7 @@ The watchman left us to return to his post. I stared at her, confused, but then 
 
 She said, "When I saw you here, I was furious. But when you mentioned the observeratory, I realized that you must have come for a good reason, and that everything else we were talking about was not as important. I read the message to the senate and I told them I had been talking with the observers. Some of them believe me, some of them don't."
 
-"Mel, you aren't..."
+"Melna, you aren't..."
 
 "Mad? No. I'm just frustrated at the situation now. Your presence has swayed the course of the senate. It's become difficult to negotiate for Heiko. A fidelant from Tintinal accused me of keeping it a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all Throngia to subsist on for 30 days."
 
@@ -79,7 +79,7 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 You can't let them push us around like that!"
 
-"Lif... It's not that easy."
+"Liffa... It's not that easy."
 
 "Just tell them no!"
 
@@ -89,7 +89,7 @@ I pounded on the bars and paced back into my cell. Frustrated would be an unders
 
 "These are the people who protect our civilization from destroying each other? A bunch of people playing games with every Throngian to see what they can get?"
 
-"Lif... It's complicated."
+"Liffa... It's complicated."
 
 I paced again, my cell feeling smaller than it had before. I didn't let her see that I was fighting countless compulsions to rattle the bars and scream at the top of my lungs. But my mind gave up and pushed me deeper into a depressive mess.
 
@@ -107,83 +107,85 @@ She sighed and glanced to the side. "The senate has a special session tomorrow a
 
 "I understand," I said, taking a step back.
 
-"I'll get Kip to come. And I'll send a letter to the magistrate in the morning arguing for a lighter sentence."
+"I'll get Kipnu to come. And I'll send a letter to the magistrate in the morning arguing for a lighter sentence."
 
 "Thank you."
 
-"Lif. If I don't see you before you leave. Remember that I love you. Wherever you go."
+"Liffa. If I don't see you before you leave. Remember that I love you. Wherever you go."
 
-I hadn't thought of that possibility. "I know, Mel. I know."
+I hadn't thought of that possibility. "I know, Melna. I know."
 
 "All of us are responsible for each other. I want it to feel like home as much as possible when you do come back."
 
 "And I promise to bring my whole self back as well."
 
-"You had better, Lif."
+"You had better, Liffa."
 
-The door opened again and the sound of broken footsteps caught our ears. The slowness and slight limp were made his presence obvious.
+The door opened again and the sound of broken footsteps caught our ears. They were slow, and intimated a slight limp that made his presence obvious.
 
 "Fajro, what are you doing here?" I called to him.
 
-Mel looked at me with confused and disdainful eyes. "Fajro?! What is that lecherous milta doing here?" she asked in a hushed tone.
+Melna looked at me with confused and disdainful eyes. "Fajro?! What is that lecherous milta doing here?" she asked in a hushed tone.
 
-I was surprised that Mel had this reaction to him, and before I could explain, he rounded the corner and their eyes met.
+I was surprised that Melna had this reaction to him, and before I could explain, he rounded the corner and their eyes met.
 
-"Fajro. Did you put Liffa up to this?"
+"Did you put Liffa up to this?" she asked.
 
-"Absolutely not. This was hae idea, and I helped hae along."
+"Absolutely not. This was Liffa's idea."
 
-"Well I hope you're happy seeing hae locked up like this."
+"I apologize if I seem doubtful, but this is not the sort of idea thi would think of."
 
-"These are dark times indeed. We need more selfless heroes like Liffa here who transcend the law for the greater good of the world."
+"Melna, these are dark times. Thi knows it. Now we all know it. We need more selfless heroes like hae who transcend the law and the bureacracy to do what cannot wait."
 
-"Surely the untouchable fidelant would make for a better hero."
+"Surely the untouchable ex-fidelant would make for a better hero."
 
 _Untouchable?_
 
-"You don't become untouchable by making yourself vulnerable, Mel. You should know that."
+He scoffed. "You don't become untouchable by bringing attention to yourself, Melna. You know that."
 
-I butted in, "I guess you two aren't friends then?"
+I butted in, "I'm guessing you two have met?"
 
-Mel was quick to snatch the conversation, "Never."
+Melna was quick to snatch the response, "Regrettably, yes."
 
-"Mel, surely you're joking. Let's let our squabbles stay buried in the past and start over."
+"Melna, surely you're joking. Let our squabbles stay in the past where they belong."
 
-She didn't hesitate, "I know your game, Fajro. We're not playing it."
+"I know your game, Fajro." She didn't hesitate. "We're not playing it."
 
-He leaned back with a serious face now, "Mel. We can agree to disagree, but we will get nowhere pointing fingers at each other."
+Fajro leaned back with a serious face now, "Melna, we can agree to disagree, but we will get nowhere pointing fingers at each other. The fact of the matter is that we are now in a battle for our lives against an unknown enemy. We must do everything that we can to come together, understand this threat, and fight it back as quickly as we can."
 
-"You have no business being here. This is between me and Liffa, so I'll ask you nicely only once to leave."
+Melna paused to let his words die in the corners of the room.
 
-"You're being ridiculous Mel, I only–"
+"You have no business being here," she said. "This decision is between me and Liffa, so I'll ask you once nicely to leave."
 
-"Leave."
+"You're being ridiculous Melna, I only–"
+
+"Get out."
 
 He stared at her for a moment, with the same unfazed and perceptive look he always had, and then slowly turned around, slinging a glance my way.
 
-"I guess we'll talk later then," he said.
+"We'll talk later," he said to me.
 
-Melna turned back to me, still talking to him, and said, "Another lie."
+Melna turned back to me, and said, "Another lie."
 
-When he had finally closed the door on his way out, Mel came in closer to me and asked me under her breath, "How did you meet Fajro?"
+When he had finally closed the door on his way out, Melna came in closer to me and asked me under her breath, "How did you meet Fajro?"
 
-"Kip sent him to help. Fajro is one of his patients. I couldn't have done this without his help."
+"I met him on the train here. I couldn't have done this without his help."
 
-"Kip, Of course. Listen to me, Lif, that man will do anything it takes to force his will and gain power. He threw Heiko under the bus when he presented a mining deal he had set up with us, and he enslaved his entire province for a Ma'To just to get his stupid space rail up that didn't even work. Heiko and Shaki were stuck donating food and steel to the project the entire time."
+"Of course. Listen to me, Liffa, that man will do anything it takes to force his will and gain power. He tricked the entire senate into a bad trade deal. Heiko and Shaki were stuck donating food and freshwater to some shady mining project in exchange for a rail network. Then when he retired, it was clear that his company used our resources as leverage against the tribes of Holrag just to make his stupid space rail."
 
-"He told me it did work, it was just shorter than designed."
+"I didn't know..." I said.
 
-"It didn't work as it was intended, but that's beside the point. Fajro is a conniving, manipulative bastard. Do not listen to anything he says."
+"Fajro is a conniving, manipulative bastard. Do not listen to anything he says."
 
 "But then why would he help me?"
 
 "To embarrass me and lower my status in the Senate. Or perhaps there's some other angle, but whatever it is you stay away from whatever he's offering, no matter how good he makes it sound. Do you understand?"
 
-"I understand"
+"I understand."
 
 Her free hand was holding hard on my shoulder now, and she saw that I was uncomfortable, so she slowly rose her head again and calmed down.
 
-"Good," she said. "I'm sorry I can't be at your hearing tomorrow. I'll send a message to Kip to see if he can come instead. Meanwhile you should get some rest."
+"Good," she said. "I'm sorry I can't be at your hearing tomorrow. I'll send a message to Kipnu to see if he can come instead. Meanwhile you should get some rest."
 
 I felt scared and alone again. "Where are you going?"
 
@@ -193,7 +195,7 @@ I felt scared and alone again. "Where are you going?"
 
 She looked at me for a bit, then hung her lantern on a cell bar and held me through the bars. They smelled like piss and felt like rust, but I didnt mind. I chose this woman and she chose me.
 
-"I love you, Lif. Kip would say it too if he were here."
+"I love you, Liffa. Kipnu would say it too if he were here."
 
 "I know. You're here."
 

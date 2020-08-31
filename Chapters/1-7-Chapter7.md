@@ -164,7 +164,7 @@ The door opened in a rush, and the magistrate paused to see who caused the distu
 
 I was thinking the same thing, but I quickly changed my mind when I saw the other face.
 
-"Kip! You came!" I shouted.
+"Kipnu! You came!" I shouted.
 
 He rushed to me and reached for my face with his free hand. Fajro walked in his slower pace toward us and attempted to bow to the magistrate.
 
@@ -172,7 +172,7 @@ He rushed to me and reached for my face with his free hand. Fajro walked in his 
 
 "Pardon my old habits. They've taken a permanent residence with me." He responded.
 
-He reached the other side of Kip and looked closely at me, trying to telegraph something but I did not know what.
+He reached the other side of Kipnu and looked closely at me, trying to telegraph something but I did not know what.
 
 "I hope we came in time to defend Liffa," he said.
 
@@ -180,7 +180,7 @@ The magistrate responded, "Well, it's a little bit late, but I'll permit it if y
 
 The magistrate turned to me and asked, "Liffa, do you approve of Fajro's testimony?"
 
-"Only if Kip is allowed to speak as well."
+"Only if Kipnu is allowed to speak as well."
 
 "Yes, that would be fine."
 
@@ -238,7 +238,7 @@ The others gathered their lanterns and moved to the other room, the magistrate w
 
 "What I came here to announce."
 
-"Only the senate. Mel told me it's up to each province to decide that for itself. The governor of Heiko has decided to reveal by hierarchy."
+"Only the senate. Melna told me it's up to each province to decide that for itself. The governor of Heiko has decided to reveal by hierarchy."
 
 "What's that?"
 
@@ -254,7 +254,7 @@ The others gathered their lanterns and moved to the other room, the magistrate w
 
 I reached for his shoulders under a thin, tightly woven tunic that he usually wore under his medical aprons. I reached for comfort more than for attention.
 
-"Kip... What do you know about Fajro?" I asked.
+"Kipnu... What do you know about Fajro?" I asked.
 
 "He's just a client. I check his leg out every once in a while. Why?"
 
@@ -272,11 +272,11 @@ I reached for his shoulders under a thin, tightly woven tunic that he usually wo
 
 "No that's too petty. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
 
-"He would need you for longer than that to make it work, and Mel could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holrag? This observational study. I thought Heiko had the best observatory."
+"He would need you for longer than that to make it work, and Melna could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holrag? This observational study. I thought Heiko had the best observatory."
 
 "Maybe it has something to do with their space rail. Maybe they can send telescopes after all. But..."
 
-Kip's face froze and looked worried all of a sudden. "No... they wouldn't."
+Kipnu's face froze and looked worried all of a sudden. "No... they wouldn't."
 
 "Wouldn't? Wouldn't what?" I asked, but too late. Fajro and the magistrate had lost patience and re-entered the room.
 
@@ -304,29 +304,29 @@ He sighed and looked at the lantern light against the dusty ground.
 
 "Are you saying what I think you're saying?"
 
-Our eyes met and he looked at me intently. "We need you up there, Lif."
+Our eyes met and he looked at me intently. "We need you up there, Liffa."
 
 Like electric rails from one mind to the next, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head. I wasn't afraid.
 
-Meanwhile, Kip had grown impatient. He grabbed Fajro by his tunic and got in his face.
+Meanwhile, Kipnu had grown impatient. He grabbed Fajro by his tunic and got in his face.
 
 "That's a death sentence, you piece of shit. Who do you think you are?"
 
-"Kipnu. Stop this," the magistrate tried to push Kip away, but wasn't succeeding.
+"Kipnu. Stop this," the magistrate tried to push Kipnu away, but wasn't succeeding.
 
-"Kip," I tried to calm him, but he didn't hear me.
+"Kipnu," I tried to calm him, but he didn't hear me.
 
-He pushed and slammed Fajro against the wall behind them. Fajro let out a cry of pain.
+He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
 
-"Go somewhere else to find someone to murder. My family is off the table."
+"Go somewhere else to find someone to murder," he said, "My family is off the table."
 
-"Kipnu. This is ridiculous. Stop this immediately." The magistrate shouted, and Kip backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
+"Kipnu. This is ridiculous. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
 
-"He's breathing, but unconscious. Kip, what were you thinking?"
+"He's breathing, but unconscious. Kipnu, what were you thinking?"
 
-Kip wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walked slowly over to the magistrate, who was now anxious being around him, and checked Fajro's vitals. He was unconscious.
+Kipnu wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walked slowly over to the magistrate, who was now anxious being around him, and checked Fajro's vitals. He was unconscious.
 
-The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kip by the arm and took him to the outer room.
+The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kipnu by the arm and took him to the outer room.
 
 _Kip, what have you done?_
 
@@ -338,7 +338,7 @@ The magistrate came back in with a strong-scented cloth and some water in a smal
 
 "He's still unconscious," I said.
 
-"Yes, and he might be after that scene. What was Kip thinking?"
+"Yes, and he might be after that scene. What was Kipnu thinking?"
 
 "He gets very protective sometimes."
 
@@ -360,7 +360,7 @@ I felt pity for Fajro; he didn't deserve to be pinned to a wall, but I was frust
 
 He sipped some of the water and sat up, motioning to the magistrate for the cloth. The magistrate handed it over and he put it behind his head.
 
-"How are you feeling, Fajro?"
+"How are you feeling, Fajro?" asked the magistrate.
 
 "I'll be ok."
 
@@ -368,7 +368,7 @@ He sipped some of the water and sat up, motioning to the magistrate for the clot
 
 "Yea I'll be fine."
 
-I asked the magistrate, "What's going to happen to Kip?"
+I asked the magistrate, "What's going to happen to Kipnu?"
 
 He stood up and walked over to me.
 
@@ -376,13 +376,13 @@ He stood up and walked over to me.
 
 "Just tell me straight."
 
-"He's going to Ulu."
+"He's going to Ulukoma."
 
 My heart sank. _Dammit, you fool._.
 
-He turned to walk out the door and said to me, "I'm going to handle Kip's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
+He turned to walk out the door and said to me, "I'm going to handle Kipnu's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
 
-Fajro and I sat in silence for a few va'ka, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kip had found something more important. Perhaps he is also doing the right thing.
+Fajro and I sat in silence for a few va'ka, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kipnu had found something more important. Perhaps he is also doing the right thing.
 
 "Your boy is strong," Fajro said to break the silence.
 
@@ -390,9 +390,11 @@ Fajro and I sat in silence for a few va'ka, staring everywhere but at each other
 
 "Maybe he should take care of his mind too."
 
-I was tempted to defend Kip, but this was not the time.
+I was tempted to defend Kipnu, but this was not the time.
 
-"I guess he's not a fan of the idea, then."
+He took a swatch of fabric from a pocket in his trousers and blotted his head with it.
+
+"I guess he's not a fan of the idea, then," he said.
 
 "Fajro, I'm going to be honest. None of us trust you. All of your plans seem to weave together in your favor a little too well."
 
@@ -404,15 +406,15 @@ I was tempted to defend Kip, but this was not the time.
 
 "Then why?"
 
-"This is the only way to survive."
+"This is the only way our species can survive."
 
 "What do you mean?"
 
-"This obstruction. It's not going to stop 'til all of Ara is blotted out. You read it yourself. The only we can stop it is by sending someone out there to figure out what it is and then bombard the thing with whatever works against it."
+"This obstruction – the obscura. It's not going to stop 'til all of Ara is blotted out. You read it yourself. We need you to understand what this thing is so we can figure out how to stop it from blotting us out completely."
 
-"And you think your half-finished experiment can do that?"
+"And you think your experiment can do that?"
 
-"You think we built a space rail with dumb luck? It took 5 ma'to of collaboration with your observers. We learned everything we could from them and then we made breakthroughs with our engineering knowledge. We sent countless tests into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science and that was taken from all of us when Heiko backed out of the deal."
+"You think we built a space rail with dumb luck? It took 5 ma'to of collaboration with your observers. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless tests into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science and that was taken from all of us when Heiko backed out of the deal."
 
 "And you're still bitter about it."
 
@@ -420,7 +422,7 @@ I was tempted to defend Kip, but this was not the time.
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoi hero for all the PR."
 
-"Lif, none of our dreams or grudges matter if we're all dead. I know this is the only way to survive, and I'm using what skills I have to convince the people we need for the job."
+"Liffa, none of our dreams or grudges matter if we're all dead. I know this is the only way to survive, and I'm using what skills I have to convince the people we need for the job."
 
 The argumentation side of my brain went quiet. He was right. Even if we were enemies now, it wouldn't matter once we're all freezing and starving to death.
 
@@ -440,7 +442,7 @@ I struggled to comprehend what that meant, but I didn't have much time until the
 
 He went over to Fajro to check on his head.
 
-"You still look a bit pale, but you're getting better. Let me finish with Lif, and then we'll get you somewhere we can look closer at your injuries."
+"You still look a bit pale, but you're getting better. Let me finish with Liffa, and then we'll get you somewhere we can look closer at your injuries."
 
 "Thank you, magistrate."
 
@@ -454,7 +456,7 @@ I answered, "Yes, magistrate. You are generous."
 
 He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
 
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three La'To on Ulukoma _or_ a period of one La'To under the command of Fajro Um Holrag. Do you understand?"
+"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three la'tova on Ulukoma _or_ a period of one la'tova under the command of Fajro Um Holrag. Do you understand?"
 
 "I do."
 

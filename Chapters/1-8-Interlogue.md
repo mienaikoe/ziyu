@@ -1,7 +1,6 @@
-
 ## Interlogue
 
-The magistrate re-entered the room while the cell guard held Kip's hands behind his back. In the light, Kip could see that the magistrate's eyes were wholly uninterested in his job. They were disappointed in Kip, but not surprised.
+The magistrate re-entered the room while the cell guard held Kipnu's hands behind his back. In the light, Kipnu could see that the magistrate's eyes were wholly uninterested in his job. They were disappointed in Kipnu, but not surprised.
 
 "Kipnu Um Heiko. I find you guilty of assault on Fajro Um Holrag and interruption of his consciousness. The sentence shall be a period of two La'To in Ulukoma. Do you understand?"
 
@@ -15,11 +14,11 @@ The magistrate re-entered the room while the cell guard held Kip's hands behind 
 
 "Hah, you got it."
 
-He turned to Kip and said, "Kipnu. I hope that one day you might join us to prepare for the trials ahead. Until then, may Ulu quench the rage that poisons the good of your consciousness."
+He turned to Kipnu and said, "Kipnu. I hope that one day you might join us to prepare for the trials ahead. Until then, may Ulu quench the rage that poisons the good of your consciousness."
 
 "Take your self-righteous trash to a real criminal."
 
-The magistrate simply sighed and walked out the door. Rante shoved Kip back into the dark room of cells and locked him in a cell next to Lif.
+The magistrate simply sighed and walked out the door. Rante shoved Kipnu back into the dark room of cells and locked him in a cell next to Liffa.
 
 "Fajro, I hear the hero is going with you. When do you want me to call an escort?"
 
@@ -33,10 +32,10 @@ The magistrate simply sighed and walked out the door. Rante shoved Kip back into
 
 "Thank you, sir. That will be all," said Fajro, accepting the key, and Rante rushed back to his desk.
 
-Kip sat still and silent while Lif walked over to his side of hae cell and quietly placed hae hand on his shoulder. He flinched, but let hae continue, and they stayed like that for several va'sa, crying into the stone floor polished with countless Ka'To of tears.
+Kipnu sat still and silent while Liffa walked over to his side of hae cell and quietly placed hae hand on his shoulder. He flinched, but let hae continue, and they stayed like that for several va'sa, crying into the stone floor polished with countless Ka'To of tears.
 
-"I will be back," Lif said.
+"I will be back," Liffa said.
 
-"I will be waiting," Kip said.
+"I will be waiting," Kipnu said.
 
-With slow and deliberate movement, Lif stood up and turned toward Fajro, staring at him as if to ask if he was ready. Fajro stood up and without speaking he opened hae cell door. Lif stepped out and hesitated by Kip's door in contemplation. With his lantern, Fajro reached for Lif's arm for stability, and they stepped out together into the light, leaving Kip in the darkness.
+With slow and deliberate movement, Liffa stood up and turned toward Fajro, staring at him as if to ask if he was ready. Fajro stood up and without speaking he opened hae cell door. Liffa stepped out and hesitated by Kipnu's door in contemplation. With his lantern, Fajro reached for Liffa's arm for stability, and they stepped out together into the light, leaving Kipnu in the darkness.

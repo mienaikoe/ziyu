@@ -3,8 +3,8 @@
 <!--
 - Radio, Voices
   - Melna confused
-  - Passes listener to Mel
-  - Mel hears static
+  - Passes listener to Melna
+  - Melna hears static
     - Lin upset
     - Listeners only work on Ulukoma
       - "Oh shit. What do they do now?" moment
@@ -64,7 +64,7 @@ Jesse scurried away to fetch some empty film plates while Pomri rose from her de
 
 "Perhaps you're right. But we have no other option."
 
-Mel sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag's hand."
+Melna sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag's hand."
 
 "Pleading directly to them will be met with nothing more than hostility. There is far too much to lose and very little to gain by bothering them"
 
@@ -92,9 +92,9 @@ Melna turned back to her and said, "Meet me tomorrow at the train station. Bring
 
 "That's ridiculous!"
 
-Mel closed the door behind her, ignoring Pomri's complaints.
+Melna closed the door behind her, ignoring Pomri's complaints.
 
-A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Lif sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Lif was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
+A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Liffa sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Liffa was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
 
 At the foot of the hill was Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
@@ -124,11 +124,11 @@ The kaln could only muster a whisper through hae raspy voice, so Melna bent down
 
 ---
 
-Mel filled the kitchen mantle with kindling from the garden and pressed her hot tip against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Mel sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
+Melna filled the kitchen mantle with kindling from the garden and pressed her hot tip against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Melna sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
 "You must be thirsty, Linyu. Have some water."
 
-At first Linyu hesitated, staying still with the cup next to hae eyes, Mel holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it and with a small sip, winced as thi began to swallow. Mel immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
+At first Linyu hesitated, staying still with the cup next to hae eyes, Melna holding them with obvious anxiety. When thi began to reach softly all around for where the cup might be, thi took it and with a small sip, winced as thi began to swallow. Melna immediately noticed, and rose to take the cup down and examine both hae neck and eyes closer.
 
 "You have a lot of swelling here. What happened?"
 
@@ -168,11 +168,11 @@ Melna paused in confusion and then realized that the kaln might never have had p
 
 "Oh. Right... Come with me."
 
-She led hae to a simple twist valve that fed into a wide plate set into the wall not more than hae own height. With her hand on haes, they opened the valve until a small flow of water exited at the plate and spread evenly across the ground. Thi held out hae hands to feel the drops cover hae fingers and trickle down hae arms. Mel watched as an involuntary smile crept up hae face, and couldn't help but smile too.
+She led hae to a simple twist valve that fed into a wide plate set into the wall not more than hae own height. With her hand on haes, they opened the valve until a small flow of water exited at the plate and spread evenly across the ground. Thi held out hae hands to feel the drops cover hae fingers and trickle down hae arms. Melna watched as an involuntary smile crept up hae face, and couldn't help but smile too.
 
 "Well I'll leave you to your wash-up," she said and left the room with the towel sitting on a short table near the entryway.
 
-Mel glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged from the washroom showing a bare Linyu fumbling with a large pendant and the trinket on hae ear.
+Melna glanced around the room and found the large cushion to the left of the door to sit on. The softness was inviting to her legs, weary from hiking down the hill. She took a second to clear her head, but before she could settle down, the kaln's footsteps emerged from the washroom showing a bare Linyu fumbling with a large pendant and the trinket on hae ear.
 
 Melna averted her eyes and stammered, "Linyu, you shouldn't show strangers your body."
 
@@ -222,13 +222,13 @@ Linyu whispered, "Liffa".
 
 Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi reached into hae shirt and pulled out Kipnu's binding pendant. A golden yellow reflection stared back at Melna through the mirror polish she grew to recognize. It was scratched, but only lightly.
 
-"Mel.na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many scratches and warpings that had battered it, and she sensed that he would not be coming back.
+"Melna.na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many scratches and warpings that had battered it, and she sensed that he would not be coming back.
 
-Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kip. Love. You."
+Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kipnu. Love. You."
 
 She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holrag's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
 
-Mel fell asleep crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. Linyu lay awake next to her, thinking about how it must have been for the three of them to live there, how lonely Melna must be feeling now, and how thi felt a bond with her that thi struggled to describe. It was a kind of trust that thi had never experienced before: blind but unwavering in spite of it. But thi knew that Kipnu trusted her with his own life and that made trusting her far easier.
+Melna fell asleep crying, lying on the ground outside the washroom with Linyu's hand still clutched in her own. Linyu lay awake next to her, thinking about how it must have been for the three of them to live there, how lonely Melna must be feeling now, and how thi felt a bond with her that thi struggled to describe. It was a kind of trust that thi had never experienced before: blind but unwavering in spite of it. But thi knew that Kipnu trusted her with his own life and that made trusting her far easier.
 
 Before sleep, thi interlocked hae hands with Melna's and mouthed to her a silent resolution.
 
