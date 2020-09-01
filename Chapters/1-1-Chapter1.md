@@ -14,7 +14,9 @@ I stayed silent, still listening for the leaves and my mother's voice.
 
 "I'll be there in a bit."
 
-She stared at me for a moment - I assume to size up my strange behavior, and then turned to walk back home. She reassured me, "I feel it too. There's a chill in the air."
+She stared at me for a moment, I assume to size up my strange behavior. 
+
+"There's a chill in the air," she remarked, and then turned to walk back home.
 
 ---
 
@@ -114,7 +116,7 @@ I waited for him to elaborate.
 
 "...Reasons."
 
-_Thanks Kipnu._
+_Thanks Kip..._
 
 I mustered up a response, "Don't want to talk about it right now."
 
@@ -122,7 +124,7 @@ He wasn't convinced, but he was more accepting about these things than I was.
 
 "Okay... suit yourself"
 
-I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her recessional.
+I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her departure.
 
 "I'm headed to the train."
 
@@ -130,22 +132,26 @@ I stooped at the table with him and a long awkward silence filled the room while
 
 "I'll be back a bit late tonight. Don't wait up for me."
 
+Late wasn't particularly rare for her, but I wanted to pry.
+
 "Late? What for?" I asked.
 
-"I was promised a busy day today."
+"Yansha has been pushing us on this grain resolution."
 
 I looked in her eyes more intently. Something about her eyes was very out of place. As if she had shut off her heart and it was wallowing in guilt. I stood up and approached her as she turned to leave the house.
 
 "What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
 
-"Whatever it is you'll be arguing today, I am here for you."
+"Whatever it is you'll be arguing today, I'm here for you."
 
 I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate.
 
 "Thank you. Liffa."
 
-Kipnu walked up to us, and she loosened up to nuzzle both of us quickly before opening the door to the outside. He and I watched as she entered the daylight and headed toward the rail station without looking back. I held my binding pendant tightly.
+Kipnu walked up to us, and she loosened up enough to hug the both of us before opening the door to the outside. He and I watched as she entered the daylight without looking back. Her assistant Pomri, and her saffa stood by along the parkway, looking as palatial as always. The two of them together always gave me an uneasy feeling.
 
-"What's eating her?" Kipnu asked again.
+"What's going on between you two?" Kipnu asked again.
 
-"Nothing. Just a chill in the air."
+ I held my binding pendant tightly and remembered that marriage was full of difficulties.
+
+"Nothing," I said. "Just a chill in the air."

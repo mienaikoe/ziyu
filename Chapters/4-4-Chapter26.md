@@ -282,7 +282,7 @@ Pomri read the messages out loud:
 
 ```
 Obscura Observation + 2to 5la 6na
-Thimlu,
+Jesse,
 
 I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city.
 
@@ -296,11 +296,11 @@ She paused to let a wave of sorrow come and go, then continued with the last par
 "
 
 ```
-It's been an honor, Thimlu.
+It's been an honor, Jesse.
 
--Jesse
+- Thimlu
 
-(Clean the lenses while I'm gone)
+(The lenses really need to be cleaned...)
 ```
 
 "
@@ -311,15 +311,15 @@ She took a deep breath and flipped the page.
 
 ```
 Obscura Observation + 2to 3la 8na
-Jesse,
+Thimlu,
 
 I've double-checked my calculations and assumptions, and they must be correct. I still struggle to wrap my head around the immensity of the time scales we're dealing with.
 
 The obscura must be aware of what they're doing. We must get this information out as quickly as possible, so I'm leaving to find you.
 
--Thimlu
+-Jesse
 
-(don't have time to clean the lenses)
+(No time to clean the lenses)
 ```
 
 "
@@ -336,7 +336,7 @@ I took your advice and devised a projection of what would happen to Ara if the o
 
 Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara. It's inconceivable.
 
--Thimlu
+-Jesse
 
 (I will clean the lenses after my shift, as you asked)
 ```

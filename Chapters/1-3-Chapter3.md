@@ -1,20 +1,5 @@
 ## Chapter 3
 
-<!--
-
-  In this chapter, I'm exploring the first instance of action writing.
-
-  The messenger, Thimlu is delivering a note from a local observatory
-  that has found evidence of a peculiar sunspot that doesn't move and is growing.
-
-  He doesn't know what's in the message. Only that there has been an ongoing correspondence between Melna and observer Shib, and that this message was urgent.
-
-  They proceed back to the messenger office to send the message via tele-line and her assistant takes the call and promises to deliver the urgent message. The message itself is cryptic and neither Thimlu nor Liffa can understand it.
-
-  Liffa decides to go to the city (about 100km - 5 clicks away) to find out more. Once she gets there, she is stopped and told to wait as the meeting is already underway. Liffa uses her agility and stealth to snoop on the meeting after Melna has delivered her news. The meeting is still tough to understand as there is heated argument and debate about what to do. The chapter ends on a pivotal reveal of the plot driver
-
--->
-
 "Ara? Why would Melna need to know about that?"
 
 "The observers on Falni Peak are doing some study about the stellar surface and they said they've found something big and need to tell the senate right away"
@@ -27,17 +12,17 @@ _She's keeping a secret_
 
 "Oh that's really not necessary -"
 
-"I need to know more; I won't slow you down" I pleaded to him while I ran off to fetch a new pair of trousers as quickly as I could.
+"I need to know more; I won't slow you down" I plead to him while I ran off to fetch a new pair of trousers as quickly as I could.
 
 ---
 
-The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Thimlu and me.
+The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jesse and me.
 
 "Laen-Laen, good morning!"
 
 He gave out a whoop as he woke up from his half-nap.
 
-"Laen-Laen, you're still asleep?"
+"You're still asleep, Laen?"
 
 A loud "Ooo" sound filled the room as he stood up and yawned in my face.
 
@@ -47,13 +32,13 @@ He snorted his disapproval with his fuzzy ears turned backward.
 
 "We can stop by Gilli's and get a cake."
 
-"Whoop whoop whoop!" He said as he perked up and twisted his head left and right.
+"Woop woop woop!" He said as he perked up and twisted his head left and right.
 
 "There we go. Now lets get you ready."
 
-I took a soft linen blanket from the wall and paused a moment to remember when Thimlu and I used to ride a younger Laen-Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+I took a soft linen blanket from the wall and paused a moment to remember when Jesse and I used to walk with a younger Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
 
-_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Thimlu was waiting for me.
+_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Jesse was waiting for me.
 
 "Didn't think we would be doing this again, " he said.
 
@@ -65,9 +50,9 @@ _Not the time for memories_. I snapped out and hopped on while rushing to the fr
 
 The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wondered if the stars could die like we did.
 
-At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen-Laen. I gave him a thankful pat on the neck and he gave me back a small whoop of acknowledgement.
+At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small woop of acknowledgement.
 
-When I entered, Thimlu was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+When I entered, Jesse was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
 "Shaki Conduit, This is Heiko Conduit."
 
@@ -95,7 +80,7 @@ He paused and sighed.
 
 "Transferring you to Heiko Senate. Please wait a moment."
 
-I took the moment of silence to shift to a chair and sit down close to Thimlu. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
+I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
 The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
 
@@ -214,4 +199,4 @@ _It's clear_
 
 "Goodbye," I said.
 
-I hopped onto Laen-Laen and didn't look back.
+I hopped onto Laen and didn't look back.

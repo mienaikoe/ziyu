@@ -1,24 +1,52 @@
 ## Chapter 4
 
-The station was just filling up for the next train after the day's first nap. I was feeling sluggish from running around and skipping lunch and sleep, so I settled for two rolls from Gilli's; a sweet one for Laen-Laen and a savoriy one for me. I left him in at the corner, humming with his already-eaten roll and a handful of water, and made my way to the platform.
+The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I let my nose take me closer. But Laen knew what I was doing, and he bolted toward the bakery as soon as I stopped.
+
+"Laen!" I yelled at him to stop...out of hunger-envy.
+
+I caught up to him as he was begging Gilli for a cake.
+
+"I'm sorry, Gilli. I promised him I would get him one."
+
+She laughed and said, "Oh it's alright. Everyone in Heiko deserves a cake, even saffas. Here!"
+
+She tossed a roasted tor-nut handcake into the air and Laen caught it with his mouth with impeccable precision.
+
+"Could I bother you for another for myself?"
+
+"Just keep those Pohua shipments coming in," she said, and handed me one of the same kind.
+
+I reached out to take it, but she didn't let go.
+
+"I mean it," she said under her breath, "I need more. That last shipment you gave me was fantastic. It makes a better sweetener than idze starch."
+
+I looked at her and smiled uncomfortably, slightly intimidated, "Y-yea... I'll... See what I can do."
+
+Her smile returned, and she said, "Thank you, Liffa... Next!"
+
+I took one bite and tasted the juicy sweetness. She wasn't wrong. They had gotten better than I remembered them being. But then a dark shadow came over my hand and swooped down to steal my cake.
+
+"Laen! That was mine!" I yelled, and gave him a slap on the shoulder. He barely noticed through his chewing.
+
+I left him in at the corner, humming with his stolen cake and a handful of water, and made my way to the platform.
 
 My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Melna would ask Tig to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Thimlu says, then those crops don't matter in the scheme of things. Heiko would understand.
 
-The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare for marshalling."
+The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
 
-I quickly put away my roll and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of ultraviolet across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it just looked like my skin was striped in a brownish color. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
+I quickly put away my roll and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it all mixed together and just looked like I had some weird genetic defect in my hydroderm. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
 
 The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central," and we fell into a tighter line against the wall.
 
-"Excuse me, would you help a cripple?"
+"Excuse me, would you help me get in?"
 
-Behind me was a older man with a splinted leg. He looked up me with a smile that I had to return, and I leant my hand to him to climb the steps into the carriage.
+Behind me was a older man with a polished steel cane that he was leaning on heavily. He looked up me with a smile that I had to return, and I leant my hand to him to climb the steps into the carriage.
 
 "Thank you, my kaln," he said.
 
 I laughed, "I haven't been called a kaln in ages."
 
-"Oh, at my age, everyone is a child."
+"Oh, at my age, everyone is kaln and boy and girl."
 
 _I suppose that's true._
 

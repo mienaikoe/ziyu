@@ -2,7 +2,7 @@
 
 After Kipnu left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me.
 
-I attached a bulb to the overhead electrical rails, and opened my wardrobe. Canvas trousers, a thickly-woven shirt, and gloves stained with clay and chlorophyll. Every day was a repeat of the same movements I had ingrained in myself from countless mornings of dressing with my mother, but they had grown from a boring repetitive task, to a calming daily ritual.
+I hooked a bulb to the overhead electrical rails, and little by little the flow of electricity grew and warmed the metal ribbon inside to a bright white. Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother, but instead of being boring repetitive task they had evolved into a calming daily ritual. Hanging from a length of twine were a pair of canvas trousers, a thickly-woven tunic, and gloves stained with clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all. I was certain that my family knew how to make more durable clothes than anyone in Heiko.
 
 We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. She would carry me in a big thatch bag on her back while she tilled, planted, harvested. I watched her hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much she could plant and harvest and aspire to do the same. It's been 6 seasons since she passed, but she lives as vividly in my memories as she did in life.
 
@@ -86,7 +86,7 @@ _Or was I the rude one? No, She was intentionally trying to get under my skin._
 
 _I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?_. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
 
-There was a knock at the door to snap me awake. _Is it that Tiggu again come to tell me I was rude?_ I sat up and quietly snuck toward the door to see who it was. _Thimlu? Delivering a message now? What could he possibly want?_
+There was a knock at the door to snap me awake. _Is it that Tiggu again come to tell me I was rude?_ I sat up and quietly snuck toward the door to see who it was. _Jesse? Delivering a message now? What could he possibly want?_
 
 I cracked the door with my trousers still beside it and he started as soon as the door opened.
 
@@ -99,19 +99,3 @@ He was still catching his breath, “We - we need to find a way to get it to her
 “Slow down for me. What’s this about?”
 
 “It's about Ara.“
-
-<!---
-  Something felt out of place. *A cup. That's odd. I don't remember getting a cup out*. An uneasy feeling suddenly gripped me and amplified the silence. I left the cup just in case I would need to retrace the scene, and quietly inched my way toward the cellar to get something to defend myself with. *Crap. What if the killer is down there. Killer? You're being paranoid*. After a moment of indecisiveness, I grabbed a long glass bottle from the shelf and proceeded to slowly creep along the wall toward the back of the house.
-
-  In chapter 2, we unravel Liffa's life and a little bit of her personal
-  complexes and suspicions through dialog with others where she seems suspicious
-  of the cold but everyone older thinks she's overreacting.
-  Melna and Kipnu have gone to their respective workplaces.
-  Main point of action is a surprise birthday party
-
-  Over the seasons, and especially once I had my own crop to attend, I got quicker with my planting and harvesting. Enough to match my mother. We supplied enough Pohua to provide for the village and some outside villages too, and became pretty well known for it. Once she couldn't work anymore, I tried to take on her portion of the job, but I just couldn't keep up, and our popularity faded. Now Pohua has become an occasional food instead of a staple.
-
-  // ***Write more about the relaxation area
-
-  // show don't tell
--->
