@@ -1,20 +1,22 @@
 ## Chapter 5
 
-The city was carved from the body a long-dead volcano, curled upward as if the land was an ocean wave. Massive veins of white marble meandered between gray, banded rock, striping through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. _It must have taken ages_.
+The city was carved from the body of an old mountain, curled upward as if the land itself was an ocean wave. Massive veins of white marble meandered between gray, banded rock, and striped through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. _It must have taken ages_.
 
 "Been a while, has it?" Fajro said once we got off.
 
-"Yes. At least a few Ma'To."
+"Yes. At least a few ma'tova."
 
-"Its beauty never changes."
+"The beauty of this place never changes. In Holrag, we call this place "The diamond of Palinan."
 
-"Even after years of coming here?"
+"Even after years of coming here, it hasn't lost its luster?"
 
 "Every time, it seems like a distant memory. This city changes you the minute you join the throng. Every day here is another lifetime."
 
 "Let's make this one count."
 
-The base of the city was brightly lit, but there were large spots of shade behind giant curved mirrors in the distance. They were continuously focusing and harvesting Ara's light onto pipes of water to deliver steam to all of Shaki. Near the railyard an air of bustle filled the area with hordes of trainferriers bringing cargo to and from the trains; trade scribes in toe trying to keep up.
+The base of the city was brightly lit, but there were large spots of shade behind giant curved mirrors in the distance. They were continuously focusing and harvesting Ara's light onto pipes of water to deliver steam to all of Shaki. Near the railyard an air of bustle filled the area with hordes of trainferriers bringing cargo to and from the trains; trade scribes in toe trying to keep up. Their heads would occasionally turn toward a place settled the desert, visible to all the city. A thin tower showed two sets of shadowed vertical lines against the bright light.
+
+_The timekeeper. I remember now._
 
 I helped Fajro walk from the railyard to the easternmost funicular station. It was not terribly distant, but the sluggish pace was wearing thin on the patience of passersby trying to get around us.
 
@@ -26,7 +28,7 @@ I helped Fajro walk from the railyard to the easternmost funicular station. It w
 
 "Oh I bet you could run circles around them," I said, trying to lift his spirits a bit.
 
-We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and marvel at the beauty of the city from above. The public workers with their dusty tunics, the scribes with their ink-blotted fingers, all funneling in and out of the car. Some were carrying their afternoon meal with them as if they had no time to eat. I wondered if they worked through daysleep too. Compartmentalizing my anxiety was proving to be difficult with all the chaos, but I did so in order to see Shaki, possibly for the last time. I did it to remember.
+We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and marvel at the beauty of the city from above. The public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, all funneling in and out of the car. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry, despite my anxiety. Compartmentalizing everything I felt was no small feat, but there wasn't much of a choice. This had to be done. We had to prepare for what was to come.
 
 "Senate. Last stop," called the operator.
 
@@ -36,11 +38,11 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "You sound very fond of this place."
 
-"You could say that. Almost all of my waking life was devoted to this. It really made an impression on me."
+"You could say that. Almost all of my waking life was devoted to the people here. It really made an impression on me."
 
 "Do you ever miss it?"
 
-"Some parts of it. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holrag Sky Rail."
+"Some parts. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holrag Sky Rail."
 
 "You were a part of that?"
 
@@ -48,15 +50,11 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "You must be proud."
 
-"I should be. The scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built the rail to half of the specified length, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"I should be. The scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built the rail to half the length we needed, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
-"That's still quite an accomplishment."
+"I learned early that ideas never make it to reality unscathed."
 
-"It's not the accomplishment it was built for."
-
-"Ideas never make it to reality unscathed."
-
-"I suppose," he said, unconvinced. He nodded both in agreement and continued regret.
+"I suppose," he said, unconvinced. He feigned agreement with a nod.
 
 After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
@@ -134,7 +132,7 @@ _The guard is his nephew?!_
 
 Fajro stopped in front of Tinpo and looked him up and down.
 
-"Tinpo, you make a fine guard," he said.
+"Tinpo, you make a fine guard," he said in his schmooziest voice.
 
 "Thank you uncle," he rested his stance and smiled a little bit.
 
@@ -142,11 +140,11 @@ Fajro stopped in front of Tinpo and looked him up and down.
 
 "They posted me near the railyards immediately after you referred me, but I've been working my way up here ever since."
 
-"Congratulations, my boy. It's only been a few Ma'To, that's quite an achievement."
+"Congratulations, my boy. It's only been a few ma'tova. Quite an achievement."
 
 "Thank you, sir."
 
-"And who's your friend over here? I must meet hae."
+"And who's your friend over here?" he asked.
 
 "Oh, that's Padji. Thi was posted here around the same time I was."
 

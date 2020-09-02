@@ -308,7 +308,7 @@ He put down the listeners and paused for a moment to think, switching his tone s
 
 "War is where civilization goes to die. Innumerable lives are lost and nothing is gained for anyone. The senate maintains peace because the alternative is senseless."
 
-"The senate maintains peace for its senators to keep their jobs. None of them want any real change. They want to appeal to stronger members so the money can continue flowing in. They would never threaten anything. A war would lift the veil; would show the rest of the world how little their senators do for them."
+"The senate maintains peace for its fidelants to keep their jobs. None of them want any real change. They want to appeal to stronger members so the money can continue flowing in. They would never threaten anything. A war would lift the veil; would show the rest of the world how little their fidelants do for them."
 
 "And you have the real power in Palinan, do you?"
 

@@ -1,8 +1,8 @@
 ## Chapter 4
 
-The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I let my nose take me closer. But Laen knew what I was doing, and he bolted toward the bakery as soon as I stopped.
+The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I turned to let my nose take me closer. But Laen had been waiting for his moment, and he bolted toward the bakery as soon as he saw me stop.
 
-"Laen!" I yelled at him to stop...out of hunger-envy.
+"Laen!" I yelled at him. If I'm being honest, I wanted to get mine first. 
 
 I caught up to him as he was begging Gilli for a cake.
 
@@ -153,7 +153,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "Why would you do that?"
 
-"My name is Fajro. I used to work with Melna in the senate. I was a fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
+"My name is Fajro. I used to work with Melna in the senate. I was already a senior fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
 
 "I assure you it is."
 
@@ -163,21 +163,27 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "So, let's get down to details. I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. I'm not getting wrapped up in this."
 
-"But you would be a tremendous help in vouching for me."
+"Wait, wait. I never said I was barging into the senate?"
+
+"Why else would you be traveling there alone?"
+
+He had my entire plan figured out. How?
+
+"You would be a tremendous help in vouching for me."
 
 "Ah... but I really wouldn't"
 
-"You were on the Senate!"
+"But you were a fidelant."
 
-"I was... but I didn't exactly leave on the best terms."
+"I was..." he said . "I didn't exactly leave on the best terms."
 
 "What do you mean?"
 
-"There were some senators that I didn't exactly see eye-to-eye with. And we would often resort to...vulgarities to express our disdain for each other."
+"There were some fidelants that I didn't exactly see eye-to-eye with. And we would often resort to...vulgarities to express our disdain for each other."
 
-"So? People get into shouting matches all the time."
+"So? People shout at each other all the time."
 
-"Has Melna never told you what the Senate's laws are like? The laws were written by religious fanatics hundreds of Ma'to ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+"Has Melna never told you what the Senate's laws are like? They were written by religious fanatics hundreds of ma'tova ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
 
 "Why you and not the others?"
 
@@ -187,7 +193,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "That's politics."
 
-I was silently furious at how unjust the Senate could be, but took it as a lesson on how not to argue with the senators.
+I was silently furious at how unjust the Senate could be, but took it as a lesson on how not to argue with the fidelants.
 
 Fajro began again, "So the next hurdle you will face is that the mediator will try to shut you up, and thi has a microphone."
 

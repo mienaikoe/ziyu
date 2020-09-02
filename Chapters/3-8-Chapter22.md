@@ -62,7 +62,7 @@ A mechanical hum added to the commotion as Fajro emerged behind her and quickly 
 
 "This is an invasion, not a partnership."
 
-"Well, I suppose that's up to you," he said, turning his head toward the city. He held out his hand toward the timelight tower that hung above the train station square, signalling for Melna to walk in front of him, but she refused.
+"Well, I suppose that's up to you," he said, turning his head toward the city. He held out his hand, pointing toward the road that led to the station square, signalling for Melna to walk in front of him, but she refused.
 
 "I will not deliver a speech of surrender at the place of my oath-taking."
 

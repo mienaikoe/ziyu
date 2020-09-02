@@ -14,8 +14,6 @@ _She's keeping a secret_
 
 "I need to know more; I won't slow you down" I plead to him while I ran off to fetch a new pair of trousers as quickly as I could.
 
----
-
 The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jesse and me.
 
 "Laen-Laen, good morning!"
@@ -42,9 +40,9 @@ _Not the time for memories_. I snapped out and hopped on while rushing to the fr
 
 "Didn't think we would be doing this again, " he said.
 
-"Well, I never thought we would be delivering a message to the senate."
+"Never thought we would be delivering a message to the senate."
 
-"Sometimes you're just a barrel of surprises, Liffa."
+"There's always something new with you, Liffa."
 
 ---
 
@@ -62,19 +60,19 @@ Another caller delivered a message, but none from Shaki. He waited a tick and th
 
 "Heiko, this is Shaki. Please remember to speak in your turn."
 
-"Shaki, we are requesting priority. This is an urgent call to the Court."
+"Shaki, we are requesting priority. This is an urgent call to the Senate."
 
 There was silence for a moment as all of the operators paused to listen in.
 
-"Heiko, which conduit in the court are you requesting connection to?"
+"Heiko, which conduit in the senate are you requesting connection to?"
 
-"The Heiko senator's private conduit, please."
+"The Heiko fidelant's private conduit, please."
 
 The conduit operator paused.
 
 "Heiko, I assume you have a damn good reason for that."
 
-"Yes, I do."
+"Yes, I do. It's a message pertaining to today's assembly."
 
 He paused and sighed.
 
@@ -82,33 +80,51 @@ He paused and sighed.
 
 I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Clerk Pomri."
+The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
 
-"Clerk Pomri, I have an urgent message for Melna."
+"Pomri, I have an urgent message for Melna."
 
-"Fidelant Melna is currently in assembly."
+"Jesse? By Ara, don't you ever sleep? It's the middle of first nap."
+
+"What we've found at the observatory was too important to nap on."
+
+She sighed, "Well, I'm afraid you're too late. Melna is currently in assembly."
 
 "When will she be out?"
 
-"It can last anywhere from 2 va'na to the whole day."
+"It can last anywhere from 2 tova'na to the whole day."
 
-"This will likely affect today's deliberations. Is there any way you can get this to her?"
+"This message is of utmost importance. It will likely affect today's deliberations. Is there any way you can tell her?"
 
-"It's unlawful to interrupt the assembly"
+"It's unlawful to interrupt the assembly."
 
-"Surely you can make an exception"
+"Surely you can make an exception."
 
 "And I would surely be imprisoned for it."
 
 He sighed in frustration burying his eyes in his hand.
 
-He replied, "This is outrageous. You can't interrupt the assembly for something that pertains to it? What kind of law is that?"
+He replied, "Pomri, you can't be serious. Even if there is a law against interrupting the assembly, a magistrate would look the other way at sentencing."
 
-"It's a law. If that's all, I have some other things to attend to."
+"You ever been to Shaki?"
 
-He sighed, "Yea. I guess that's it," and turned off the microphone.
+He hesitated, "Well, no but –"
 
-I built some resolve and double checked that the line was off.
+"– Something to learn before you come. Magistrates get off on being right even if they're wrong. Just wait until the assembly is done."
+
+"But... we can't wait the entire day."
+
+"Look, it sounds like this is really important. Why don't you come to Shaki and we can talk it over?"
+
+"You're asking us to come to the senate? So one of us can do it instead of you?"
+
+"I'm sorry I can't do more, kid. Laws here are really backward but at least I can grumble about 'em. Just think about what I said."
+
+He sighed, "Yea. We- I'll consider it," he said.
+
+"Thanks," she said, and the line went silent.
+
+I built some resolve and double checked that the microphone was off.
 
 "I'll go," I said.
 
@@ -116,7 +132,7 @@ I built some resolve and double checked that the line was off.
 
 "I'll interrupt the Senate"
 
-"That's crazy, you'll be sent to Ulukoma."
+"That's crazy. You heard Pomri. You'll be sent to Ulukoma."
 
 "If this is as important as you say, then it would be worth a few days in the cold."
 

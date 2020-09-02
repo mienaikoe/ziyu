@@ -64,13 +64,15 @@ I heard some small thuds of something hitting the ground. And some muffled laugh
 
 "Little help?" thi said.
 
-"Uh... sure," I said. I mustered up the strength to lift myself, slowly this time, and twist the latch of the door open. It made a loud *kachunk* as the seal was broken and fresh air filled my lungs. I did not know relief until I took such a breath.
+"Uh... sure," I said. I mustered up the strength to lift myself, slowly this time, and twist the latch of the door open. It made a loud *kachunk* as the seal was broken and fresh cool air filled my lungs. I did not know relief until I took such a breath.
 
 The maman and a few others lifted me out and carefully wrapped me in three giant coats before laying me down. I looked around and realized that we were surrounded by ice. The ocean had frozen solid in the time I was gone.
 
 The maman held a waterbag and a lantern to me, and I took a drink eagerly. Thi had broad shoulders and wore ruddy black kelp clothing all over hae body as if thi had found it and cut it haeself. The others all had lanterns to light their faces. They all looked to be from different places, but their clothes were the same.
 
-I smiled at them and looked into the maman's eyes 
+"What a strange ship," thi said, staring at the charred remains of my three-day home. "No wonder you crashed. There's no rudder - couldn't steer."
+
+I smiled for the first time in a long time, and looked deeply into the maman's eyes.
 
 "Thank you... um?"
 
