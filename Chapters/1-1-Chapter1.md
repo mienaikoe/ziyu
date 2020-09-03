@@ -16,7 +16,7 @@ I stayed silent, still listening for the leaves and my mother's voice.
 
 She stared at me for a moment, I assume to size up my strange behavior. 
 
-"There's a chill in the air," she remarked, and then turned to walk back home.
+"There's a chill in the air," she remarked, then turned to walk back home.
 
 ---
 
