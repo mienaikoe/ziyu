@@ -20,7 +20,7 @@ She stared at me for a moment, I assume to size up my strange behavior.
 
 ---
 
-Kipnu was at the stove reheating my breakfast and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
+Kipnu was at the stove reheating a sweet mash of pohua and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
 
 "Who's the letter from?", I asked Kipnu casually.
 
