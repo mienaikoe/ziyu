@@ -133,17 +133,19 @@ I took out the letter to review it and think about how I might deliver it. The l
   If left alone, we calculate that this phenomenon will cause colder temperatures, and decreased precipitation, which will lead to most seasonal crops to go dormant in 30 Tova. In 60 Tova, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advisement on how we can communicate more efficiently in this time.
 ```
 
-"What is this??" I said out loud and then glanced over at the old man to make sure he was still sleeping - he was. I could feel my skin getting wet and cold in anxiety. _Kip... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
+"What is this??" I murmured out loud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting wet and cold in anxiety. _Kipnu... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all Throngia and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
 
-"You look like you've seen something you regret," said the man, startling me.
+"You look like you've seen something you regret seeing," said the man, startling me.
 
-"Pardon me? Mind your own business."
+I shot my eyes toward his, gray, washed-out.
 
-"I know what you're trying to do, Liffa."
+"Pardon?" I asked at the edge of my politeness for the day.
 
-I shot my eyes toward him, and he explained.
+He chuckled, "Kipnu told me you were just like Melna. You're far worse."
 
-"Kipnu told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
+"Do you have something to say to me?"
+
+"He told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
 
 _Damn it, Kipnu._
 
@@ -151,7 +153,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "Oh, on the contrary. I intend to help you."
 
-"Why would you do that?"
+"Help me? Why?"
 
 "My name is Fajro. I used to work with Melna in the senate. I was already a senior fidelant to Holrag when she got her beginnings as a junior fidelant. She was a real firebrand when she started. Let's just say I owe her a favor long past due, and I consider this a part of the repayment. Whatever it is that you're doing, it must be important enough that you're willing to risk the frozen badlands for it."
 

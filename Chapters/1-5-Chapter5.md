@@ -42,17 +42,17 @@ I helped him off the funicular and he took a seat on the first bench he could fi
 
 "Do you ever miss it?"
 
-"Some parts. I felt proud of myself, and all the work that we put in to make big advancements. You know, I was a crucial part of the Holrag Sky Rail."
+"Some parts. I felt proud of myself, and all the work that we put in to make big advancements. You know, I played a big part in the unification pact in Holrag."
 
-"You were a part of that?"
+"You?"
 
-"Yes I was. I deployed hundreds of public workers to design and survey."
+"I brokered a treaty for the tribes of Holragi to work together. The pact helped us become the manufacturing giant we are today, and deployed hundreds of public workers to design and survey the space rail."
 
-"You must be proud."
+"You must be proud," I said, not really caring.
 
-"I should be. The scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By our deadline, we had only built the rail to half the length we needed, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By the end, we had only built the rail to half the length we needed, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
-"I learned early that ideas never make it to reality unscathed."
+"Ideas never make it to reality unscathed," I said. "I learned that one early."
 
 "I suppose," he said, unconvinced. He feigned agreement with a nod.
 

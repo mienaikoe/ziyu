@@ -192,11 +192,11 @@ I was aghast. He was taking the blame? For what?
 
 The magistrate stopped writing and laid his forehead into his hand. "That's quite a thing to admit, Fajro, but Liffa was still the one who actually interrupted the deliberation."
 
-He replied, "I understand. I hope only that you give a lighter sentence in light of my testimony."
+He replied, "I understand. My only hope for my testimony is that you give a lighter sentence to a maman who was acting under my orders."
 
 "Well, the codex of the senate has pretty clear guidelines on sentencing for interruption. I would be risking my post if I let hae free without punishment."
 
-Kipnu turned to the magistrate and pleaded to him, "Please. Liffa had every positive intention. Thi doesn't deserve to be shipped off."
+Kipnu turned to the magistrate and pleaded to him, "Please sir. Liffa had every positive intention. Thi doesn't deserve to be shipped off."
 
 Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is beneficial to both Liffa and all of Palinan."
 
@@ -206,25 +206,29 @@ Kipnu and the magistrate turned to him to hear more.
 
 I replied immediately, "I am not inclined."
 
-"Hold on, Liffa, let me finish. You would be working with our engineers to send a spacecraft up and figure out what we're dealing with. It would take no more than a La'To, then you can head back home to Heiko."
+"Hold on, Liffa, let me finish. You would be working with our engineers to send a spacecraft up and figure out what we're dealing with. It would take no more than a la'tova, then you can head back home to Heiko."
 
 I retorted, "And what use would a farmer be to scientists?"
 
 "An ex-engineer, you mean."
 
-I was aghast that he knew this.
+I was aghast. How could he possibly know that?
 
-"Melna told me about your family's land trust. Besides your hidden talents, you would be a fantastic liaison between our engineers and the observers in Heiko, as you've had experience with the work of the Heiko observers."
+"Melna told me about your family's land trust, how you gave it all up for the family business. Honorable. In addition to your hidden talents, you would be a fantastic liaison between our engineers and the observers in Heiko, as you've had experience with them."
 
-He had a convincing argument, but I remembered what Melna said about him.
+I thought of Jesse, wondered if they were messing with him as well. Fajro had a convincing argument, but I remembered what Melna said about him.
 
 "I don't trust you. You could do anything with me and get away with it," I said.
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in Ulu either. If something were to harm the Heiko fidelant's jundmaman, the selfless hero-messenger, it would be terrible for Holrag and our entire project. You would surely be in safe hands. A few days on the frontlines of civilization is surely much better than whatever you would get in Ulu."
+"Sure, you can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either." 
+
+He took a step closer and I stepped back.
+
+"Think of it this way," he explained. "If something were to harm the you under my watch, the Heiko fidelant's maman, the selfless hero-messenger, it would be disastrous for Holrag and our entire project. You will surely be in safe hands. A few days on the frontlines of civilization is surely much better than whatever you would get in Ulukoma."
 
 The magistrate butted in, "I believe that Fajro's suggestion would be a fitting alternative and that the state would see more use in applying you to the problem than sending you someplace where you mindlessly twiddle your thumbs in the cold.."
 
-I withdrew from the door and faced the wall. I had never felt so powerless before: my fate being discussed by a room full of powerful men while I stood in a cell, like I wasn't even there. And my decisions were now between two extremely risky cases. I listened intently to the silence surrounding us and begged for a message, but none came. The pulse in my head and the gentle shifting of cloth behind me filled my headsound.
+I withdrew from the door and faced the wall. I had never felt so powerless before: my fate was being discussed by a room full of powerful men while I stood in a cell, listening, understanding, with only a choice between two terrible situations. The silence in this room surrounded me, stifled my mind, begged me for an answer. Only the pulse in my head and the gentle shifting of cloth were audible.
 
 "Let's give hae a moment, guys," I heard Kipnu say.
 
@@ -242,75 +246,93 @@ The others gathered their lanterns and moved to the other room, the magistrate w
 
 "What's that?"
 
-"In order to stave off panic, people are told one-by-one in private rooms and are given tasks to help so they don't just mentally shut down. My parents were part of the first test. When we had to ration for the winter of ash."
+"In order to stave off panic, people are told one-by-one in private rooms and are given tasks to help so they don't just mentally shut down. My parents were part of the first test, back when we had to ration for the long nights of ash."
 
-"I remember learning about that. My parents never wanted to talk about it. I suppose it hit them harder than most."
+"I remember learning about that from a friend. I was too young to remember and my parents never wanted to talk about it."
 
-"All the farmers were working their hardest for the few days we had until the ash swallowed the sky. Then they cursed the air and covered their houses like the rest of us. They got the same rations as us of course, but the guilt of having nothing to contribute to your town must be crushing."
+"All the farmers were working their hardest for the few days we had until the ash swallowed the sky. Then they cursed the air and covered their houses like the rest of us. They got the same rations as the rest of us of course, but you could see that they were crushed."
 
-"You have no idea. We are a proud bunch. As steam lines and electric rails began to boom, we held on to the tradition of having every family devoting part of their land and part of their time to farming. There's a certain sense with crops that farmers have. No machine could ever copy it."
+"We are a proud bunch. When the steam lines and electric rails were coming up, we held on to tradition. There's a certain sense with crops that farmers have. No machine could ever copy it."
 
-"Your spirit is admirable."
+"I beliieve it. I've seen it myself."
 
-I reached for his shoulders under a thin, tightly woven tunic that he usually wore under his medical aprons. I reached for comfort more than for attention.
+I reached for his shoulders under a thin, tightly woven tunic that he usually wore under his medical aprons. It reached for comfort more than for attention.
 
 "Kipnu... What do you know about Fajro?" I asked.
 
-"He's just a client. I check his leg out every once in a while. Why?"
+"That man who was just here?"
 
-"Did you know that he used to be a fidelant for Holrag"
+"Yes. I met him on the train today."
 
-"No... I didn't know about that."
+"I've never seen him before."
 
-"Did you know that he had a major falling out with Melna?"
+"What? But he's a patient of yours?"
 
-"I didn't know about any of that... That means he could have planned this. I could have sent you into a trap."
+"I've never met that man in my life."
 
-"That's what I mean. His offer is suspiciously generous. I think he needs me but I don't know what for."
+The truth of his deception had finally come to me, but by now it was far too late. I had been a puppet all this time, a passing tool in some political game I didn't want to be a part of.
 
-"Maybe to get back at Melna."
+"Liffa. What's wrong?" he asked, seeing the blank look on my face.
 
-"No that's too petty. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
+"Fajro got me into the senate because he used to be a fidelant for Holrag. But earlier when I met him on the train, he told me that you were his doctor. "
 
-"He would need you for longer than that to make it work, and Melna could simply push it to the news wire to nullify any bargaining. What do you suppose they're making in Holrag? This observational study. I thought Heiko had the best observatory."
+"So he set all of this up? How did he know to find you?"
+
+"I don't know... Maybe Jesse? No..."
+
+"I'll talk to him. Get to the bottom of this."
+
+"No... Don't bring Jesse into this. I don't think it was him."
+
+"What's his angle?" he asked.
+
+"Apparently he didn't get along with Melna. Maybe it's to get back at her. And his offer is suspiciously generous. I think he needs me but I don't know what for."
+
+"If that guy lays a hand on you–"
+
+"No. That's too simple, too risky. He could use me as a bargaining chip against her though. Get what he wants out of Heiko for a La'To."
+
+"He would need you for longer than that to get anything out of it. And Melna could simply push the story to the news wire if she wanted to kill his leverage. What do you make of this observational study? I thought Heiko had the best observatory."
 
 "Maybe it has something to do with their space rail. Maybe they can send telescopes after all. But..."
 
 Kipnu's face froze and looked worried all of a sudden. "No... they wouldn't."
 
-"Wouldn't? Wouldn't what?" I asked, but too late. Fajro and the magistrate had lost patience and re-entered the room.
+"Wouldn't? Wouldn't what?" I asked, but it was too late. Fajro and the magistrate had lost patience and re-entered the room.
 
-The magistrate announced to us with his casual voice, "I'd love to stand and chat in the dark with all of you, but I've got 13 field cases to cover today. Are you ready to continue?"
+The magistrate announced to us with his casual voice, "I'd love to stand and chat in the dark with all of you, but I've got 13 cases to cover today. Are you ready to continue?"
 
-I answered him, "I'd like to ask Fajro about the study he's conducting."
+I glanced at Kipnu, who was trying his best not to let his rage show on his face.
+
+I answered the magistrate, "I'd like to ask Fajro about the study he's conducting."
 
 "Why sure," Fajro said with a smile.
 
-"Make it quick," said the magistrate, audibly annoyed.
+"Make it quick," said the magistrate, audibly annoyed, and he stepped back to observe.
 
-"Fajro, what is the goal of this project?"
+"What is the goal of this project?"
 
-"Well it's a continuation of the rail project. I can't really talk about it without a guarantee of your cooperation. Provincial secrets."
+"Well, it's a continuation of the space rail project. I can't really talk about it without a guarantee of your cooperation. Provincial secrets."
 
 "What do you need me for?"
 
-"Like I said, you would be a communications liaison between The Heiko and Holrag scientists."
+"Like I said before, you would be a communications liaison between The Heikoi and Holragi scientists."
 
-"I'm not much of a talker, and we all speak the same language here. What do you _really_ need me for?"
+"I'm not much of a talker, and your Holragi accent isn't thick. What do you _really_ need me for?"
 
 He sighed and looked at the lantern light against the dusty ground.
 
-"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. The person has to be small, lightweight, observant, quick-learning, brave, and in great physical shape. You happen to fit all of those criteria."
+"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. The candidates we're looking for have to be lightweight, agile, observant, quick-learning, brave, and in great physical shape. They also need to be willing to take the risk."
 
-"Are you saying what I think you're saying?"
+"Risk? What risk?"
 
 Our eyes met and he looked at me intently. "We need you up there, Liffa."
 
-Like electric rails from one mind to the next, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head. I wasn't afraid.
+In my flood of imagination, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head.
 
 Meanwhile, Kipnu had grown impatient. He grabbed Fajro by his tunic and got in his face.
 
-"That's a death sentence, you piece of shit. Who do you think you are?"
+"That's a death sentence, you piece of shit."
 
 "Kipnu. Stop this," the magistrate tried to push Kipnu away, but wasn't succeeding.
 
@@ -318,7 +340,7 @@ Meanwhile, Kipnu had grown impatient. He grabbed Fajro by his tunic and got in h
 
 He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
 
-"Go somewhere else to find someone to murder," he said, "My family is off the table."
+"You think you can prey on my family, punk?" He tightened his grip on Fajro's shirt. "Find someone else to murder. Liffa is staying here."
 
 "Kipnu. This is ridiculous. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
 
@@ -344,7 +366,7 @@ The magistrate came back in with a strong-scented cloth and some water in a smal
 
 The magistrate dipped the cloth into the bowl and placed it on his lips. Fajro's lips started to move and then purse, and then he woke in a daze.
 
-"What happened?"
+"Wha. Wha," he panted through broken questions.
 
 "You passed out, Fajro," said the magistrate in a calming voice.
 
@@ -356,7 +378,7 @@ The magistrate dipped the cloth into the bowl and placed it on his lips. Fajro's
 
 "Just rest. He's gone now."
 
-I felt pity for Fajro; he didn't deserve to be pinned to a wall, but I was frustrated that he lied to me.
+I felt no pity for Fajro. My mind was focused on Kipnu.
 
 He sipped some of the water and sat up, motioning to the magistrate for the cloth. The magistrate handed it over and he put it behind his head.
 
@@ -372,7 +394,7 @@ I asked the magistrate, "What's going to happen to Kipnu?"
 
 He stood up and walked over to me.
 
-"Kipnu assaulted Fajro and interrupted his consciousness. He'll receive justice for -"
+"He assaulted Fajro and interrupted his consciousness. He'll receive justice for -"
 
 "Just tell me straight."
 
@@ -384,45 +406,41 @@ He turned to walk out the door and said to me, "I'm going to handle Kipnu's case
 
 Fajro and I sat in silence for a few va'ka, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kipnu had found something more important. Perhaps he is also doing the right thing.
 
-"Your boy is strong," Fajro said to break the silence.
+"Your boy is strong," Fajro said to break the silence. I mended it.
 
-"He likes to take care of his body."
-
-"Maybe he should take care of his mind too."
-
-I was tempted to defend Kipnu, but this was not the time.
+"He takes care of his body, I can tell. Maybe he should take care of his mind too."
 
 He took a swatch of fabric from a pocket in his trousers and blotted his head with it.
 
 "I guess he's not a fan of the idea, then," he said.
 
-"Fajro, I'm going to be honest. None of us trust you. All of your plans seem to weave together in your favor a little too well."
+"You lied to me, Fajro. And you planned the lie before we even met. I have no reason to trust you, and all the more reason to assume that nothing you say is trustworthy. All of your plans seem to weave together in your favor a little too well."
 
-"Well, I don't blame you. I tend to treat words as incantations more than expressions. They do what I want them to."
+"I don't blame you. Us fidelants learn to think a certain way. We tend to treat words as incantations more than expressions. They do what we want them to."
 
-"Why do it? What luxurious paradise awaits you at the end of all this?"
+"Why are you doing any of this? What paradise awaits you at the end of all this?"
 
-"Oh don't you call me a lush. I might be a good liar, but I don't do it for the pleasure."
+"Oh don't mistake me. I might be a good liar, but I don't do it for the pleasure."
 
 "Then why?"
 
-"This is the only way our species can survive."
+"This project. It's the only way our species can survive."
 
 "What do you mean?"
 
-"This obstruction – the obscura. It's not going to stop 'til all of Ara is blotted out. You read it yourself. We need you to understand what this thing is so we can figure out how to stop it from blotting us out completely."
+"This obstruction – the obscura. Whatever it is, it's hostile. Whoever is controlling it will not stop until Palinan goes permanently dark. You read it yourself. We need you to understand what this thing is so we can stop it from blotting us out completely."
 
-"And you think your experiment can do that?"
+"And what makes you think we can do that?"
 
-"You think we built a space rail with dumb luck? It took 5 ma'to of collaboration with your observers. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless tests into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science and that was taken from all of us when Heiko backed out of the deal."
+"You think we built a space rail with dumb luck? It took 5 ma'tova of collaboration with your observers. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless test ships into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science and that was taken from all of us when Heiko backed out of the deal."
 
 "And you're still bitter about it."
 
-"Damn right I am. We needed to study more about space when we had the chance. We have no clue what's up there. I moved to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'to. Now Palinan is powerless, huddling in the dark with no plan but to wait it out."
+"Damn right I am. There is so much we still don't know about space but we were stopped when we had so much potential. Nobody knows what's up there, in the great beyond. I came to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'tova. Now Palinan is powerless. We're huddling in the dark with no plan but to wait it out."
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoi hero for all the PR."
 
-"Liffa, none of our dreams or grudges matter if we're all dead. I know this is the only way to survive, and I'm using what skills I have to convince the people we need for the job."
+"Liffa, none of our feelings or policies or quarrels matter if we're all dead. I know that our project is the only way to survive, and I'm using what skills I have to recruit the people we need."
 
 The argumentation side of my brain went quiet. He was right. Even if we were enemies now, it wouldn't matter once we're all freezing and starving to death.
 
@@ -432,9 +450,9 @@ The argumentation side of my brain went quiet. He was right. Even if we were ene
 
 "...Does it hurt?"
 
-"What, space? Oh I suppose you haven't learned what it's like. Imagine a place with no ground, no air, no up or down, no noises. Just you, Ara, and infinite darkness. That's space."
+"What, space?" he laughed. "I suppose you haven't learned what it's like. Imagine a place with no ground; no trees no ocean; no up or down, no sound at all. Just you, Ara, and infinite darkness. That's space."
 
-I struggled to comprehend what that meant, but I didn't have much time until the door opened again.
+I struggled to comprehend what that was like, but I didn't have much time until the door opened again.
 
 "Fajro, how are you holding up," the magistrate asked.
 
@@ -460,7 +478,7 @@ He re-assumed his regal pose with paper and charcoal in hand, and cleared his th
 
 "I do."
 
-"Then I await your decision within the next va'la. I will be back to -"
+"Then I await your decision within the next tova'la. I will be back to -"
 
 "Magistrate, I've already made my decision."
 
