@@ -1,38 +1,42 @@
 ## Chapter 2
 
-After Kipnu left for work, I descended down to the cellar to dress for the long day of sowing. The smell of damp on the stone walls pervaded the air and opened my nostrils in reminiscence. My mother was with me.
+Working in the field never felt lonely to me, though I knew some who resented it for that reason. My thoughts may betray me sometimes, but never out there. There was far too much to be done to have thoughts of other places and other times.
 
-I hooked a bulb to the overhead electrical rails, and little by little the flow of electricity grew and warmed the metal ribbon inside to a bright white. Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother, but instead of being boring repetitive task they had evolved into a calming daily ritual. Hanging from a length of twine were a pair of canvas trousers, a thickly-woven tunic, and gloves stained with clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all. I was certain that my family knew how to make more durable clothes than anyone in Heiko.
+Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother. I would descend to the cellar to dress for the long day of sowing or harvesting or maintenance. The smell of damp on the stone walls pervaded the air and reminded me that my mother was with me. I would hook a bulb to the overhead electrical rails, and little by little the flow of electricity grew and warmed the metal ribbon inside to a bright white. Drying on a length of twine were a pair of canvas trousers, a thickly-woven tunic, and gloves stained with clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all for thousands of days. I was certain that my mother knew how to make the most durable clothes of anyone in Heiko.
 
-We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. She would carry me in a big thatch bag on her back while she tilled, planted, harvested. I watched her hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much she could plant and harvest and aspire to do the same. It's been 6 seasons since she passed, but she lives as vividly in my memories as she did in life.
+We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. It's been sixty-five crop rotations since thi passed, but thi lives as vividly in my memories as thi did in life.
 
-"I bet you'll plant 1000 today, Liffa"
+"I bet you'll plant 1000 today, Liffa," thi said once.
 
 "2000!"
 
-"Hohoho. 2000 then."
+"Hohoho," thi laughed in the most graceful way. "2000 then."
 
-My childhood attention span would always get the best of me before I could get close. I undid the lights and power rail and took a last breath of the earthen basement air. The day was calling.
+My childhood attention span was not helpful, but thi was never disappointed in me as long as I was learning.
 
----
+I lifted the light from the rails, set it in its corner, and took a last breath of the earthen basement air. The day was calling.
 
-"Another day, then," called Tiggu. She had caught me unawares from her plot of land next to mine. The same farmer's trousers adorned her, but she was apparently more strict about washing them daily.
+"Another day, then," called Tiggu as I walked the length of a plot of clay. She surprised me from behind the wide fence thi insisted on building.
 
 "Is your life really so mundane that the days are all the same?" I asked jokingly.
 
 "Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
 
-She was referring to the tied-back robes of the members of the court where Melna worked. I ignored her and shifted my focus to my work.
+"The fidelants play an important role in our society. Melna included."
 
-"It's chilly today, isn't it?"
+"Ah. What good is a railroad and electricity? Doesn't help me harvest."
 
-"I suppose so. Every season will have a few of these."
+I changed the subject, "It's chilly today, isn't it?"
 
-"Yes, but it’s too early, isn’t it?”
+She stopped for a moment to think. 
 
-"Oh you'll get them at all times of the season. Once when I was young we had 4 days of frost right after germination. Lost the whole plot and had to start over."
+"I suppose so," she said. "Every rotation will have a few of these."
 
-"That sounds unfortunate, but I think this one is different. It's the middle of our warm season"
+"Yes, but... Isn't it too early?”
+
+"Oh you'll get them at all sorts of times. Once when I was young we had 4 days of frost right after germination of one plot. Lost the whole thing and had to start over. Ara is a fickle thing."
+
+"That sounds unfortunate, but I think this one is different somehow. The wind is strange too, isn't it?"
 
 "It's just a cold spell. These things happen. It'll be back to normal soon, you'll see."
 
@@ -40,27 +44,33 @@ She was referring to the tied-back robes of the members of the court where Melna
 
 Her answer was unsatisfying, but I went back to working. Perhaps I was overreacting.
 
-"So when are you three going to have children? It's been several seasons since you were joined"
+"So when are you three going to have children? It's been a while since you were joined."
 
-"That's none of your business"
+"That's none of your business."
 
-"I'm just looking out for you. When you can't dig anymore, you'll wish you had someone to take your place."
+"I'm just looking out for you is all. When you can't dig or pull or bend down anymore, you'll wish you had someone to take your place."
 
-"I'll be just fine"
+"I'll be just fine."
 
-"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother."
+"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. For me it was a little twerk and back to work."
 
-"Like I said, I'll be fine." The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a few clicks, and then she began again.
+_I did not need to know that._
 
-"How are Melna and Kipnu doing? Any new stories for an old lady?"
+"Like I said, I'll be fine." 
+
+The things thi said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
+
+"How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
 
 "They are fine."
 
 "That's all? Just fine?"
 
-I snapped, "What do want, woman?"
+I snapped, "What do want from me, woman?"
 
 "Mind yourself, Liffa. What sort of Maman raises hae voice to an elder?"
+
+I was at the edge of my frustration.
 
 "They're doing just fine, okay? Kipnu is having a great start at the clinic, and Melna is representing this village to the council. Is that what you're looking for?"
 
@@ -68,11 +78,13 @@ She sughed, went quiet, and resumed her work while I stared at her indignantly.
 
 "A jealous Maman never rests," she said out of nowhere.
 
-I jabbed my shovel into the clay and stopped myself from yelling something I would regret later. _That's enough for now_.
+I jabbed my shovel into the clay and stopped myself from yelling something I would regret later. 
+
+_That's enough for now_.
 
 ---
 
-My sense of humility or perhaps a feeling of unimportance surfaced as I entered a house that I could never have called home on my own. I don't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to better themselves and ascend from their lot, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it to a lowly farming Maman who joined with a higher class and has no interest in raising children.
+There was a sense of humility or perhaps a feeling of unimportance as I re-entered the threshold of my home. I don't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do somethiinig else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it to a lowly farming Maman who joined with a higher class and has no interest in raising children.
 
 I took my boots and trousers off so as not to make a mess, and left them outside next to the door where the clay from countless planting days had painted a spot on the mossy pathway. I took a seat at the table next to the window to sit near an aromatic plant I had been cultivating for its calming effects. In a sigh, I took in everything around me as if it were all some dream that I would one day abruptly wake from.
 
