@@ -7,7 +7,7 @@
 
 ## Chapter 25
 
-Rocks. Everywhere. I would never have believed that something so simple could haunt me as much as the rocks did on the path to Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see them but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and a small oil lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
+Rocks. Everywhere. I would never have believed that something so simple could haunt me as much as the rocks did on the path to Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see them but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and a small anomin oil lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
 
 "All these tracks are headed toward Rudjan," she said, observing carefully. "The children who couldn't swim that distance. They would have been captured by now – never had a chance."
 

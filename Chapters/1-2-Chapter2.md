@@ -48,13 +48,13 @@ Her answer was unsatisfying, but I went back to working. Perhaps I was overreact
 
 "That's none of your business."
 
-"I'm just looking out for you is all. When you can't dig or pull or bend down anymore, you'll wish you had someone to take your place."
+"I'm just looking out for you is all. When your legs grow weak and you can't bend down to harvest, you'll wish you had someone to take your place."
 
 "I'll be just fine."
 
-"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. For me it was a little twerk and back to work."
+"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me can harvest a whole plot in the morning and make a kid in the evening."
 
-_I did not need to know that._
+_I doubt that._
 
 "Like I said, I'll be fine." 
 
@@ -84,11 +84,13 @@ _That's enough for now_.
 
 ---
 
-There was a sense of humility or perhaps a feeling of unimportance as I re-entered the threshold of my home. I don't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do somethiinig else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it to a lowly farming Maman who joined with a higher class and has no interest in raising children.
+There was a sense of humility or perhaps a feeling of unimportance as I returned home. I didn't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do somethiinig else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it. Perhaps she was making sure that I wouldn't make her mistakes.
 
-I took my boots and trousers off so as not to make a mess, and left them outside next to the door where the clay from countless planting days had painted a spot on the mossy pathway. I took a seat at the table next to the window to sit near an aromatic plant I had been cultivating for its calming effects. In a sigh, I took in everything around me as if it were all some dream that I would one day abruptly wake from.
+I took my boots and trousers off and left them next to the door, where the clay from countless planting days had painted a spot on the mossy pathway, and fled immediately to the dew column at the center of our home. My scent glands picked up the aroma of the anomin plants I had been cultivating in my room. They led me in, as if expecting me to return. With a sigh, I took it all in as if seeing it for the first time: my small cup collection, the hang drying pohua, my mother's dusty old lanterns, and the anosin filling the air with its resins and oils. But still I was unsettled. As with all things in my life, it felt temporary. Like some fantastic dream that I would one day be awoken from, abruptly and without warning.
 
-_Do I deserve to be here? I am not saving lives or building for the future like Kipnu or Melna. But I still contribute to the village and I make sure we have food and water and a functional home._
+_Do I deserve to be here? I'm not saving lives or making big decisions._ 
+
+_But I still contribute pohua to the village. I make sure we have food and water and a functional home._
 
 _"A jealous Maman never rests"_
 
@@ -96,18 +98,28 @@ _Tiggu... What did Mamen ever do to offend you?_
 
 _Or was I the rude one? No, She was intentionally trying to get under my skin._
 
-_I feel guilty. Why do I feel guilty? What sort of corruption has this old bat woven into my heart?_. It felt dirty, like I needed to burn away some part of who I had become. Or reclaim the self-dependent Kaln I used to be. I drifted back to childhood, my father used to telling us that "Nothing is promised". My naether would always remind him, "You promised to love us".
+_I feel guilty. Why do I feel guilty? What sort of corruption has this old woman woven into my heart?_. 
 
-There was a knock at the door to snap me awake. _Is it that Tiggu again come to tell me I was rude?_ I sat up and quietly snuck toward the door to see who it was. _Jesse? Delivering a message now? What could he possibly want?_
+It felt unclean, like I needed to burn away some piece of myself that had spoiled, to protect my homeland from myself.
 
-I cracked the door with my trousers still beside it and he started as soon as the door opened.
+_No, I am self-dependent. That is who I am. That is what makes me worthy of living._
+
+I laid down on my bed and let my thoughts drift back to childhood. My father used to tell me, "Nothing is promised in life. Even your mind can betray you". And my nather would always remind him, "You promised to love us".
+
+There was a knock at the front door to snap me awake. _Is it that Tiggu again come to tell me I was rude?_ 
+
+I sat up on my bed and quietly snuck toward the door to see who it was. 
+
+_Jesse? Delivering a message now? What could he possibly want?_
+
+I cracked the door to talk to him, but before I could say anything he unleashed a flurry of desperate words.
 
 “Liffa, I have an urgent message for Melna. Is she here?”
 
-“Um. No she left a few clicks ago.”
+“Um. No she left a bit ago.”
 
 He was still catching his breath, “We - we need to find a way to get it to her as soon as possible.”
 
-“Slow down for me. What’s this about?”
+“Slow down, Jesse. What’s this about?”
 
 “It's about Ara.“
