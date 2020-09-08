@@ -1,54 +1,60 @@
 ## Chapter 6
 
-There was a constant reverberant murmur that filled the hall as a fidelant was talking about her city's proposal for a new academy of arts. I was between two elevated seating areas, so I was hidden from the view of most fidelants. A few fidelants glanced at me for a second and returned their view as if nothing had happened. I stopped to notice a faint glow from the walls on the left that got brighter as it grew to become the ceiling. 
+There was a constant reverberant murmur that filled the hall as a fidelant spoke to them - something about her province's proposal for a new academy of arts. I was nestled in a walkway between two elevated seating areas, so I was hidden from the view of most fidelants. A few at the opposite end of the hall me glanced at me for a second, then returned their view as if nothing had happened. 
 
-_Thin. The ceiling is thin so it lets in light._
+As I ventured further, I noticed a faint glow from a wall to the left, where Ara shone through the entryway and onto this giant orb. A precise map of the world appeared in shades on the wall with an inverse orientation, as if looking down from the sky. I observed and inferred more and more and fnially mapped out a route. Typically, people would enter from these walkways into the center before going further up to their desks, and luckily I was on the eastern portion of the hall, so I assumed that Melna sat nearby. I would still have to walk into that center circle, probably bringing a decent amount of attention to myself in the process, but it was large so I might get away with it if I stayed quiet and slow. 
 
-I was on the Heiko side of the hall so I figured Melna would be somewhere close by. The hall was constructed so that fidelants would start at the center before going further up to their desks. I would have to do the same, probably bringing a decent amount of attention to myself in the process. Luckily the center area was large so I might get away with it if I stayed quiet and slow. I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. My anxiety rushed in more with every step toward the center of the hall, but I kept my stride by counting my steps. Right as I entered the center area, I turned to the left and kept walking to make it look like I knew where I was going. _The speaker is continuing. Good._ There were steps going upward immediately to my left, so I took them and raised my gaze to look for Melna. I couldn't find her to my right, but I saw the back of her head in the front row on the other side of the entryway. _I chose the wrong side._ I could feel the eyes of the fidelants locked on me now, and I was drawing attention. I would have to go back to the center again. I would really draw attention then. My pounding heart and ringing ears were deafening and I was picking up my pace to get to Melna as quickly as possible.
+I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. With every step toward the center of the hall, my hearts rushed with anxiety, but I counted my steps to remain calm. Once I entered the center area, I picked a side – _left_ – and immediately rounded the marble wall and started walking up the steps to make it look like I knew where I was going. _The speaker isn't stopping. I'm almost in the clear._ About halfway up, I lowered myself and raised my gaze to look for Melna. She didn't appear to me immediately, but then I spotted the side of her face in the front row on the opposite side of the entryway. _I chose the wrong side._ I picked up my pace to get to Melna as quickly as possible.
 
-"Are you lost?" A different voice interrupted the speaker and addressed me directly. _That must be the mediator._
+"Are you lost?" A different voice interrupted the speaker and addressed me directly.
 
-Every eye turned to me. I turned to Melna and her mouth was agape in disbelief. I had to say something.
+The eyes of the fidelants were locked upon me now, shocked at my mere presence. My pounding hearts and ringing ears were deafening. I looked toward the center of the room where a lantern illuminated the face of a scornful woman. She looked back at me, emotionless, cold, intolerant. I had to say something.
 
-"I.. I've come with important news from observers in -"
+"I.. I've come with important news from observers in–"
 
 "It is illegal to interrupt the senate."
 
-"Yes, I know, but -"
+"Yes, I know, but I–"
 
 "You are in corruption of the Senate. You do not belong here. Leave or you will be forced to leave."
 
 _The mediator was shutting me up, as expected. But I was too far from Melna to get her help._
 
-"Please, allow hae to speak" A familiar voice boomed through the microphone. It was Melna but I had never heard her voice so loudly before.
+"Your piety, if I may," Melna's voice boomed through the hall and commanded the attention of all in the room. "Please allow hae to speak."
 
-"On what grounds?!" The mediator challenged her.
+But the mediator was not convinced. "On what grounds?" she challenged.
 
-"I can vouch for whatever Liffa has to say. Thi comes from Heiko with important news."
+"I can vouch for whatever thi has to say. Liffa comes from Heiko with important news."
 
-"This is ridiculous. The senate cannot be interrupted."
+A murmur filled the room, followed by a raised hand of the mediator for all to remain quiet.
 
-"Mediator, if I may, the speaker from Pikshi was interrupted by your interjection, not by Liffa's footsteps."
+"Did you plan for this interruption, Melna?"
+
+"Of course not, your piety. But some news is too–"
+
+"Nothing. Shall. Interrupt. This. Council!"
+
+"Your piety, if I may," called another from the far end of the room. "The speaker from Pikshi was interrupted by your interjection, not by this maman's movements."
 
 The room began to rumble as the mediator paused in shock. I took the pause to move to Melna as quickly as possible.
 
 "Not another step!" The mediator called to me, but I continued.
 
-Melna walked out to receive me with a scowl on her face.
+Melna walked out from her desk to receive me, and cast me a scowl of disappointment.
 
 "What are you doing here?!" She whispered loudly.
 
-I stayed silent but showed with my face that I knew what I was doing and needed her trust. She stepped aside and led me to the seat in her aisle with a microphone while she went to her old seat next to it. I dug through my bag and lifted the paper message out, setting it on the desk in front of me. The mediator's anger was apparent, but no one else seemed to be so outraged - just surprised and confused.
+I stayed silent but showed with my face that I knew what I was doing and needed her trust. With much trepidation, she stepped aside for me to walk down the desk aisle to her seat while she sat beside me. I spared no time digging through my bag for the paper message and set it on the desk in front of me. The mediator's anger was apparent, but no one else seemed to be outraged – just surprised and confused.
 
-As I was preparing what I would say, the door I entered through suddenly opened in a loud thud, and the two guards I had snuck behind entered.
+As I was preparing to speak, the door I entered through suddenly opened in a loud thud, and the two guards I had snuck behind entered.
 
 "Pardon us, mediator. An intruder is suspected to be here. Have you seen hae?"
 
-The mediator simply pointed, and the guards began walking toward me. I had to speak now.
+The mediator simply pointed, and the guards began walking toward me. I had to speak now before the guards arrived.
 
-"There is a growing object in space obstructing Ara. We have 90 days before it goes dark. We must-"
+"There is a growing object in space obstructing Ara. We have five days before it goes dark. We must-"
 
-The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms with a the tightest grip I had felt before and thrust me out of my chair and into the walkway. I screamed, "No!" and reached for the paper, but he was stronger than me. Melna quickly grabbed the paper and chased after me. She gripped my hand and said, "Don't worry, I will read your message. I'll come for you after we adjourn." Padji turned around and held Melna back as gently as she could. My last view of the senate was of Melna, in her robes, standing strong as always, with the message grasped firmly in her hand.
+The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms behind me and locked them with the tightest grip I had felt before, and he thrust me out of my chair and into the walkway. "No!" I screamed and wrested one of my hands free. I reached for the paper, but his hand came quickly down upon mine and locked it in twice as hard. Melna quickly grabbed the paper and chased after me. She said, "I'll finish your message, Liffa. And I'll find you after we adjourn." Padji turned around and held Melna back as gently as she could. My last view of the senate was of Melna, in her robes, standing strong as always, with that small paper slip grasped firmly in her hand.
 
 ---
 
