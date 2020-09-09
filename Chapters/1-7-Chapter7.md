@@ -468,7 +468,7 @@ The magistrate stood up and moved closer to me.
 
 "Liffa, I realized that I might have been a bit too hasty in my decision to switch the sentence. I've decided to let you choose where to go. Does that sound fair?"
 
-I answered, "Yes, magistrate. You are generous."
+I answered, "Yes, magistrate. It's a generous offer."
 
 "In that case, I'll continue where I left off."
 
@@ -483,5 +483,7 @@ He re-assumed his regal pose with paper and charcoal in hand, and cleared his th
 "Magistrate, I've already made my decision."
 
 "You have?"
+
+_I'm sorry, Melna._
 
 "I'm going to Holrag."
