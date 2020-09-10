@@ -46,11 +46,29 @@ _Not the time for memories_. I snapped out and hopped on while rushing to the fr
 
 ---
 
-The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Several clouds hung high the sky, reaching across the crown to enter into that dark abyss. I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the day and night times. They also knew that there were other stars like Ara very far away, but much too far to reach in our lifetimes. I wondered if the stars could die like we did.
+The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Whispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss. 
+
+I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the bright and dim times. They also knew that there were other, much redder stars very far away. Exactly how far, they couldn't be certain, but they were much too far to reach in our lifetimes. Even with the fastest vehicles.
+
+I wondered if the stars could die like we did, or if they had always been there, like holes in the firmament.
 
 At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small woop of acknowledgement.
 
-When I entered, Jesse was already squatting at the phone desk attempting to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+When I entered, an old man who seemed to know Jesse was already inside, standing by the doorway. 
+
+"Aey, lad," he said, "You forgot to clean the lenses. And weren't you supposed to be looking for Melna?"
+
+"Yes, Thimlu. There's been a bit of a snag. Melna's already left."
+
+"Well that's not good. 's not good at all."
+
+"Have you reached any of the other observatories?"
+
+"The only other two are in Holrag. And they're both unresponsive. Kantha really should be picking up. He knows about this."
+
+"No worries," Jesse said with a chipper voice. "I'll try Melna's personal line."
+
+Jesse set himself at the phone desk and attempted to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
 "Shaki Conduit, This is Heiko Conduit."
 
@@ -80,6 +98,12 @@ He paused and sighed.
 
 I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
+Thimlu interrupted us, "I remember you two lovebirds from orbital. Couldn't teach you a damn thing until thi left. Why didn't you just marry him instead, Liffa?"
+
+Jesse's cheeks went red, and he protested, "Thimlu! You can't say something lke that."
+
+"Bah. Observers are sworn to observe, and this one's pretty clear."
+
 The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
 
 "Pomri, I have an urgent message for Melna."
@@ -104,7 +128,7 @@ She sighed, "Well, I'm afraid you're too late. Melna is currently in assembly."
 
 He sighed in frustration burying his eyes in his hand.
 
-He replied, "Pomri, you can't be serious. Even if there is a law against interrupting the assembly, a magistrate would look the other way at sentencing."
+"Pomri," he replied with pessimism. "You can't be serious. Even if there is a law against interrupting the assembly, a magistrate would look the other way at sentencing."
 
 "You ever been to Shaki?"
 
@@ -134,23 +158,33 @@ I built some resolve and double checked that the microphone was off.
 
 "That's crazy. You heard Pomri. You'll be sent to Ulukoma."
 
-"If this is as important as you say, then it would be worth a few days in the cold."
+Thimlu butted in. "This is of utmost importance," he said with a smirk on his face. "A magistrate would surely look the other way at sentencing."
 
-He shouted, "More than just a few!"
+Jesse shouted back at him, "Whose side are you on here?!"
 
-I was astonished. He was always so laid back and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I approached the desk and squatted across from him, pausing to admire the old wood that countless messengers before him had worked from.
+I was astonished. Jesse was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I rose from the desk and paced the floor across from him, pausing to admire the old wood floor that countless messengers before him had walked upon.
 
-I tried to convince him again, "I can't think of any better way to do it"
+I tried to convince him again, "I can't think of any better way to do it."
 
 "You are sacrificing too much. The bureaucracy behind the court is impossible."
 
-"If this is as important as you say, then there will be a lot of chatter for the next few days. Someone has to keep the communication lines open amidst all that chaos."
+"It's a sacrifice I'm willing for Liffa to take," said Thimlu. He took the words right out of my mouth.
 
-He seemed defeated but looked up into my eyes and we locked gazes for a while.
+I explained my thoughts. "One of us has to do it. If this is as important as you say, then there will be a lot of chatter for the next few days. One of you has to keep the communication lines open amidst all that chaos, and one of you has to keep watching the sky for more data. Besides, I have some strings I can pull at the senate. I stand a much better chance."
 
-"If you pull this off, we will all petition for your return."
+Jesse seemed defeated but he looked up into my eyes and we locked gazes for a while.
 
-"Don't worry. I've got a coat."
+"If you pull this off, I'll petition the magistrate for a lighter sentence."
+
+"Don't worry about me," I told him. "I've got a coat."
+
+I gathered my bag onto my shoulders, and stood near the doorway as they looked on.
+
+"Gentlemen. I've an errand to run and then I'll be on my way to Shaki. Thank you for entrusting me with this mission. I won't let you down."
+
+"Good luck, Liffa," said Jesse, somberly.
+
+"Don't get murdered," said Thimlu.
 
 ---
 
@@ -158,7 +192,7 @@ He seemed defeated but looked up into my eyes and we locked gazes for a while.
 
 "Hey I'm sorry to wake you but I need to talk."
 
-He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the rails. His sleepy eyes were still partially covered by his eyehaw.
+He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the power rails above him. His sleepy eyes were still partially covered by his eyehaw.
 
 "Liffa? Oh, you surprised me. What brings you here?"
 
@@ -178,16 +212,17 @@ I paused, dumbstruck and scrambling for words.
 
 "You're keeping a secret. Tell me what's going on-"
 
-I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be at the station."
+I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be coming back home."
 
-I turned to walk out the door, and he grabbed my wrist. I winced and looked back at his eyes. They were pleading, worried.
+I turned to walk out the door, but he grabbed my wrist to stop me. His eyes were pleading, worried.
+
 "We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
 
 "You can't be involved."
 
 "I already am."
 
-He released his grip, and I stood just outside the door, still vying with my own thoughts.
+I fought off his grip, and stood just outside the door, staring at the gaudy iron floor of his office and vying with my own thoughts.
 
 _I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kipnu and Melna would understand. In the worst case, I would get a little cold in the dark. But Kipnu? I would have to fend for him too. He doesn't know how to survive on the land_
 
@@ -195,23 +230,25 @@ He pushed again, "If you won't tell me, then I'm going with you to find out myse
 
 "You couldn't - you have patients to see"
 
-"They can wait a va'ala until I return"
+"They can wait."
 
 "Kipnu-"
 
-"You really don't want me to go, do you?"
+"Why can't you let me in?"
 
 "Kipnu...if you go with me, it will be a long time before you come back."
 
 "What are you talking about? The trains run four times a day."
 
-"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back"
+"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back."
 
 "Stop being cryptic. What are you planning, Liffa?"
 
-His gaze cast an unseen heat on my resolve. How easy it would be to have him next to me while I interrupted the court of Shaki about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But any punishment or irreversible injury that might befall him would be my guilt to carry. It's not the sort of thing that fades away.
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. 
 
-_It's clear_
+No. His guilt would be my guilt. He can't be involved in this.
+
+_It's clear._
 
 "Goodbye," I said.
 

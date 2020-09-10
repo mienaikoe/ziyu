@@ -10,7 +10,7 @@ Startled, I sat up to see a silhouette of Melna standing in the light, her hair 
 
 I stayed silent, still listening for the leaves and my mother's voice.
 
-"You've been gone a while. Your breakfast is cold."
+"You've been gone a while. Breakfast is ready soon."
 
 "I'll be there in a bit."
 
@@ -20,31 +20,29 @@ She stared at me for a moment, I assume to size up my strange behavior.
 
 ---
 
-Kipnu was at the stove reheating a sweet mash of pohua and reading a postletter with his morning face on. His hair, the furrowed nest of a bird that took a liking to crooked branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to nuzzle him. Melna was squatting at the eating table, reading her daily missive from the provincial council.
+Kipnu was at the stove reheating a sweet mash of pohua with his morning face on. His hair resembled the furrowed nest of a bird that took a liking to the most crooked of branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive of provincial news.
 
-"Who's the letter from?", I asked Kipnu casually.
+"Anything new?", I asked her.
 
-"My parents. They're on vacation to the east bay this week."
+"Not particularly. We're still running our typical surplus of root vegetables and fruits. People always request more of them than they actually need."
 
-"That's a strange place to vacation," said Melna.
+Kipnu chortled, looking at me. "Liffa here could probably take the entire surplus herself."
 
-"Yea. They've always been ones to go on adventures to exotic places. They were really wanting to see the sky when Ara is high. Something about brightness meditation."
+"Sweets are my one joy in life," I replied. "Anyway, all the farmers I know preserve what they don't sell."
 
-I was immediately excited. "Oh, I've heard about that. They say there are no clouds or fog and the whole sky is bright blue like the sunrise. You can see some features of the crown too."
+"I'll pretend I didn't hear that," said Melna.
 
-"And I bet it's hot enough to pass out too," he remarked, still not convinced.
+I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and remove the pot from the focal point.
 
-"That sounds awful," said Melna, her eyes still focused her work, "Why would someone choose that place to meditate in?"
+"A bowl would be great," I told him as I fetched a spoon.
 
-Kipnu shrugged and let out a hopeless hum, more focused on the letter than the now boiling soup pot. I came closer and nudged him away to remove the pot from the focus while he took a moment to snap out of reading.
+"Ah yea. A bowl," he fetched one and set it in front of me to pour into.
 
-"A bowl would be great," I told him.
+Melna walked over to us to check on the food. "Let me make sure it's still like my mother used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
 
-"Ah yea. A bowl," he fetched one and held it out for me to pour into.
+I pulled some water from the dew column at the center of the great room and returned to add it to the mix little by little, waiting for Melna's approval. 
 
-Melna walked over to us to check on the food. "Let me make sure it's still like my Amma used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
-
-I did as she said and finally sat down to eat.
+Finally, we sat down to eat.
 
 A moment of quiet slurping went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
 
