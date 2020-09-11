@@ -56,7 +56,9 @@ The child murmured, "m-m-mh," but hae mother calmed hae down.
 
 "Casra," thi said abruptly, but warmly.
 
-Casra kept hae arms and legs wrapped around the child while the smolders turned to flames and then to fire and slowly their shivers settled. The whole group was huddled closely around the fire now, napping or huddled to regain their strength.
+"It's a miracle your kaln made it. This is resilient."
+
+Casra nodded in quiet agreement and kept hae arms and legs wrapped around the child while thi watched the smolders turned to flames and then fire. Slowly their shivers settled and their wet clothes dried. The whole group was huddled closely around the fire now, squatting and staring at the only light in this place.
 
 "Colder than I thought it would be," said Casra, trying to make small talk.
 
