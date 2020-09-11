@@ -2,7 +2,7 @@
 
 The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and rusted nails. Despite its mostly ramshackle shape, it adorned a pair of thick, electrical risers built to press tightly against the rails above. Kipnu was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough.
 
-The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles like him aboard, but each was accompanied by an armed escort. Most of them seemed mentally detached – some out of self-pity, but others likely had something else swirling in their blood. One of them was a kaln, with faint blue eyes that stared into space, and a face of terror. I hoped that one of the others was a parent of his.
+The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles like him aboard, but each was accompanied by an armed escort. Most of them seemed mentally detached and he wondered what each had been sent for. At the end of the line of exiles was a kaln, somewhere on the verge of being an adult. Thi had faint blue eyes that stared into space: a sign of kanosin withdraw. He hoped that one of the others was a parent.
 
  _These people need medical help. Ulu will only make them worse._
 
@@ -14,15 +14,19 @@ The cold water pierced his skin and disoriented him. For a moment, direction was
 
 "On your back! Use your feet!" cried a maman. Thi was speaking to the kaln, but all in the group adjusted to hae direction.
 
-The cold turned into numbness as he kept his head above water and kicked his hardest toward the shore. The wind was strongly against him and toward Ara, and was kicking up a current that would push him back if he stopped, but his efforts were focused on getting to shore, and he had purged his mind of all other worries in order to survive. He felt a tug at his leg in the middle of an exhale and he went under while another person clambered over his submerged back and jumped forward, leaving him disoriented and deprived of oxygen. He panicked and flailed around in the water until he felt his feet touch something solid. The water wasn't so deep here, he must be close. He dug his toes into the pebble bed and powered back to the surface to resume his swim to shore. When he made it to standing depth, he stopped to catch his breath while he looked for other people make it ashore. He spotted a young and very thin maman whose muscles were locking up in the cold. A surge of urgency rushed through him, and he swam back out to hae. Kipnu latched hae arms to his shoulders while he swam backward to shore, making sure both of their heads were above water. Hae lips were turning blue and hae muscles relaxed again before Kipnu could make it back.
+The cold turned into numbness as he kept his head above water and kicked his hardest toward the shore. The current was moving against him; it would surely push him back if he stopped, but his efforts were focused on getting to shore, and he had purged his mind of all other worries in order to survive. He felt a tug at his leg in the middle of an exhale and his body went under while another person clambered over his submerged back, leaving him disoriented and deprived of oxygen. He panicked and flailed around in the water until his feet touched something solid. _The water isn't so deep here_, he thought. _I must be close_. He dug his toes into the pebble bed and pushed himself back toward his goal. He made it to standing depth and stopped to catch his breath while he looked for other people make it ashore. He spotted the young maman and hae mother, struggling together quite a ways out. It looked as though the kaln's muscles were seizing in the cold and hae mother didnt have the strength to pull both of them. A surge of urgency rushed through him, and he jumped back into the depths with his arms still bound in front of him. He had swam nearly 30 paces before he reached them. The kaln was unresponsive and hae mother was dazed, trying hae best to move both of their bodies to shore, but not making much progress. Without a thought, Kipnu latched the kaln's head under his arms, making sure thi was above water. He told the maman,
 
-"Come on. Stay awake, kid," he said, but the maman was unresponsive.
+"I'll get hae back. Focus on yourself."
 
-Once they got ashore, Kipnu searched for a pulse and didn't feel one.
+Thi looked at him with glazed over eyes, confused and disoriented, but Kipnu saw that the kaln had nearly become unconscious, so he had to move.
 
-"Shit. No no no. Don't die."
+"Come on. Stay awake, kid," he said, and he pushed the water with all his legs could push. Kipnu saw hae mother follow him, as if instinct had taken over.
 
-He quickly dug a small trench in the pebbles to insulate them while he used his body heat to warm hae. He crossed his arms in front of hae and pulled down in an effort to re-start hae hearts. The others gathered around them to watch what was happening.
+They got ashore, and Kipnu searched for a pulse.
+
+"Shit. No no no," he said. "Don't die. You're too young for that."
+
+He quickly moved onto the ground and lifted the kaln onto his own body. Hae skin had gone cold. In a cross-armed gesture, he set his arms in front of hae chest and rapidlly pulled down at a steady pace. The others gathered around them to watch what was happening.
 
 "The fire. We have to get hae to the fire," called a man from the crowd.
 
@@ -30,67 +34,77 @@ He quickly dug a small trench in the pebbles to insulate them while he used his 
 
 "Well this isn't working," the man responded.
 
-Kipnu butted in, "It will take too long to get there. Thi'll be dead by the time we start running."
+Kipnu butted in between pulses, "Everyone, gather kindling, from the forest. We'll start, a fire here."
 
-The crowd paused in thought, and then a maman spoke up, "Everyone gather kindling from the forest. We'll start a fire here."
+Those who were able sprung into action while the kaln's mother lifted haeself out of the water and rushed over to Kipnu, still pushing on the child's hearts.
 
-Those who were able sprung into action while the maman rushed over to Kipnu who was still pushing on the child's hearts.
+Thi said, "I'm a doctor from Shaki. I can take over if you're tired."
 
-Thi said, "I'm Casra, a doctor from Shaki. I can take over if you're tired."
+Kipnu responded between pushes. "Shouldn't...stop". Thi understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit, orienting them to form a cone. Suddenly, a cough was heard and everyone turned to find the child moving.
 
-Kipnu responded between pushes. "Thank you...shouldn't...stop". Casra understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit while Casra stood them to form a cone. Suddenly, a cough was heard and all turned to find the child moving.
+"Linyu!" said the maman, and thi immediately pulled hae from Kipnu and laid hae on hae side.
 
-"You're alive!" Kipnu said, jubilant.
+Kipnu remained still on his back, catching his breath from all the commotion that had just occurred.
 
-Casra reset hae focus and produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. A woman sat down beside hae and started doing the same with the other bit and another piece of paper until they both started seeing smoke. The crowd hollered at the smell: a hint of warmth to come. Kipnu carefully moved the child toward where the kindling was placed and set hae down on his lap. The others started bring small dry leaves to the two sparkers who were making good progress on smoldering paper.
+A woman in the crowd produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. The woman breathed gently onto the fire until embers and smoke started to appear. The crowd hollered at the smell: a hint of warmth to come. The maman carefully moved the child toward where the kindling was placed and set hae down on hae lap. The others started bring small dry leaves to the woman who was making good progress on smoldering paper.
 
-Meanwhile Kipnu was trying to talk to the child to keep hae awake and aware.
+Kipnu had finally caught his breath and moved toward the maman and hae child.
 
-"Hey, what's your name?"
+"I'm Kipnu," he said to the maman.
 
-"m-m-mh."
+The child murmured, "m-m-mh," but hae mother calmed hae down.
 
-"Hey, you're ok now. We made it to shore."
+"Casra," thi said abruptly, but warmly.
 
-Kipnu kept his arms and legs wrapped around the child while the smolders turned to flames and then to fire and hae shivers settled. The whole group was huddled closely around the fire now, some napping to regain their strength they had just encountered while Casra remained close to Kipnu and the child.
+Casra kept hae arms and legs wrapped around the child while the smolders turned to flames and then to fire and slowly their shivers settled. The whole group was huddled closely around the fire now, napping or huddled to regain their strength.
 
-"Colder than I thought it would be," she tried to make small talk.
+"Colder than I thought it would be," said Casra, trying to make small talk.
 
-Kipnu paused, wondering if he should mention the obstruction.
+Kipnu paused, wondering if he should mention the obscura.
 
-Thi changed the subject, "I didn't get your name earlier."
+Thi changed the subject, "Where did you learn to do that?"
 
-Kipnu responded, relieved, "I'm Kipnu. A doctor from Heiko."
+"Learn to do...?"
 
-"Two doctors in Ulu. What are the odds?"
+"Hypothermic chest compressions. That's not a common thing to know."
 
-He smiled abruptly to himself - he was pondering the same thing.
+"I'm a doctor. From Heiko."
 
-He asked her, "So, Casra, how did you wind up here?"
+Casra laughed, "Two doctors in Ulukoma. What are the odds?"
 
-"I'd prefer to ask you first."
+He smiled to himself - he was pondering the same thing.
 
-"Well. I pinned a guy against a wall who wanted to send my jund to space."
+"So..." he asked, "How did you wind up here?"
+
+"If you don't mind, I'd prefer to ask you first."
+
+"Yes... of course." he said, embarassed.
+
+"No it's not that I think you're a bad person, I just–"
+
+"I get it. I'm a strange man in Ulukoma. And you have a kaln to look after. I'll give you the unfiltered version. There was this guy who wanted to send my jundmaman to space."
 
 Casra laughed until thi noticed that Kipnu wasn't.
 
-"Oh. That... must be a long story."
+"You're not joking about that?" thi asked.
 
-"It is."
+He continued, "So I get angry, and pin him against a wall, and I tell him, politely, to fuck off. Magistrate walks in, sentences me on the spot."
 
-Kipnu felt a sense of longing for Liffa and Melna, but then realized he was being too cold. "It's a story best told in the light."
+"Oh. That... must be a long story," thi said.
 
-"I see."
+"No, that's basically it."
 
-"So how about you? Hope it's a bit less complicated."
+Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again.
 
-"It's...well I suppose it's also a story for the mainland."
+"So how about you?" he asked. "Hope it's a bit less complicated."
+
+"It's...well I suppose it's a story best told somewhere more quiet."
 
 "Sure."
 
-Thi noticed that Kipnu was getting sleepy and whispered to him, "Hey, why don't you rest your arms. I can take care of hae."
+Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
 
-He nodded and gently laid the child into Casra's arms before leaning over and falling asleep next to hae. Casra briefly looked at him admiringly, as if to wonder how such a good heart wound up in such a miserable place, but thi remembered that all hearts have a dark side, including her own.
+He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all hearts have a dark side, including her own.
 
 ---
 
