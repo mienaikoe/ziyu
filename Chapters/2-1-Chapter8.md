@@ -110,7 +110,7 @@ He nodded and lied down next to the two of them, taking one last glance at the k
 
 ---
 
-Kipnu woke up in the darkness, cold from the death of the fire and his clothes held to the damp. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from. He found some branches that were reserved for re-stoking the fire, and added the thicker ones to the fire, while he fashioned a handful of thinner ones into a makeshift torch. With the little bit of light from his torch, he followed the imprints of their feet until they disappeared at the treeline where thin leaves littered the ground and gave off a bittersweet aroma.
+Kipnu woke up in the darkness, cold from the death of the fire and his woven clothes holdnig fast to the damp. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from. He found some branches that were reserved for re-stoking the fire, and added the thicker ones to the fire, while he fashioned a handful of thinner ones into a makeshift torch. With the little bit of light from his torch, he followed the imprints of their feet until they disappeared at the treeline where thin leaves littered the ground and gave off a bittersweet aroma.
 
 The darkness of the beach was something he had anticipated, but the forest was of an entirely different class. The canopy was thick with leaves and branches, leaving very little light for ground-dwellers like him. He would have to track and plan his path: something he was wholly unprepared for. The stories of Ulukoma had painted a picture of a sprawling shanty town, with scarcely a mention of trees. But now was the time to focus; he carried the light into the towering forest, determined to find his new friends.
 
@@ -134,20 +134,26 @@ He turned around to find the child following his footsteps.
 
 "How do you know all this?"
 
-"This isn't my first time here."
+"This is my home."
 
 Kipnu was aghast imagining what this child's life might be like.
 
-"Where is your mother?"
+"Where is your mother?" he asked.
 
-Kipnu was confused, but then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kipnu's grasp with ease. Kipnu and the child began to run, but Kipnu struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kipnu grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kipnu's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kipnu. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
+"My mother is waiting."
 
-She grabbed him by the shirt and demanded, "What do you know of Linyu?!"
+"Waiting for what?"
 
-Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of Kipnu's terrified face and illuminating her own. Kipnu tried to wrestle free, but Setre drew her spear close to his neck.
+Kipnu looked into Linyu's eyes for answers, then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu flung himself around with his torch held high and caught the nose of a woman dressed in a robe of thick black kelp and woven reeds, her skin covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the torch, and removed it from Kipnu's hand with ease. The two began to run, but the dark made it hard to see and Kipnu tripped on a root after only a few steps. The woman ran after Linyu, but in a desparate effort to save hae, Kipnu grabbed the woman's legs. She stumbled to the ground along with the torch and her spear. Her body twisted itself, wrestling free from Kipnu's grasp in an instant, and she jumped forward to search for the child but the darkness and the leaves had veiled hae path. The mysterious woman stood frustrated for a few moments, then turned and ambled toward Kipnu with a furious look on her face, crushing the the torch under her bare foot.
 
-"Running is futile. Trust me, nobody here wants you dead."
+She pinned him to the ground, demanded, "How do you know Linyu?!"
+
+Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of his terrified face and illuminating her own. He tried to wrestle free, but she drew her spear to his neck, 
+
+"Don't run. The other guardians won't be so forgiving."
+
+She smirked, "Besides, nobody here wants you dead."
 
 She leaned in closer to his face and smirked at him.
 
-"They like their slaves alive."
+"We like our prey alive."
