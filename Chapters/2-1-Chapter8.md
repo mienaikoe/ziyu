@@ -106,25 +106,27 @@ Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would
 
 Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
 
-He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all hearts have a dark side, including her own.
+He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself.
 
 ---
 
-Kipnu woke up in the darkness, cold from the lack of a fire and clothes that were still a bit damp. _What time of day is it? Can hardly tell in the eternal twilight here_. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his cold and aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from, and then took some thicker branches from the pile to re-stoke the fire, saving a handful of thinner ones for his makeshift torch. The darkness was something he had anticipated, but he had never planned for the difficulties of surviving in the wild. The stories of Ulukoma had always painted to him a picture of a large prison, not a lawless forest island. But now wasn't the time to be frustrated about the past; he carried the light into the towering forest, determined to uncover its mysteries and secure nourishment for his new group.
+Kipnu woke up in the darkness, cold from the death of the fire and his clothes held to the damp. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from. He found some branches that were reserved for re-stoking the fire, and added the thicker ones to the fire, while he fashioned a handful of thinner ones into a makeshift torch. With the little bit of light from his torch, he followed the imprints of their feet until they disappeared at the treeline where thin leaves littered the ground and gave off a bittersweet aroma.
 
-The forest floor was covered with dried thin leaves and branches that had fallen from the canopy. Kipnu listened closely for signs of life as he tried his best to quiet his crunching underfoot. This was not a place for Throngia. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
+The darkness of the beach was something he had anticipated, but the forest was of an entirely different class. The canopy was thick with leaves and branches, leaving very little light for ground-dwellers like him. He would have to track and plan his path: something he was wholly unprepared for. The stories of Ulukoma had painted a picture of a sprawling shanty town, with scarcely a mention of trees. But now was the time to focus; he carried the light into the towering forest, determined to find his new friends.
 
-"There was a bonfire when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His memory of where the fire was foggy but he set out in the direction of Ulu, where he presumed the center of the island to be.
+Kipnu listened closely for signs of life as he attempted to quiet his rustling footsteps. This was not a place for people. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
 
-He came to a small clearing in the trees where he noticed a peculiar wrapping on one of them. It was made of thin rings of copper running around the trunk, forming a spiral, and oxidized to a sea green patina by the salt water in the air. On the top end of the spiral, the copper straightened out and stretched up the tree further than he could see. It looked to be for some strange tool that he couldn't fathom. He stopped to study them, running his hands and fingers against the wires, imagining all the strange things it might be used for.
+"There was smoke when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His understanding of Ulukoma was hazy at best but he set out in the direction of Ulu, where he presumed the center of the island to be.
+
+There was a small clearing in the trees where he noticed a peculiar ornament on one of them. It was made of thin rings of copper, forming a spiral, and oxidized to a sea green patina by the salt water in the air. On the top end of the spiral, the metal straightened out and entered the tree's trunk. It looked to be some strange tool that he couldn't fathom. He stopped to study them, running his hands and fingers against the wires, imagining all the strange things it might be used for.
 
 "Are you lost?" A voice suddenly called out.
 
 He turned around to find the child following his footsteps.
 
-"You've been following me?"
+"You've been following me?" Kipnu asked.
 
-"Yes. They know you're here."
+"Yes," thi said, "They know you're here."
 
 "Who?"
 
@@ -136,11 +138,7 @@ He turned around to find the child following his footsteps.
 
 Kipnu was aghast imagining what this child's life might be like.
 
-"Where are your parents?"
-
-"My father lives on the mainland. My nather lives here, and my mother..."
-
-"Lives here? What do you mean?"
+"Where is your mother?"
 
 Kipnu was confused, but then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu turned around quickly with his torch held high and caught the nose of a woman dressed in a robe of feathers and thin woven reeds, covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the fire, and yanked the torch from Kipnu's grasp with ease. Kipnu and the child began to run, but Kipnu struggled to see in the dark and tripped on a root after only a few steps. The woman ran after the child, but in a last ditch effort to save hae Kipnu grabbed the woman's legs and toppled her to the ground along with the torch. Her body twisted in an instant, wrestling free from Kipnu's grasp, and she jumped forward to search for the child but the darkness and leaves had veiled hae path. The woman stood frustrated for a few moments before turning her attention back to Kipnu. She walked toward him with a furious look on her face, crushing the torch under her bare foot.
 
