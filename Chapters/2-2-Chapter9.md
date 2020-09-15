@@ -6,29 +6,37 @@ In the rape scene or afterward, depict Setre as feeling disgusting a little bit
 
 ## Chapter 9
 
-Setre led Kipnu from behind, with the darkness playing the role of both binding and blindfold. Kipnu searched through the darkness to spot more of the patterns on tree branches as they approached the fire. The branches and patterns seemed to become much bigger as they went on. _Copper is so rare. What are they doing wrapping it around trees?_ As they approached the fire, he could hear the familiar sounds of civilization: wood chopping, steam pipes, but oddly very little conversation. As he got closer he realized almost everyone here was in kanosin withdraw just like his own group. He balked at the thought of what the social hierarchy here might look like. Clearly his new friend wasn't a working class junkie like the rest of them.
+Kipnu walked where Setre guided him, the darkness as his blindfold. He searched through the darkness for trails or landmarks as they approached the fire, but his eye wasn't attuned to the nuance of a forest. What he did notice was more of the strange copper baubles hanging from the trees whose trunks seemed to become much bigger as they went on. _Copper is so rare. Why are they attaching it to trees?_ As they approached the fire, he could hear the familiar sounds of civilization: wood chopping, fire crackling, food sizzling, but very little conversation. In the darkness was the constant, low-pitched murmur of some sort of gathering.
 
-"Who are these people?" He asked.
+The woman pushed him ever closer toward the noise and slowly he gathered the nature of this place. The fire was a behemoth, eating through branches as thick as his head. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and oven were cleverly situated mere steps away, with their own fires stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kipnu lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
 
-"Kano-heads. They're lowlifes who come for their sentence, work for a while, then leave."
+Of the nearly hundreds of people mulling about, each one had glassy eyes that glowed faintly blue, just like the kaln from the boat. He had seen patients like this before but never had he seen so many people under the power of kanosin in one place, and he wondered if they were kept like this on purpose; clearly his new friend was different.
+
+"Who are these people?" he asked.
+
+"The working class. They come here for the fix and work to earn it."
+
+"What do they do after their sentence is up?"
+
+"Most of them never left."
+
+Kipnu was incredulous, but was in no position to change a mind. He knew that the murmur had to be some other group of people.
 
 "What about the others?"
 
 "You'll see."
 
-The fire was a behemoth of heat eating through 10 logs at once. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and oven were cleverly situated mere steps away, with their own fires stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kipnu lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
+At the far side of the fire a giant yurt stood proud, painted in long strokes of ochre on the same thick kelp that made up the woman's coat. Kipnu could hear the noises of a nearly a thousand people inside of it.
 
-At the far side of the fire a giant yurt stood tall and proud, painted with the same luminous ink that was in the woman's skin. Kipnu could hear the noises of a nearly a thousand people inside of it.
-
-Setre took his shoulder and said, "In here, you stay close to me."
+The woman took his shoulder and said, "In here, you stay close to me."
 
 He nodded. He didn't really have a choice.
 
-Setre glanced into the yurt, and then turned her head back to him. "Also, what is your name and your occupation?"
+She glanced into the yurt, and then turned her head back to him. "Also, what is your name and class?"
 
-"Kipnu. I'm a doctor... why do you need to know that?"
+"Kipnu. But I don't know about class. I'm a doctor if that's what you mean... Why do you need to know this?"
 
-She looked him up and down again, surprised.
+She looked him up and down again as if her eyes hadn't seen him before.
 
 "I need to call you something when I introduce you."
 
