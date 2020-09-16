@@ -14,7 +14,7 @@ Setre sighed and looked down.
 
 "I had to save you first, Lin. It was–"
 
-"You. Promised." I glared at her, my face much closer to hers than I remember from standing under her before Lissa.
+"You. Promised." I glared at her, my face much closer to hers than I remember from standing under her before Shinna.
 
 She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand off.
 
@@ -62,7 +62,7 @@ Her voice had calmed to a cajole, "By talking to the people around you. We'll ne
 
 "You're just looking to shirk your responsibilities. Be honest, you didn't grieve when thi died."
 
-She raised her voice again, "I can't afford to grieve!" It was broken, and it was hurt, and I regretted what I had just said. 
+She raised her voice again, "I can't afford to grieve!" It was broken, and it was hurt, and I regretted what I had just said.
 
 With a loud thud of her spear against the ground, she lifted herself and stormed off toward the crowd, leaving me to my own thoughts. I looked out into the crowd of Heikoi and Ulukomai. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
@@ -196,7 +196,7 @@ She gaped, both astonished and deeply horrified. I stopped the rinsing and walke
 
 "I don't know," I said. A practiced lie, but a good one.
 
-I removed the syringe from the fire and looked closely at the tip. A film of char covered it, showing that it had been sanitized. I searched for the basket of syringes I had seen before and spotted it near to an old guardian of Lissa's who was tending to a famished skeleton of a throngia. But before I could move, Pomri took up my free hand and wrapped her own around it.
+I removed the syringe from the fire and looked closely at the tip. A film of char covered it, showing that it had been sanitized. I searched for the basket of syringes I had seen before and spotted it near to an old guardian of Shinna's who was tending to a famished skeleton of a throngia. But before I could move, Pomri took up my free hand and wrapped her own around it.
 
 "Come to Heiko with me," she pleaded under her breath. Her eyes had a fire to them I hadn't seen before: determined and brazen.
 

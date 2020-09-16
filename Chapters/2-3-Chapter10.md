@@ -4,9 +4,15 @@ Write Setre has caring about Linyu's life and future.
 
 ## Chapter 10
 
-A hand fell upon Kipnu's back and stayed there - intentional, not accidental. He looked up to see the chaos ahead of him, and turned to find the person behind. It was a maman with the same kelp clothing and a veil of dark green. Thi was looking at the crowd so as not to rouse suspicion.
+A hand fell upon Kipnu's back and stayed there - intentional, not accidental. He removed his hands from his ears and listened to the chaos around him. He turned toward the hand.
 
-"Stay low and walk ahead of me," thi said. He could almost place the voice. Thi paused for Kipnu, holding hae hand out slightly for him to take it. He had no reason to trust this phantom but was desperate for a way out, so he took hae hand and walked as slowly and quietly as he could. When they got behind Lissa, the veiled figure bent down to him and whispered, "Towards Ulu. Stop under the fallen tree. Run!", pushing Kipnu out of the yurt. He looked back for a second and saw nothing but a closed flap of blue black cloth. Naked, severely malnourished, and fighting a terrible sluggish headache, he made a break for some fallen tree he had never seen before in the darkest part of the island.
+"Hold still," a voice called from behind the hand. He could almost place the maman it came from. Thi grasped his arm firmly and pricked him with a needle. It jerked away as a reflex, and the maman let it go.
+
+"Trust me," thi said, and he steadied his hand for hae. Thi had the hand of a doctor, adept and confident, and the injection flowed smoothly into his veins. Slowly, he felt his eyesight returned and he saw the maman clearly. Thi had the same kelp clothing as the others and a mask around hae mouth made of thin woven vines. 
+
+Thi stood up and looked at the crowd so as not to rouse suspicion.
+
+"Stay low and walk ahead of me," thi said and held hae hand out slightly for him to take it. He had no reason to trust this maman but was desperate for a way out, so he took hae hand and walked slowly and quietly out from the crowd. When they got well enough away, the maman bent down to him and whispered, "Keep running toward Ulu and stop under the fallen tree. Run!", pushing Kipnu out of the pavilion. He looked back for a second and saw nothing but a closed flap of black cloth. Naked, hungry, and fighting a terrible sluggish headache, he made a break for some fallen tree he had never seen before in the darkest part of the island.
 
 _I've escaped! But surely they'll be after me soon._
 
@@ -14,7 +20,7 @@ The forest was darker here, but he found that somehow he could see better than y
 
 He came across another tree with a coil around its base. This time, the coil was polished and covered in sap, presumably from the tree it was wrapped around, and again one of the ends climbed the tree. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue on to the tree he was told of. About ten more steps, and he quickly found a wall of a giant fallen tree thrusting its behemoth roots toward the sky. He rested himself on the roots and gazed into the darkness from where he had fled.
 
-"Damn this cold," He whispered to himself. His body shivered but it could only find temporary relief. He tried retracing the events of last night in his head. He remembered inhaling something, and then feeling suddenly euphoric with Setre and Lissa on top of him. He felt a knot grow in his stomach and tighten both of his hearts. _Did I want it? Of course not, I'm bound... Maybe I did want it... want them... Do I belong here? Am I...corrupt?_
+"Damn this cold," He whispered to himself. His body shivered but it could only find temporary relief. He tried retracing the events of last night in his head. He remembered inhaling something, and then feeling suddenly euphoric with Setre and Shinna on top of him. He felt a knot grow in his stomach and tighten both of his hearts. _Did I want it? Of course not, I'm bound... Maybe I did want it... want them... Do I belong here? Am I...corrupt?_
 
 A headache had set in again, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered thi was being treated as he was, if Fajro was using hae life to bargain with the senate. Maybe Melna was having better luck with the senate, remaining her cool and composed self while the rest of the world teeters above a cliff of mindless panic. _Would they understand? Would they accept what I've done? What would I do if they didn't?_
 
@@ -66,13 +72,13 @@ Thi gently leaned into Linyu who reciprocated the gesture.
 
 "Many would have chosen Kanosin. You did the right thing."
 
-"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Lissa arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Lissa started forming a band of thugs, I knew that I could never win."
+"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Shinna arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Shinna started forming a band of thugs, I knew that I could never win."
 
 "Set as in Setre? Thi was with you?"
 
 "Oh yes.
 
-"Yes. she had been a child slave in Holrag, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Lissa came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
+"Yes. she had been a child slave in Holrag, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Shinna came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
 
 "So everything you came back for is gone."
 
@@ -212,7 +218,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 "I'm not your right-hand knight anymore. You have no idea what happened in the all the la'to you were gone. We all had to grow stronger because of your weakness."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Lissa could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a cesspool of addiction."
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Shinna could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a cesspool of addiction."
 
 "We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
 
@@ -224,7 +230,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 She regained hae composure and said, "Please... Tell me what happened."
 
-"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Lissa has removed all other tribes from the Great Pavilion and killed people in hae own tribe that thi suspected of espionage."
+"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Shinna has removed all other tribes from the Great Pavilion and killed people in hae own tribe that thi suspected of espionage."
 
 "Why didn't you take action to stop it?"
 
@@ -234,7 +240,7 @@ They both looked at each other, at a loss. Kipnu could see Casra's longing stare
 
 "Set... I'm sorry."
 
-"Don't be sorry, Cas," she said, "If I were anyone else, you would be sold to Lissa by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
+"Don't be sorry, Cas," she said, "If I were anyone else, you would be sold to Shinna by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
 
 Setre looked toward the entrance to the safehouse and called, "Kipnu!"
 
@@ -263,11 +269,11 @@ They looked on as the forest swallowed her cursed blue light, a living memory of
 
 Setre stopped, considering the idea, but then shook it off.
 
-"Nonsense," she said, "Lissa would be ahead at every step."
+"Nonsense," she said, "Shinna would be ahead at every step."
 
 "We have to be more invisible. More-"
 
-"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Lissa. Thi would give me my own tribe for your neck."
+"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Shinna. Thi would give me my own tribe for your neck."
 
 "And yet you are here alone, your spear dry and your speech soft."
 

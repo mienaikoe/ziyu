@@ -94,11 +94,11 @@ The people returned to talking, and Casra began to approach a fire when a man fr
 
 "Fate be gentle! Hahaha" He laughed to the wind as he reclined next to the fire. Thi shot hae eyes to him and stared, wondering what he could have been talking about. A young woman, quite a bit younger than him and dressed in a tight black robe, tugged on his arm to stop but he twisted free of her grasp and pushed her away.
 
-He stepped forward into the center and continued, "Casra, you fool. Lissa grants the wishes of those who earn the right to have them. These slaves, you call them, they're lazy and they're wicked. Lissa did what you were too weak to do."
+He stepped forward into the center and continued, "Casra, you fool. Shinna grants the wishes of those who earn the right to have them. These slaves, you call them, they're lazy and they're wicked. Shinna did what you were too weak to do."
 
 Casra had walked to the space that he was standing in, in between three fires. Thi saw the woman who had pulled on his arm approaching as well. Casra said to her, "It's okay," and she stopped and stood at a distance.
 
-"Ramne. How long ago was it when you betrayed me to peddle kano for Lissa? The wind told me you mysteriously left before your sentence was up, yet here you are again. Had enough of destroying lives and families?"
+"Ramne. How long ago was it when you betrayed me to peddle kano for Shinna? The wind told me you mysteriously left before your sentence was up, yet here you are again. Had enough of destroying lives and families?"
 
 "Ah, Casra, the rich kaln who couldn't lead a tribe to lunch. You know what I'm here for. And now that I've got you cornered, I imagine I'll be getting a sweet sweet bonus."
 
@@ -136,7 +136,7 @@ He was expressionless as he bound Casra's unfighting arms behind hae.
 
 "Thi won't be so disappointed when thi's higher than Ara."
 
-Kipnu clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Lissa. He winced at the thought of what Lissa might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, seeking pity from the ground, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
+Kipnu clenched his teeth as he saw the band of thugs whisk Casra off into the forest to bring hae to Shinna. He winced at the thought of what Shinna might do to hae. As they disappeared into the dark, he looked back at the crowd covering the shoreline. The woman who tried to stop Ramne was still amongst them, seeking pity from the ground, and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if afraid that what just happened might happen to them. He never asked for this, but now he found himself chasing a dream he had only just known for a person he had only just met, and it had become the most important thing to him.
 
 "I... am Kipnu," he said to the crowd, "And Casra is a dear friend."
 

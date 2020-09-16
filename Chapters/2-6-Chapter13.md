@@ -52,7 +52,7 @@ Thi went silent, and changed the subject.
 
 Thi paused, not having thought of that possibility.
 
-"Look," Kipnu said, "I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Lissa."
+"Look," Kipnu said, "I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Shinna."
 
 "He just likes hae for the money. He wouldn't touch me."
 
@@ -68,7 +68,7 @@ Thi paused, not having thought of that possibility.
 
     "We have an arrangement. We're both happy with it."
 
-    "What do you think he'll do the minute someone else comes along? What did he do to Casra when Lissa came along."
+    "What do you think he'll do the minute someone else comes along? What did he do to Casra when Shinna came along."
 
     Ginnu kept walking with hae head faced forward, and a pout on hae lips.
 
@@ -80,7 +80,7 @@ Thi paused, not having thought of that possibility.
 
     He sighed. "It's hard to explain."
 
-    They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and thinking about what sort of torture Lissa had planned for Casra.
+    They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and thinking about what sort of torture Shinna had planned for Casra.
 
     "Kipnu?" Linyu broke his silence for the first time since coming home.
 
@@ -148,7 +148,7 @@ She ignored him and forced her way between Ginnu and Linyu.
 
     Kipnu pleaded to her, "This is too much, Setre. Ginnu's done nothing to sow distrust."
 
-    "This is exactly how Lissa's spies work. They make you think they're on your side until they vanish one day and your enemies know everything about you. Thi already knows that I'm working with you. What have you told hae about?"
+    "This is exactly how Shinna's spies work. They make you think they're on your side until they vanish one day and your enemies know everything about you. Thi already knows that I'm working with you. What have you told hae about?"
 
     "A little about the listener things. Thi thought I was crazy."
 
@@ -208,7 +208,7 @@ She ignored him and forced her way between Ginnu and Linyu.
 
     He squatted down to her level and reset his focus, "Setre. When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
 
-    "Casra kept this plan from you because you were completely unexpected. You came out of nowhere, you saved Linyu, and got caught up in this war of secrets. But now when I look at you, leading a band of hundreds, picking up where Casra left; I can tell thi made the right choice to pull you out of Lissa's reach."
+    "Casra kept this plan from you because you were completely unexpected. You came out of nowhere, you saved Linyu, and got caught up in this war of secrets. But now when I look at you, leading a band of hundreds, picking up where Casra left; I can tell thi made the right choice to pull you out of Shinna's reach."
 
     "I would be honored, but I know thi only did it expecting I would help hae. There have been many times when I doubted hae vision and my role in it."
 
@@ -216,7 +216,7 @@ She ignored him and forced her way between Ginnu and Linyu.
 
     "I guess I can't complain then," he said.
 
-    "So, the plan. Casra had originally intended to be captured by Lissa in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Lissa's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Lissa, and she started by plucking you straight from under the Great Pavilion. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
+    "So, the plan. Casra had originally intended to be captured by Shinna in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Shinna's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Shinna, and she started by plucking you straight from under the Great Pavilion. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
 
     He stood up and faced the wall adjacent to the ladder.
 
@@ -238,7 +238,7 @@ She ignored him and forced her way between Ginnu and Linyu.
 
     "Well... no."
 
-    "Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Lissa could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Great Pavilion, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
+    "Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Shinna could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Great Pavilion, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
 
     "That's brilliant, but how can I transmit from trees?"
 
@@ -264,7 +264,7 @@ She ignored him and forced her way between Ginnu and Linyu.
 
     "Looking for hae?"
 
-    "It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Lissa hid hae somewhere I don't know about."
+    "It's rare for us to have a prisoner - most are just drugged and then they obey. But when Casra arrived, Shinna hid hae somewhere I don't know about."
 
     "Where do you suppose they hid?"
 

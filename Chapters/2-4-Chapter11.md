@@ -1,8 +1,8 @@
 <!--
   Cas teaches Kipnu about radio,
     ( It annoys me that Lin is just a background character so far. )
-  Casra secretly plans with Setre to be taken to Lissa as a martyrdom
-  A sound is broadcast to people with coils, and they start a mutiny against Lissa. Lissa and Casra are killed in the action.
+  Casra secretly plans with Setre to be taken to Shinna as a martyrdom
+  A sound is broadcast to people with coils, and they start a mutiny against Shinna. Shinna and Casra are killed in the action.
     Set mourns over hae. Lin is vengeful to Set. Kipnu mourns from a distance, feeling a bit guilty for being an intruder.
     Casra says hae last words to them and talks about a better future - Kipnu is reminded that hae death will be for nothing unless he does something to stop the ice age.
     Kipnu hears messages about Liffa from Holrag and listens to hae fear on the radio.

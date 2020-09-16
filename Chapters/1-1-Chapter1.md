@@ -72,33 +72,33 @@ She responded, "Oh nothing. Just an observation."
 
 I could hear the lie. Why would she lie?
 
-"If there's something you know-"
+I suggested to her, "If there's something you know-"
 
 "-I wouldn't be able to tell you anyway."
 
-She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the clay-orange sash of a Heiko fidelant around her robe.
+She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the mauve-dyed waist belt of Heiko around her fidelant robes. I remembered dying the belt in Pohua, worrying about the consistency and the fastness. I knew all of its imperfections, but Melna didn't seem to mind.
 
-"The farmers... we have a responsibility, you know. If a wind current drift is happening, we need to know so we aren't caught by an early-"
+"The farmers have a responsibility, you know," I tried again to persuade her, "If a temperature drift is coming, we need to know so we aren't caught by an early-"
 
-"Liffa... I've already told you all I that I know. I will learn more when I attend today's vote."
+"Liffa... I've already told you all that I know. If I had evidence of drift, I would tell you."
 
-She was a stone wall of secrets. I was unsatisfied, but it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
+She was a stone wall of secrets, and I was unsatisfied until I could break through. But it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
 I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your family."
 
 She looked at me through the mirror for a moment, searching for motives in a face of none.
 
-"You will know soon," she said coldly.
+"I don't have time for this," she said coldly.
 
-I let out a frustrated sigh and made my way to the doorway of her room.
+I let out a frustrated sigh and made my way to the doorway of her room. 
 
-"Liffa..."
+Before I could leave, she said, "Liffa..."
 
-I stopped.
+I stopped without turning.
 
-"Don't tell Kipnu about this."
+"Don't tell Kipnu."
 
-I continued.
+I left.
 
 ---
 

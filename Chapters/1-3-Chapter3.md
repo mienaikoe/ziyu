@@ -184,17 +184,21 @@ I gathered my bag onto my shoulders, and stood near the doorway as they looked o
 
 "Good luck, Liffa," said Jesse, somberly.
 
-"Don't get murdered," said Thimlu.
+"Don't get yourself killed," said Thimlu.
 
 ---
 
-"Aey? Kipnu?" I called as I entered his office. He chirped sleepily from a back room and I followed the call.
+"Aey? Kipnu?" I called as I entered the clinic. He chirped sleepily from a back room and I followed the call. I came to the doorway and watched him for a moment. His sleepy face always made me swoon no matter how silly it looked.
 
-"Hey I'm sorry to wake you but I need to talk."
+"Hey," I interrupted myself, "I'm sorry to wake you but I need to talk."
 
-He shuffled around, looking confused, then pulled a light from his pocket and slid it onto the power rails above him. His sleepy eyes were still partially covered by his eyehaw.
+He shuffled around the cot, looking confused, then looked up at my shadow in the doorway.
 
-"Liffa? Oh, you surprised me. What brings you here?"
+"Liffa, that you?"
+
+He pushed himself up and took a moment to wake up. Then he pulled a lightglass from his pocket and slid it onto the power rails above him. His sleepy eyes were still partially covered by his eyehaw.
+
+"You surprised me. What brings you here?"
 
 "I'm going on a trip to the capital."
 

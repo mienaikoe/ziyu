@@ -21,7 +21,7 @@
 			- He peaks under the tent cover and sees unwounded bodies on the ground around the tent, and Setre + team with a cloth around their mouths pulling them out.
 			- He gets a cloth around his mouth and goes to help them
 			- "WHERE HAVE YOU BEEN?!"
-			- Setre tells him that Casra and Lissa fled to the northern shore and that the battle was
+			- Setre tells him that Casra and Shinna fled to the northern shore and that the battle was
 			- Lin interrupts them asking for help getting down
 			- Setre goes for Linyu, Kipnu goes for Cas and Lis
 
@@ -33,7 +33,7 @@
 
     Kipnu paused the group in their quiet walk toward the Great Pavilion, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him. Huddled to his right was Ginnu, untied and shivering from the cold.
 
-    "From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same. We will only be able to see things from above, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If any one of Lissa's guardians gets a hold of one, they will be able to predict our movements so don't let this happen. And finally, we are not here to kill, we are here to intimidate Lissa into giving up. Even if we have all of the weapons on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
+    "From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same. We will only be able to see things from above, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If any one of Shinna's guardians gets a hold of one, they will be able to predict our movements so don't let this happen. And finally, we are not here to kill, we are here to intimidate Shinna into giving up. Even if we have all of the weapons on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
 
     "Yea," they said in a broken unison.
 
@@ -418,9 +418,9 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     "She's dead," a maman's voice came from behind him. Kipnu jumped out of surprise and looked around for the source.
 
-    "Have you come to kill me too, Kipnu?" Lissa asked.
+    "Have you come to kill me too, Kipnu?" Shinna asked.
 
-    Kipnu lunged, but Lissa was faster with hae dodge, and Kipnu fell to the ground. Before he could get up, thi drew hae dagger to his neck.
+    Kipnu lunged, but Shinna was faster with hae dodge, and Kipnu fell to the ground. Before he could get up, thi drew hae dagger to his neck.
 
     "Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
 
@@ -438,13 +438,13 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     "And you under Ara are not guilty of the same? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into an addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
 
-    <!-- TODO: Change this, as Lissa should not be livid but nonchalant since nobody can die -->
+    <!-- TODO: Change this, as Shinna should not be livid but nonchalant since nobody can die -->
 
     Thi leaned in close to him and wrapped hae hand around his throat.
 
     "You think we're broken. A derailed train bumbling around in the dark. I'll tell you what we are. We tried to make the only home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. Nobody here can have a shred of fucking happiness."
 
-    Thi took hae hand away from Kipnu's neck and he gasped for air between tears and cries of pain. Lissa rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
+    Thi took hae hand away from Kipnu's neck and he gasped for air between tears and cries of pain. Shinna rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
 
     "Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
 
@@ -458,7 +458,7 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     Thi looked over at him, and for the first time showed some doubt.
 
-    They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Lissa's pale-cold face. Thi reached for the pipe from Kipnu and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
+    They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Shinna's pale-cold face. Thi reached for the pipe from Kipnu and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
 
     Thi set the blade in hae own left palm and stared at the blood.
 
@@ -476,9 +476,9 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     Thi turned back to him, "Kipnu. Remember that nobody dies in the darkness." A pause punctuated the air and did nothing to help Kipnu understand.
 
-    Lissa lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
+    Shinna lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
 
-    He immediately looked out toward the water, and glanced back to find Lissa walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
+    He immediately looked out toward the water, and glanced back to find Shinna walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
 
     *The water is... warm?* He was slightly disconcerted at the warmth amidst the faint tickles of bluekelp as he swam past, as if the ocean itself had come alive and he was headed straight into its belly. The frail villi-like stalks bent and swayed to his movements, their light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear voices amongst the static in his listener, but he ignored it and kept searching.
 
