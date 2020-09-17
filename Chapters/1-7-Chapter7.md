@@ -206,25 +206,29 @@ Kipnu and the magistrate turned to him to hear more.
 
 I replied immediately, "I am not inclined."
 
-"Hold on, Liffa, let me finish. You would be working with our engineers to send a spacecraft up and figure out what we're dealing with. It would take no more than a la'tova, then you can head back home to Heiko."
+"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a la'tova, then you can head back home to Heiko."
 
-I retorted, "And what use would a farmer be to scientists?"
+I retorted, "What use would a farmer be to scientists?"
 
 "An ex-engineer, you mean."
 
 I was aghast. How could he possibly know that?
 
-"Melna told me about your family's land trust, how you gave it all up for the family business. Honorable. In addition to your hidden talents, you would be a fantastic liaison between our engineers and the observers in Heiko, as you've had experience with them."
+"I know how you gave up your aspirations for the family business. Honorable, but such a waste of talent."
 
-I thought of Jesse, wondered if they were messing with him as well. Fajro had a convincing argument, but I remembered what Melna said about him.
+He was looking straight at me now, with a sincerity that was unmistakeable.
 
-"I don't trust you. You could do anything with me and get away with it," I said.
+"I've seen your eyes. The blood of Holrag is within you. It's been calling since you were born. You must have studied with the observers just to imagine your own _nul sa'am_ to the stars. This journey was meant for you."
 
-"Sure, you can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either." 
+I thought of Jesse, surmised they would need his help to get a vehicle up there and back down again, but I wondered what would convince him. Then I remembered what Melna said about Fajro: his words were a cover for his actions.
+
+"I don't trust you. You could do anything with me," I said.
+
+"You're right. You can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either." 
 
 He took a step closer and I stepped back.
 
-"Think of it this way," he explained. "If something were to harm the you under my watch, the Heiko fidelant's maman, the selfless hero-messenger, it would be disastrous for Holrag and our entire project. You will surely be in safe hands. A few days on the frontlines of civilization is surely much better than whatever you would get in Ulukoma."
+"Think of it this way," he explained. "If something were to harm the you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be disastrous for our entire project. You will surely be in safe hands. A few days on the frontlines of our very species is surely much better than whatever you would get in Ulukoma."
 
 The magistrate butted in, "I believe that Fajro's suggestion would be a fitting alternative and that the state would see more use in applying you to the problem than sending you someplace where you mindlessly twiddle your thumbs in the cold.."
 

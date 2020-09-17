@@ -62,7 +62,7 @@ Thi held up glowing blue syringe to Kipnu and encouraged him to take it. He took
 
 "Stop struggling!" she commanded, tightening her grip. Shinna was licking the rim of his ear while still holding a dagger to his neck.
 
-Setre moved the syringe to his upper arm, and punctured vein, finishing the injection quicker than any he had ever done. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Shinna lowered it, saying "There you go, my little Heikoi doctor. You'll start to feel it."
+Setre moved the syringe to his abdomen, and punctured an artery, finishing the injection quicker than he realized. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Shinna lowered it, saying "There you go, my little Heikoi doctor. You'll start to feel it."
 
 He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immovable, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
 
@@ -90,25 +90,29 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
 
-"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Shinna's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him in its depths.
+"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Shinna's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him.
 
 "Kipnu! Get up!" A voice called to him from behind the fabric. It was Setre.
 
-She burst into the room, in full armor and spear, and didn't hesitate to pull Kipnu up to his feet. He opened his eyes and saw nothing. But he knew it was daytime – it shouldn't be this dark.
+She burst into the room, in full armor and spear, and didn't hesitate to pull Kipnu up to his feet. The blood suddenly rushed out of his head and he swayed to and fro to gain his balance amidst the piercing pain in his head. His eyes were open yet he still saw nothing, not even the blue light from Setre's chest.
 
 "It's time to go," she said in a hurried tone.
 
 He pushed her away with what little strength he had.
 
-"What happened to me?" he shouted at her.
+"What happened to me?" he shouted at her, holding his head in agony.
 
-"The kanosin will wear off" she said, some trouble in her voice. "Nevermind that, you have to come out right now."
+"The kanosin will wear off" she said, some trouble in her voice. 
+
+"I need more... make it stop."
+
+"Nevermind that, you have to come out right now."
 
 "No," he responded harshly.
 
 She pulled her spear on him, and he swatted it away.
 
-"How do you threaten a man who's lost everything?" He asked rhetorically.
+"How do you threaten me at a time like this?" He asked rhetorically.
 
 With a flick of the wrist, she made a shallow slice through a fatty part of his hip, making Kipnu shout in pain.
 
@@ -122,7 +126,7 @@ She sighed and pulled out a cloth wrapping from her sling bag and threw it at hi
 
 "You won't be talking."
 
-She left the room, leaving a still-bleeding Kipnu to bandage himself. He bandaged the wound the way he had done for many of his patients, but it was markedly more difficult to do it for himself. Once bandaged, he realized that he was still freezing and without clothing. _This must be some initiation or something. I can't just leave, I have nowhere to go._ He stood himself up and walked to the entryway, reaffirming his own existence before he went into the next room.
+She left the room, leaving a still-bleeding Kipnu barely standing. He bandaged the wound the way he had done for many of his patients, but it was markedly more difficult to do it for himself in such a state. Once bandaged, he realized that he was still freezing and without clothing. _This must be some initiation or something. I can't just leave, I have nowhere to go._ He stood himself up and walked to the entryway, reaffirming his own existence before he went into the next room.
 
 The room had nearly hundreds of people forming two lines that surrounded Shinna and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was some prize. _Why is everyone here? What are they looking at me for?_
 

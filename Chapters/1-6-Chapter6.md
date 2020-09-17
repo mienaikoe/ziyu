@@ -190,7 +190,7 @@ When he had finally closed the door on his way out, Melna came in closer to me a
 
 "I didn't know..." I said.
 
-"Fajro is a conniving, manipulative bastard. Do not listen to anything he says."
+"Fajro's words may be sweet, but he is a conniving, manipulative bastard. Do not listen to anything he says."
 
 "But then why would he help me?"
 
