@@ -56,7 +56,7 @@ The child murmured, "m-m-mh," but hae mother calmed hae down.
 
 "Casra," thi said abruptly, but warmly.
 
-"It's a miracle your kaln made it. This is resilient."
+"It's a miracle your kaln made it. Thi's resilient."
 
 Casra nodded in quiet agreement and kept hae arms and legs wrapped around the child while thi watched the smolders turned to flames and then fire. Slowly their shivers settled and their wet clothes dried. The whole group was huddled closely around the fire now, squatting and staring at the only light in this place.
 
@@ -78,7 +78,7 @@ He smiled to himself - he was pondering the same thing.
 
 "So..." he asked, "How did you wind up here?"
 
-"If you don't mind, I'd prefer to ask you first."
+Thi hesitated. "If you don't mind, I'd prefer to ask you first."
 
 "Yes... of course." he said, embarassed.
 
@@ -88,9 +88,9 @@ He smiled to himself - he was pondering the same thing.
 
 Casra laughed until thi noticed that Kipnu wasn't.
 
-"You're not joking about that?" thi asked.
+"You're not joking about that, are you?" thi asked.
 
-He continued, "So I get angry, and pin him against a wall, and I tell him, politely, to fuck off. Magistrate walks in, sentences me on the spot."
+He continued, "I got angry... and I pinned him against a wall. Told him, politely, to fuck off. Magistrate walks in, sentences me on the spot."
 
 "Oh. That... must be a long story," thi said.
 
@@ -100,7 +100,7 @@ Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would
 
 "So how about you?" he asked. "Hope it's a bit less complicated."
 
-"It's...well I suppose it's a story best told somewhere more quiet."
+"It's...well I suppose it's a story best told elsewhere."
 
 "Sure."
 

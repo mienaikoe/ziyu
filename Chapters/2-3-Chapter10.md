@@ -18,59 +18,75 @@ _I've escaped! But surely they'll be after me soon._
 
 The forest was darker here, but he found that somehow he could see better than yesterday. Perhaps it was the light of the blue marking from the injection, or his eyes adjusting to an eternal nighttime. It was still quite difficult to look for fallen trees in such a dense forest. He made a point to listen more intently for places where a breeze would whistle across the bark. Maybe a fallen tree would likely sound a bit different, he thought.
 
-He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky. Against the roots, he rested himself and gazed into the darkness from where he had fled.
+He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
 
-"Damn this cold," He whispered to himself. His body shivered but it could only find temporary relief. He tried retracing the events of last night in his head. He remembered inhaling something, and then feeling suddenly euphoric with Setre and Shinna on top of him. He felt a knot grow in his stomach and tighten both of his hearts. _Did I want it? Of course not, I'm bound... Maybe I did want it... want them... Do I belong here? Am I...corrupt?_
+"Damn this cold," He whispered to himself. He curled up into himself, his body shivering from exposure, but it was only temporary relief. He tried retracing the events of last night in his head. He remembered Setre injecting something into him, and a feeling of panicked euphoria. A knot grew in his stomach. _All my dreams... Did I want it? No, what am I saying..._ 
 
-A headache had set in again, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered thi was being treated as he was, if Fajro was using hae life to bargain with the senate. Maybe Melna was having better luck with the senate, remaining her cool and composed self while the rest of the world teeters above a cliff of mindless panic. _Would they understand? Would they accept what I've done? What would I do if they didn't?_
+A different kind of headache had set in, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered if thi was being treated well, if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained cool and composed when the rest of the world teetered above a cliff of mindless panic. He loved that about her. 
+
+_Would they understand? Would they accept what I've done?_
+
+_Maybe I do belong here..._
 
 Behind him, Kipnu heard quiet and quick footsteps approaching. He quickly got up to his feet and ducked behind a tree, waiting for the footsteps to approach before he decided his next move.
 
-"Kipnu," the maman called, quietly. He could faintly see the silhouette of the one who approached him. It was that same familiar voice of the veiled figure, but the veil had been removed. He looked closer at hae and finally recognized who it was.
+"Kipnu," the maman quietly called him. 
 
-"Casra?"
+He could faintly see the silhouette of the one who had helped him. It was that same familiar voice of the veiled figure, but the veil had been removed and he recognized who it was.
+
+"Casra?" He whispered to hae.
 
 Kipnu was immeasurably relieved to see a familiar face, even if only an acquaintance.
 
-Thi said, "Kipnu, you've made it! Come now, under the fallen tree."
+"Kipnu, you've made it!" thi said. "Come now, under the fallen tree."
 
-They walked no more than 50 paces before coming to the base of a massive tree that had been uprooted almost a la'to ago. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time. Casra descended into the dimly-lit depths below and beckoned Kipnu to follow hae. Once inside, Kipnu could see a small lantern being lit by a small maman. He squatted down, both to cover himself and to gain some warmth. Casra had already prepared him a set of kelp cloths and helped him into them.
+They walked no more than fifty paces before coming to the base of a massive tree with another copper coil on it. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time, beckoning for Kipnu to follow hae down into the warmly-lit space below. He looked around and saw a home. A sort of cooking area to the left, a large bed at the far end, and a hand-made table in the center where Linyu was lighting a third lantern. He squatted down in reflex to cover himself, but Casra had already prepared him a set of kelp cloths and stood at the entrance helping him get into them. He found them quite warm – warmer than he suspected.
 
-"Lin, grab some ankan from the cupboard."
+"Lin, grab some paosin from the cupboard."
 
 The kaln rose to fulfill hae mother's request and chimed, "Hi Kipnu. Thank you for saving me."
 
-"Hey there..." he said as nicely as he could in the circumstances. A wave of pain from the night before began to swell and he clutched his forehead and closed his eyes.
+"Hey there..." he said as nicely as he could in the circumstances. 
 
-Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
+A wave of pain began to swell up again and he clutched his forehead and closed his eyes. Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
 
-He did as she told and immediately winced.
+He did as she told and immediately winced at a stinging sensation covering his tongue.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Lin eying the shiny pendant around his neck. After a minute, the stinging went away along with his headache and his mental haze.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Lin eying the shiny pendant around his neck. The stinging went away after a minute, along with the recurrence of his headache.
 
-"It's... gone. What is that stuff?" he asked.
+"The pain... it's gone. What is paosin?" he asked.
 
-"Ankan. It stops the pain of kanosin withdraw," Casra responded.
+"Back at the pavilion, I gave you antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdraw," Casra responded.
 
-"I see. Is that what they were smoking last night?"
+"I see," he said. The substances were familiar to him but he had never had the experience of taking them.
 
-"Yes... unfortunately. I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here together yesterday, on your boat, but we used to live here for many ma'to before."
+"I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here with you yesterday, but we used to live here many ma'to before."
 
-Linyu handed Kipnu a square wooden bowl of some sort of fish stew, and he eagerly took it and started eating without pause. Linyu was surprised and awkwardly took a seat next to hae mother.
+Linyu handed Kipnu a wooden bowl of some sort of fish stew, and he eagerly took it with gratitude and started eating.
 
 In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
-"I spent three ma'to here. My journey here began like most people here - a slave and a kanosin addict. The stuff is produced here by slave labor and then smugglers bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was a Kanosin addict, I was a doctor - one of the best in Rudjan. I would often see addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I underestimated the importance of an external motivator and I was unable to pull out of it."
+"I spent three ma'to here at a dark time of my life. My journey began like most Ulukomai - a slave and a kanosin addict. The stuff was produced here by slave labor and then smugglers would bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was an addict, I was a doctor - one of the best in Rudjan. I would often see kanosin addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I vastly underestimated its power and I was unable to pull out of it."
 
 "You were the cause of your own suffering."
 
-"Yes. I lost my junds and my kaln, and I was sent here as punishment. About a ma'to after, my ex-junds decided that they didn't want any reminders of the bond we shared, so they sent Lin to live with me. I... had just a glimpse of consciousness when I saw Lin for the first time in so long. I felt immense shame for who I had become. There was only one choice for me: sober up and be the mother I couldn't be before. There were many days when I felt the feverish hand of death upon me, but Lin watched over me, kept me hydrated, kept me accountable."
-
-Thi gently leaned into Linyu who reciprocated the gesture.
-
-"I owe my life to hae," thi said.
+"Yes. I lost my junds, and I was sent here as punishment. About a ma'to after, Linyu was born to a guardian who was convinced I was the mother. I felt... just a glimpse of reality when I saw hae for the first time. An immense feeling of shame washed over me: for who I had become, for how far I had fallen, and for how my kaln might see me. There was only one choice: I had to be the mother thi needed. So I begged her to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but Setre watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
 
 "Many would have chosen Kanosin. You did the right thing."
+
+Linyu gently leaned into hae and thi reciprocated the gesture.
+
+"I didn't do it alone," thi said. "I owe my life to her and Linyu."
+
+"I met Setre. Didn't think she'd secretly be a softy."
+
+"She cares for those she feels indebted to. The Holragi instill this sense into all their children."
+
+*Well... not all of them,* he thought.
+
+"So what happened then?" he asked, taking another spoonful.
+
+<!-- left off -->
 
 "That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Shinna arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Shinna started forming a band of thugs, I knew that I could never win."
 

@@ -14,9 +14,9 @@ The magistrate re-entered the room while the cell guard held Kipnu's hands behin
 
 "Hah, you got it."
 
-He turned to Kipnu and said, "Kipnu. I hope that one day you might join us to prepare for the trials ahead. Until then, may Ulu quench the rage that poisons the good of your consciousness."
+He turned to Kipnu and said, "Kipnu. I hope that one day you might join us to prepare for the trials ahead. Until then, may Ulukoma quench whatever poison plagues your consciousness."
 
-"Take your self-righteous trash to a real criminal."
+"You think people actually listen to your self-righteous trash?"
 
 The magistrate simply sighed and walked out the door. Rante shoved Kipnu back into the dark room of cells and locked him in a cell next to Liffa.
 
@@ -24,18 +24,22 @@ The magistrate simply sighed and walked out the door. Rante shoved Kipnu back in
 
 "We won't be needing an escort."
 
-"You sure? Liffa broke into the senate, and people are certainly willing to knock you around over hae."
+"You sure? Liffa broke into the senate. and I'm sure people might certainly try what Kipnu did."
 
-"I'm sure. The trouble is over."
+"I'm positive. The trouble is over."
 
 "Suit yourself. You're free to take hae whenever. Here's the key, and I've got armchains in the other room if you need them."
 
 "Thank you, sir. That will be all," said Fajro, accepting the key, and Rante rushed back to his desk.
 
-Kipnu sat still and silent while Liffa walked over to his side of hae cell and quietly placed hae hand on his shoulder. He flinched, but let hae continue, and they stayed like that for several va'sa, crying into the stone floor polished with countless Ka'To of tears.
+Kipnu sat still and silent while I shifted the corner of hae cell closest to him and stuck my hand out of the little window, tapping on the wall for him to do the same. He shifted in his cell and then I felt his hand touch mine. It was cold and at first I wasn't sure if it was him, but I could feel the textures and shapes were the same and it broke my heart.
 
-"I will be back," Liffa said.
+"You will come back," I said, "I know you will."
 
-"I will be waiting," Kipnu said.
+"I will be waiting," Kipnu said, "Wherever you land, I'll be there."
 
-With slow and deliberate movement, Liffa stood up and turned toward Fajro, staring at him as if to ask if he was ready. Fajro stood up and without speaking he opened hae cell door. Liffa stepped out and hesitated by Kipnu's door in contemplation. With his lantern, Fajro reached for Liffa's arm for stability, and they stepped out together into the light, leaving Kipnu in the darkness.
+For several va'sa we held on like this, our tears falling into the stone floor where innumerable people before us had to face whatever shred of justice lived here in Shaki. Then, with a slow and deliberate movement, I let go and stood up. I turned toward Fajro, staring at him as if to ask if he was ready. Fajro stood up and without speaking he opened hae cell door. My feet led me out of the cell and next to Kipnu's arm, still hanging in the air out of the single porthole window of his cell. I knealt down and took his palm onto my head, felt the warmth trickle back into it.
+
+"I love you," I whispered.
+
+I stood back up, my fingers lingering on his, and looked to Fajro, who was getting ready to move. With his lantern in one hand and a cane in the other, Fajro gestured to hae and together, they stepped into the light, leaving Kipnu in the darkness.
