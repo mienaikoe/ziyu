@@ -70,25 +70,39 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
 "You were the cause of your own suffering."
 
-"Yes. I lost my junds, and I was sent here as punishment. About a ma'to after, Linyu was born to a guardian who was convinced I was the mother. I felt... just a glimpse of reality when I saw hae for the first time. An immense feeling of shame washed over me: for who I had become, for how far I had fallen, and for how my kaln might see me. There was only one choice: I had to be the mother thi needed. So I begged her to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but Setre watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
+"Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but they would try to uplift the addicted. Shinna changed all that, bastardized all of the traditions that kept this place livable for the addicted."
 
-"Many would have chosen Kanosin. You did the right thing."
+"I noticed... a class hierarchy back at the pavilion."
 
-Linyu gently leaned into hae and thi reciprocated the gesture.
+"Shinna was a chemist in Shaki who somehow stumbled upon an antidote for Kanosin. Then thi came here with hae stockpile of antikan, and instead of giving it to us, thi used it as leverage to gain power over me. Now the upper class use it to get high at night and by morning they're back to normal."
 
-"I didn't do it alone," thi said. "I owe my life to her and Linyu."
+"Wait, gain power over you? So you were a leader here?"
 
-"I met Setre. Didn't think she'd secretly be a softy."
+"Yes. One of three that formed a council of sorts. I was pushing for Ulukoma to become an independent province when I was ousted."
 
-"She cares for those she feels indebted to. The Holragi instill this sense into all their children."
+"How did you go from an addict to the leader of Ulukoma?"
 
-*Well... not all of them,* he thought.
+"That's a long story," thi smiled and looked into hae mind, thinking of a better time.
 
-"So what happened then?" he asked, taking another spoonful.
+"I like long stories," he said. "They get me invested."
+
+Thi laughed, and paused to prepare haeself.
+
+"I guess I'll start where I left off. You remember I mentioned traditions. One of the traditions we used to have was the evening. It used to be a time of storytelling, singing, confessing of love, public mediation. Anyone could stand up and say or do anything they wanted. Then some would group up and explore their sexualities together before sleep, and others would just sleep if they weren't ready. The evening was a place and time where people weaved their lives together and apart and together again, and everyone grew closer to each other because of it. I had been under the addiction, but I had the faculty to understand their words and feel the love of a tribe more deeply than I knew of my junds."
+
+"On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, felt hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
+
+"Setre..." Kipnu said hesitantly, "She's a guardian now, right?"
+
+"Yes... she does what she must to maintain power among the guardians. Shinna pits them against each other for who can bring in the best people. But she still cares deeply for those she loves."
+
+"So how did you become this great leader?"
+
+"I told you this was a long story," thi said with a smirk.
 
 <!-- left off -->
 
-"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Shinna arriving here. Thi had been a chemist and botanist in Yansha, and somehow had stumbled upon an antidote for Kanosin, the same one I've given you. Instead of giving it to people in need, thi created a stockpile and used it as leverage against them. Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Shinna started forming a band of thugs, I knew that I could never win."
+"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Shinna arriving here.  Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Shinna started forming a band of thugs, I knew that I could never win."
 
 "Set as in Setre? Thi was with you?"
 
