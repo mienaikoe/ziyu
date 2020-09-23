@@ -94,41 +94,47 @@ Thi laughed, and paused to prepare haeself.
 
 "Setre..." Kipnu said hesitantly, "She's a guardian now, right?"
 
-"Yes... she does what she must to maintain power among the guardians. Shinna pits them against each other for who can bring in the best people. But she still cares deeply for those she loves."
+"Yes... Linyu told me about what happened to you. She does what she must to maintain power among the guardians. Shinna pits them against each other for who can bring in more people."
 
-"So how did you become this great leader?"
+"She sounds nothing like the person I met last night."
 
-"I told you this was a long story," thi said with a smirk.
+"I know this is hard to believe, but she is careful with her words, and she wouldn't harm anyone unless she thought they were a threat."
+
+Kipnu was starting to have his doubts, but there were still more questions quavering about in his mind.
+
+"So what did happen? How did you become the exiled leader of an island prison."
+
+"I told you this was a long story," thi said with a smirk. "When I was in Rudjan, working with Kanosin patients, I saw myself as just one of many doctors who were pursuing this goal. But after Ulukoma, my life's work became deeply personal and unique. I felt addiction, knew it deeply, like a relationship I wanted so badly to get out of but couldn't. And it was all around me in Ulukoma, affecting almost everyone I knew and had come to love. When I got sober, I could have just left this place - my sentence was long up. But these people were my family now, so for the next Ma'Tova I worked with each one of them to make it out of addiction. The ones that made it swore to me the lives I had given back to them, and learned my methods.
+
+"And then Shinna arrived. Many who fought so hard to break their addiction were seduced by the concept of antikan as a way to 'cheat' on their sobriety, but they never saw a drop. Others just wanted to feel superior over everyone else. Shinna made many empty promises and built an empire on the backs of their labor. Setre never gave up fighting for me and our tribe, grew impatient with my insistence on a peaceful resolution. She was right, of course, and at the end of it she forced me to leave to keep Linyu safe. I promised Setre I would return one day when Linyu was old enough, and I made her swear to me that she would keep the council alive. That day was yesterday. But when Linyu told me thi saw her in the forest, holding you down and taking you away, I knew it was over."
+
+"Why did you come back?" asked Kipnu. "Why would you risk the life of you and your child to be in a place like this?"
+
+"I'm not a child!" said Linyu, getting up from hae chair. Casra took hae hand to calm hae.
+
+"Our people are still here. Linyu's nather is still here. Every person that lived here had a bond to everyone else. Raising children, falling in love, building the village – everything was done with tremendous trust in each other. We accepted our divisions, our arguments; by working through them we accomplished great things. I cannot simply go back to being a Rudjani doctor as if this island wasn't a part of me. I cannot abandon my people to a careless mogul. This is where I belong."
+
+"You speak of them like they're your family."
+
+Thi sighed and paused to think. 
+
+"Do you care about your junds, Kipnu?" thi asked.
+
+He hesitated, now aware of the pendant around his neck.
+
+"Yea," he said. "Of course."
+
+"Would you ever abandon them?"
+
+"No."
+
+"This is the same feeling. It takes time."
+
+He was silent, trying to find words to explain the disconnect in his mind, but the explanation eluded him.
+
+Casra became curious. "Your junds," thi said. "Tell me about them."
 
 <!-- left off -->
-
-"That struggle left an indelible mark on me. My life's work had become deeply personal and I resolved to help the rest of my tribe out of addiction and out of slavery. For the next Ma'Tova I built each one of them into a functional, social, living ex-addict and they swore to me the lives I had given back to them. My tribe became the largest and most powerful in Ulukoma and we were happy, but I would never had imagined someone like Shinna arriving here.  Many of my own people gave into hae manipulation and fell back into addiction. For those thi wanted to keep slaves, thi simply refused the antidote, while keeping kept her loyalists blissful and healthy by giving them single doses every night as a reward. When kanosin didn't work, thi used money from Kanosin sales to lure my people and turn them against me. My closest friend, Set, never gave up fighting for me and our tribe but once Shinna started forming a band of thugs, I knew that I could never win."
-
-"Set as in Setre? Thi was with you?"
-
-"Oh yes.
-
-"Yes. she had been a child slave in Holrag, toiling for hours to keep the iron furnaces hot. When she was still just a child, she escaped to Shaki and searched for a place to call home, but could never trust anyone long enough to settle down. She came to Ulukoma willingly, not as an addict or criminal, but a warrior looking for a purpose, and somehow she found it in me. To be honest, I don't remember how we met. Kanosin has a way of erasing your memories. But somehow in those grueling days of fighting the addiction, I had come to trust her. We became... close. Very close... But then Shinna came onto the scene, and Set grew impatient with my insistence on a peaceful resolution. When Lin and I left this island, I promised Set I would return one day, and I made her swear to me that she would keep our tribe alive. But yesterday, when Lin saw Set in the forest, holding you down and taking you away, I knew she had given up."
-
-"So everything you came back for is gone."
-
-"My people are still here. Drugged and enslaved. I can't go back to being a doctor. This is where I belong - in the dark, making a home for the forgotten."
-
-"That's quite noble of you," Kipnu said.
-
-"I came back because this is my home. Every member of my tribe had a bond to the entire tribe. Raising children, falling in love, building the village – everything was done with tremendous trust in the entire tribe. We accepted our divisions and our arguments and despite them, we accomplished so many things."
-
-"I don't think I could ever trust that many people."
-
-"It comes with time."
-
-He nodded in understanding, and then thi turned the conversation to him.
-
-"Do you trust your family, Kipnu?"
-
-He hesitated. "Yea, of course."
-
-Thi became curious. "Tell me about them," thi said.
 
 "Liffa was... is... everything good in my life. To the rest of Heiko thi is just a farmer, but they don't see hae like we do. Liffa holds us together, but there's this cloud of self-doubt that hangs above hae always. She doesn't pick up on affirmations."
 
