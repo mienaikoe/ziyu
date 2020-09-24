@@ -40,9 +40,9 @@ Kipnu was surprised, "What are we doing now?"
 
 The air had picked up and become colder than before. Kipnu considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. _Mel... What ire does your day bring? Will you take me back?_
 
-Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. The trinket was a ring of coiled copper with a few beads attached to it and a big flap of metal hiding another smaller coil and cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand - not the huge metal monstrosities he had imagined them to be.
+Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with.  - not the huge metal monstrosities he had imagined them to be.
 
-Thi handed the listener to Kipnu and told him, "This is my newest one. Don't go and break it."
+Thi handed the listener to Kipnu and told him, 
 
 Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
 
@@ -60,19 +60,11 @@ Thi left an area clear where Casra had cleared away the leaves and opened anothe
 
 Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
 
-Kipnu was confused. "How?" He asked, "I mean we learned electricity in medical, but... I thought you needed wires for that."
 
-"I was confused at first too, but it works. Imagine that we live at different sides of an unclimbable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them. But what might be easier is if we set a time to talk, and you put your ear to the rock while I knocked on it with a hammer from the other side."
 
-"Ok, I think I follow."
 
-"Now imagine if you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
 
-"Ok yea... but how is that a metaphor for these invisible voices?"
 
-"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
-
-"Ahh, I see," Kipnu said, only half understanding.
 
 "Come over here, Kipnu," Casra said. Thi took the listener from Kipnu and held it up to the light from the bluekelp.
 

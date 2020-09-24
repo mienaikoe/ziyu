@@ -186,19 +186,13 @@ He paced around the small area between the table and the entryway.
 
 "I have to go. I have to find Liffa."
 
-He walked to the entryway ladder and contemplated leaving, but they both knew he had nowhere to go. Casra didn't follow him, but spoke before he could place a hand on the ladder.
+He walked to the entryway ladder and contemplated leaving. Casra didn't follow him, but spoke before he could place a hand on the ladder.
 
-"Kipnu, you're a good man. You deserve to leave here. But right now, that's not possible. Everyone on this island is looking for you. You could steal a boat, but these waters are patrolled by bounty hunters just looking for reason to kill. We need to make the most of where we are."
+"Kipnu," she said his name to stop him. "You're a good man. I know you don't really belong in Ulukoma. But right now, leaving isn't possible. Everyone on this island is looking for you. You could steal a boat, but the waters between here and the mainland are patrolled by bounty hunters just looking for reason to kill. We need to make the most of where we are."
 
-"And what, hide here forever?"
+"And what, hide here forever? No. I have to leave now," he placed a foot on the ladder and continued his momentum upward. Thi sighed and got up to follow him outside with Linyu close behind.
 
-"Until your sentence is up."
-
-"No. I have to leave now," he said with a foot on the ladder.
-
-Thi sighed and got up to follow him outside with Linyu close behind.
-
-Kipnu kept shaking his head, unwilling to accept what was being said. This was all just a minor excursion from the boring path of their lives. Right?
+Kipnu kept shaking his head, unwilling to accept what had happened. This was all just some minor excursion. Shinna and Setre were just dreams. From the Kanosin. He wasn't really a fugitive. Right?
 
 "Kipnu," said Casra. "What's on your mind?"
 
@@ -206,15 +200,15 @@ Kipnu kept shaking his head, unwilling to accept what was being said. This was a
 
 "I've done enough talking, I suppose it's natural to want to digest it all."
 
-Thi turned to go back inside, but he interjected, "Wait...can you stay...in case some guardians or whatever come here?"
+Thi turned to go back inside, but he interjected, "Wait...can you stay...in case some guardians or whatever show up?"
 
 Thi looked amused, but humored him. "Okay then. I'll wait with you."
 
-He sat awkwardly, repeating what Casra said in his mind, checking for himself if there were any ways to convince fate to change its mind. He was distracted by the two pairs of eyes peering at him.
+He sat awkwardly, replaying the events of the previous night, repeating what Casra said in his mind. He imagined different scenarios to convince fate to change its mind, but found nothing. Distracted, he noticed the two pairs of eyes peering at him the whole time.
 
 "I can't think with you staring at me," he said.
 
-"Sorry," Casra explained, "I didn't want a guardian to come whisp you away when I wasn't looking."
+"Sorry," Casra explained, "I didn't want a guardian to come whisk you away when I wasn't looking."
 
 "Very funny."
 
@@ -222,31 +216,41 @@ Thi paused, thinking, and then said, "I have something to show you."
 
 "I'm not in the mood to see anything."
 
-"It'll just be a moment," thi said, already getting up. Linyu, sensing what his mother meant, ran in front of hae. Together, they cleared the ground underneath a modestly-sized tree, and inspected a coil that had been affixed to it. Linyu produced two wooden contraptions from hae pocket, handing one to Casra and the other too Kipnu. His eyes were drawn to this curiosity that Linyu held in front of him and he took it reluctantly.
+"It'll just be a moment," thi said, already getting up. Linyu, sensing what his mother was doing, ran in front of hae. Together, they cleared the ground underneath a modestly-sized tree, and inspected a coil that had been affixed to it. Linyu produced two wooden contraptions from hae pocket, handing one to Casra and the other too Kipnu. His eyes were drawn to this curiosity that Linyu held in front of him and he took it reluctantly. There was a ring of coiled copper with smaller beads around it and a larger cylindrical metal bead in the middle. They were all fastened to a small wooden plate that was smaller than his hand, carved from the trunk of a tree.
 
-"Setre told me once that they have these coils on some of the trees in Holrag. She wanted me to figure out what they're for."
+"This is my newest one. Don't break it," thi said. He nodded in confirmation, not sure if he knew how not to break it.
 
-"Did you figure it out?" he asked, his curiosity growing.
+Casra began, "Setre told me once that they have these coils on some of the trees in Holrag. She wanted me to figure out what they're for."
 
-"Linyu and I tried different size coils and attached different things to the ends of it until one time it vibrated ever so slightly. Like there was some voice speaking to us."
+"What does this have to do with anything?" he asked.
+
+Thi ignored his question and continued.
+
+"Linyu tried different size coils and attached different things to the ends of it until one time it vibrated ever so slightly. Like there was some voice speaking to us."
 
 "A message? Come on, it's a tree."
 
 "This tree is a sort of... conduit. It sends and receives messages encoded in the air. Who sends them? I don't know. But my guess is on the Holragi."
 
-"So you're saying the Holragi can just talk to each other through trees? You realize how ridiculous this sounds?"
+"So the Holragi can talk to each other through trees? You realize how ridiculous that sounds?"
 
-"This is why you must listen," said Casra. Linyu lifted the wooden instrument to his ear, hanging it carefully over his head, and instantly, he heard the fanit sound of noise. But behind it a pulsing, rhythmic pattern began to emerge, and the sound of a voice encoded with it.
+"This is why you must listen," said Casra. Linyu lifted the wooden instrument to his ear, hanging it carefully over his head, and instantly, he heard the fanit sound of noise. But behind it a pulsing, rhythmic pattern began to emerge, and the sound of a voice encoded within it.
 
-"It's a voice" he asked, and Casra shrugged. "But the words. They're unintelligible."
+"It's a voice" he exclaimed. His mind had turned in an instant. "But the words. They're unintelligible."
 
-"Whoever is sending those signals is far. But if the speaker is near..."
+"Those signals are coming from a place far, far away. But if the speaker is near..."
 
-thi turned toward the coil with a piece of metal in hae hand and spoke into it. Like a ghost in his own mind, a muffled version of hae voice pierced the noise and entered his head.
+Thi turned toward the coil with a piece of metal in hae hand and spoke into it, "they can be heard as though they were standing right next to you," and like a ghost in his own mind, hae voice pierced the noise and entered his head in its muffled timbre.
 
-"They can be heard as though they were standing right next to you."
+Kipnu was confused. "How?" He asked, "I don't understand."
 
+"I was confused too, at first, but it works," said Casra. "Imagine that we live on different sides of an unsurmountable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them, or we could carve a hole in the wall and speak through that. But what might be easier is if you put your ear to the wall while I knocked on it from the other side. If something could knock quickly enough it would sound like a person's voice. Now imagine if you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
 
+"So... the tree wood... knocks on what exactly?"
+
+"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
+
+"Ahh, I see," Kipnu said, only half understanding.
 
 
 
@@ -262,8 +266,6 @@ Kipnu noticed Linyu's face, turning more worried with the second. Thi was old en
 
 Casra looked down at Linyu, and leaned in to hug hae. Thi looked back at Kipnu and said, "It's fine. It's better to face reality prepared, than to live in willful ignorance."
 -->
-
-
 
 
 
