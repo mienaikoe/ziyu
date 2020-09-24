@@ -248,7 +248,7 @@ Kipnu was confused. "How?" He asked, "I don't understand."
 
 "So... the tree wood... knocks on what exactly?"
 
-"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it."
+"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it. The wind speaks, as we say."
 
 "Ahh, I see," Kipnu said, only half understanding.
 
