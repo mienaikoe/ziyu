@@ -84,14 +84,7 @@ He turned and walked into the dark with the listener at his ear. He glanced back
 
 Hae voice began with a single tone, chanting in a steady beat. At first it was quiet, muddied by reverberations and echoes, barely audible through the static. But with every new beat, the thunderous reverberations re-aligned, gradually coalescing to single signal, until at once, Kipnu could hear hae as if hae voice were coming from inside his own head. Thi began singing on top of the beat as if a lone voice stood next to him while a choir of thousands continued chanting from the treetops.
 
-<!-- TODO: This song is pretty cringey -->
 
----
-
-    A little fish, swimming down below,
-    A little bird, floating up above,
-    With Ara's light filling up the sky,
-    It's you who fills our lives with love.
 
 ---
 

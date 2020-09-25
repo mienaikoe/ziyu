@@ -240,21 +240,58 @@ Thi ignored his question and continued.
 
 "Those signals are coming from a place far, far away. But if the speaker is near..."
 
-Thi turned toward the coil with a piece of metal in hae hand and spoke into it, "they can be heard as though they were standing right next to you," and like a ghost in his own mind, hae voice pierced the noise and entered his head in its muffled timbre.
+Thi turned toward the coil with a piece of metal in hae hand and spoke into it, "they can be heard as though they were standing right next to you," and like a ghost in his own mind, hae voice pierced the noise and entered his head in its muffled timbre. The sound echoed and reverberated off of some unseen pattern of walls in the ether.
 
 Kipnu was confused. "How?" He asked, "I don't understand."
 
-"I was confused too, at first, but it works," said Casra. "Imagine that we live on different sides of an unsurmountable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them, or we could carve a hole in the wall and speak through that. But what might be easier is if you put your ear to the wall while I knocked on it from the other side. If something could knock quickly enough it would sound like a person's voice. Now imagine if you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
+"I was confused too, at first, but it works," said Casra. "Imagine that we live on different sides of an unsurmountable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them, or we could carve a hole in the wall and speak through that. But what might be easier is if you put your ear to the wall while I knocked on it from the other side. If something could knock quickly enough it would sound like a person's voice. Now imagine you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
 
 "So... the tree wood... knocks on what exactly?"
 
-"All the universe. The air, the trees, the ground. They're all permeated by this invisible wall. If someone knocks, you need only put your ear to it. The wind speaks, as we say."
+"All of the universe. The darkness, the light; the soil beneath us, and the sky above us. This invisible wall permeates everything. If someone knocks, you need only put your ear to it. The wind speaks, as we say."
 
-"Ahh, I see," Kipnu said, only half understanding.
+"Ahh I see," he said, not quite understanding. "I admit I'm impressed by this technology, but why did you want to show me this?"
+
+"When I was a councilmaman here, and people made the decision to leave the tribe and return to their lives on the mainland, I would give them a listener and every night I gave them an update on life in Ulukoma. For me, it was a way to let them know that they would always have a home under Ulu."
+
+Thi took his hand and spoke to him earnestly.
+
+"There are many dangers in this place, Kipnu. And we may get separated at some point. This listener and the speaking trees will be your lifeline to us in case you or I need help."
+
+Kipnu was feeling tense at her words. He looked at Linyu for some sign that things were not as dangerous as hae mother was saying, but thi also had a serious look.
+
+"Look, I know to stay away from guardians and I can handle myself in a fight."
+
+"Setre found you only paces away from the treeline, and subdued you without one."
+
+He flushed with frustration, "I was thoroughly into those woods."
+
+Linyu smirked, knowing exactly how many paces he had gone.
+
+"It's just a precaution," said Casra. "May I?"
+
+Thi took his empty bowl and placed it in a basin, pushing hard on an adjacent lever to produce water. He wondered where that water came from, but his mind could no longer bear a word of new knowledge. A sleepy look appeard on Linyu's eyes, an he acknowledged it in himself as well.
+
+Casra, without looking, said, "Unfortunately we only have one bed for Linyu and I"
+
+"The floor is good," he said. "I like the floor."
+
+
 
 
 
 <!-- left off -->
+
+<!-- They go to sleep with the lullaby -->
+
+<!-- TODO: This song is pretty cringey -->
+
+A little fish, swimming down below,
+A little bird, floating up above,
+With Ara's light filling up the sky,
+It's you who fills our lives with love.
+
+
 
 
 
