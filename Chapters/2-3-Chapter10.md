@@ -20,9 +20,9 @@ The forest was darker here, but he found that somehow he could see better than y
 
 He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
 
-"Damn this cold," He whispered to himself. He curled up into himself, his body shivering from exposure, but it was only temporary relief. He tried retracing the events of last night in his head. He remembered Setre injecting something into him, and a feeling of panicked euphoria. A knot grew in his stomach. _All my dreams... Did I want it? No, what am I saying..._ 
+"Damn this cold," He whispered to himself. He curled up into himself, his body shivering from exposure, but it was only temporary relief. He tried retracing the events of last night in his head. He remembered Setre injecting something into him, and a feeling of panicked euphoria. A knot grew in his stomach. _All my dreams... Did I want it? No, what am I saying..._
 
-A different kind of headache had set in, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered if thi was being treated well, if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained cool and composed when the rest of the world teetered above a cliff of mindless panic. He loved that about her. 
+A different kind of headache had set in, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered if thi was being treated well, if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained cool and composed when the rest of the world teetered above a cliff of mindless panic. He loved that about her.
 
 _Would they understand? Would they accept what I've done?_
 
@@ -30,7 +30,7 @@ _Maybe I do belong here..._
 
 Behind him, Kipnu heard quiet and quick footsteps approaching. He quickly got up to his feet and ducked behind a tree, waiting for the footsteps to approach before he decided his next move.
 
-"Kipnu," the maman quietly called him. 
+"Kipnu," the maman quietly called him.
 
 He could faintly see the silhouette of the one who had helped him. It was that same familiar voice of the veiled figure, but the veil had been removed and he recognized who it was.
 
@@ -46,7 +46,7 @@ They walked no more than fifty paces before coming to the base of a massive tree
 
 The kaln rose to fulfill hae mother's request and chimed, "Hi Kipnu. Thank you for saving me."
 
-"Hey there..." he said as nicely as he could in the circumstances. 
+"Hey there..." he said as nicely as he could in the circumstances.
 
 A wave of pain began to swell up again and he clutched his forehead and closed his eyes. Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
 
@@ -70,7 +70,7 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
 "You were the cause of your own suffering."
 
-"Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but they would try to uplift the addicted. Shinna changed all that, bastardized all of the traditions that kept this place livable for the addicted."
+"Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but they would try to uplift the addicted. Shinna changed all that, bastardized all of the traditions that kept this place livable for the addicted. Now death and addiction hang in this place."
 
 "I noticed... a class hierarchy back at the pavilion."
 
@@ -116,7 +116,7 @@ Kipnu was starting to have his doubts, but there were still more questions quave
 
 "You speak of them like they're your family."
 
-Thi sighed and paused to think. 
+Thi sighed and paused to think.
 
 "Do you care about your junds, Kipnu?" thi asked.
 
@@ -164,7 +164,7 @@ Kipnu was confused at the question.
 
 "Out with it," he said, clearly agitated. "Go on, you want to say something, say it."
 
-"The people who come here leave behind lives full of relationships. They invent new worries to keep themselves attached to the people they left behind. They think themselves irreplaceable, but then they return home to find that the world they left behind had been replaced. The grand personas they were building before had vanished, and some... just can't adjust. They placed their faith in the lives they knew, rather than the lives they were living. 
+"The people who come here leave behind lives full of relationships. They invent new worries to keep themselves attached to the people they left behind. They think themselves irreplaceable, but then they return home to find that the world they left behind had been replaced. The grand personas they were building before had vanished, and some... just can't adjust. They placed their faith in the lives they knew, rather than the lives they were living.
 
 "By deciding not to come here, Melna has decided to continue her own life on its own trajectory – and all the better that she doesn't suffer for your rash decision. So what I'm asking is," and thi leaned forward to look closely into his eyes, "do you trust your junds to do what's best for themselves, even if it means leaving you behind?"
 
@@ -180,7 +180,7 @@ He placed the bowl down and paced around angrily.
 
 "Kipnu, a man like you doesn't get sent here for nothing. You throw one punch in your life, maybe two. And you mean it. This space thing, whatever it is made you worried for your maman's life. So you must know there's a chance thi doesn't come back. Just as there's a chance that you won't come back."
 
-"No. No no." 
+"No. No no."
 
 He paced around the small area between the table and the entryway.
 
@@ -234,41 +234,55 @@ Thi ignored his question and continued.
 
 "So the Holragi can talk to each other through trees? You realize how ridiculous that sounds?"
 
-"This is why you must listen," said Casra. Linyu lifted the wooden instrument to his ear, hanging it carefully over his head, and instantly, he heard the fanit sound of noise. But behind it a pulsing, rhythmic pattern began to emerge, and the sound of a voice encoded within it.
+"This is why you must listen," said Casra. Linyu lifted the wooden instrument to his ear, and at first he heard nothing.
 
-"It's a voice" he exclaimed. His mind had turned in an instant. "But the words. They're unintelligible."
+"Silent, right?" thi said. "Listen closer."
 
-"Those signals are coming from a place far, far away. But if the speaker is near..."
+He focused his mind and listened closer to the faint static that entered his ear and a pulsing, rhythmic pattern began to emerge. It had the sound of a man's voice within it, in a tone like nothing he had ever heard before.
 
-Thi turned toward the coil with a piece of metal in hae hand and spoke into it, "they can be heard as though they were standing right next to you," and like a ghost in his own mind, hae voice pierced the noise and entered his head in its muffled timbre. The sound echoed and reverberated off of some unseen pattern of walls in the ether.
+"A voice" he exclaimed. His mind had turned in an instant. "But the words. They're unintelligible."
+
+"Those signals are new, coming from a place far, far away," thi explained. "Normally we couldn't hear them on account of the trees making all sorts of noise. But they've gone silent as of late."
+
+Thi turned toward the coil with a piece of metal in hae hand and spoke into it, "But if the speaker is near, they can be heard as though they were standing right next to you," and like a ghost in his own mind, hae voice pierced the noise and entered his head in its muffled timbre. The sound echoed and reverberated off of some unseen pattern of walls in the ether.
 
 Kipnu was confused. "How?" He asked, "I don't understand."
 
-"I was confused too, at first, but it works," said Casra. "Imagine that we live on different sides of an unsurmountable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them, or we could carve a hole in the wall and speak through that. But what might be easier is if you put your ear to the wall while I knocked on it from the other side. If something could knock quickly enough it would sound like a person's voice. Now imagine you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them all to listen to the wall?"
+"I was confused too, at first," said Casra. "Imagine that we live on different sides of an unsurmountable wall. We can't see or hear each other, but I know you exist, and you know I exist. We could talk by throwing rocks with messages carved in them, or we could carve a hole in the wall and speak through that. But what if, instead, you put your ear to the wall while I knocked on it from the other side. And now imagine that I had a machine - something that knocks so quickly that it sounds like a person's voice. Now imagine you wanted to tell a hundred people something. Would you rather throw a hundred rocks, or tell them to listen to the wall?"
 
-"So... the tree wood... knocks on what exactly?"
+"So... those coils... they're the machines you were talking about?"
+
+"The trees are the machinery. The coils and the metal beads merely carry our voices."
+
+"And the wall is...?"
 
 "All of the universe. The darkness, the light; the soil beneath us, and the sky above us. This invisible wall permeates everything. If someone knocks, you need only put your ear to it. The wind speaks, as we say."
 
-"Ahh I see," he said, not quite understanding. "I admit I'm impressed by this technology, but why did you want to show me this?"
+"Ahh I see," he said, not quite understanding. "I'm impressed, honestly I am, but why did you want to show me this?"
 
 "When I was a councilmaman here, and people made the decision to leave the tribe and return to their lives on the mainland, I would give them a listener and every night I gave them an update on life in Ulukoma. For me, it was a way to let them know that they would always have a home under Ulu."
 
 Thi took his hand and spoke to him earnestly.
 
-"There are many dangers in this place, Kipnu. And we may get separated at some point. This listener and the speaking trees will be your lifeline to us in case you or I need help."
+"There are many dangers in this place, Kipnu. And we may get separated at some point. Linyu and I made a home from this hole in the ground long ago, and this listener is how we kept track of each other and warned each other of danger. It was our lifeline to each other, and now we are inviting you to join us."
 
 Kipnu was feeling tense at her words. He looked at Linyu for some sign that things were not as dangerous as hae mother was saying, but thi also had a serious look.
 
-"Look, I know to stay away from guardians and I can handle myself in a fight."
+"Look, I know to stay away from guardians. I can handle myself in a fight. I don't mean to disappoint you but I'm planning to leave as soon as I can."
 
-"Setre found you only paces away from the treeline, and subdued you without one."
+"Linyu told me about what happened in the forest. Setre captured you only paces away from the treeline?"
 
 He flushed with frustration, "I was thoroughly into those woods."
 
 Linyu smirked, knowing exactly how many paces he had gone.
 
-"It's just a precaution," said Casra. "May I?"
+"Maybe you're on your way out. Maybe you'll be gone by the end of the day," said Casra. "Either way, take this with you. Maybe you'll hear us and remember us when you're back at home."
+
+He fumbled for some response, then acknowledged that he had been rash to dismiss hae offer.
+
+Sensing his turnaround, thi held up the device and asked, "May I?"
+
+"Sure," he said, bending his ear toward hae to fasten it. The metal of the coil was cold to his ear, but it quickly turned warm with the heat of his head.
 
 Thi took his empty bowl and placed it in a basin, pushing hard on an adjacent lever to produce water. He wondered where that water came from, but his mind could no longer bear a word of new knowledge. A sleepy look appeard on Linyu's eyes, an he acknowledged it in himself as well.
 
@@ -276,6 +290,6 @@ Casra, without looking, said, "You two should get some rest. I'll keep watch."
 
 Linyu got up and walked toward the bed.
 
-"The floor is good," he said to himself, settling into a space underneath the table. "I like the floor."
+"The floor is good," he said to himself, settling into a space underneath the table.
 
-Linyu fetched him a pillow, filled with what he presumed was old dried leaves. To his surprise, it was comfortable, and the ground was warmer than it should have been in such a cold place. He settled into his spot, felt his heavy eyes folding over his eyehaw, and listened as the sounds of Casra's movements settled near Linyu. Casra's voice mulled over the walls in a soft hum, painted them with the words that lay behind them. The words that Linyu knew. The words that Kipnu didn't need to.
+Linyu fetched him a pillow, filled with what he presumed was old dried leaves. To his surprise, it was comfortable, and the ground was warmer than it should have been in such a cold place. He settled into his spot, felt his heavy eyes folding over his eyehaw, and listened as the sounds of Casra's movements settled near Linyu. Casra's voice mulled over the walls in a soft hum, painted them with the words that lay behind them. Words that Linyu already knew. Words that Kipnu didn't need to.

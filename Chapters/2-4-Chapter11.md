@@ -1,5 +1,5 @@
 <!--
-  Cas teaches Kipnu about radio,
+  Casra teaches Kipnu about radio,
     ( It annoys me that Lin is just a background character so far. )
   Casra secretly plans with Setre to be taken to Shinna as a martyrdom
   A sound is broadcast to people with coils, and they start a mutiny against Shinna. Shinna and Casra are killed in the action.
@@ -28,10 +28,6 @@
 
 ## Ch11
 
-
-
-<!-- left off -->
-
 <!--
 
 Kipnu noticed Linyu's face, turning more worried with the second. Thi was old enough to know what an ice age meant, but not quite old enough to know how to handle that knowledge.
@@ -41,33 +37,37 @@ Kipnu noticed Linyu's face, turning more worried with the second. Thi was old en
 Casra looked down at Linyu, and leaned in to hug hae. Thi looked back at Kipnu and said, "It's fine. It's better to face reality prepared, than to live in willful ignorance."
 -->
 
-He rushed over to the chimney to set his bowl down where theirs had been and turned to go back out but a faint sound of rustling leaves echoing through the chimney perked his ears up. He motioned to them to stay quiet and they all listened as the footsteps approached their dug-in shelter.
+A rustling sound awoke him from his slumber.
 
-"Someone's here," he whispered.
-
-Casra hurried Linyu over to their hay bed in the corner of the room, and pulled out two steel-tipped poles from under it, tossing one to Kipnu.
+"Someone's here," Casra whispered. From underneath their bed where Linyu slept, thi pulled out two steel-tipped wooden poles and handed one to Kipnu on hae way toward the ladder.
 
 "I'll go first," thi said.
 
-Kipnu watched as Cas went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu cowering in the corner under a blanket.
+Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and cowering in the corner under a blanket.
 
 "Stay here," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
 
 The figure in the dark had an unmistakable spear - Setre was here.
 
-"Cas. You've come back?", she asked in a bewildered tone. "Are you holding Kipnu here? Don't lie to me."
+"Casra. You've come back?", she asked in a bewildered tone. "Are you holding Kipnu here? Don't lie to me."
 
 "So what if I am?"
 
-"I captured him. He is property of our tribe, you know this."
+"I captured him. He is property of our tribe. You know this."
 
-"People cannot be property. Set, who have you become?"
+"People cannot be owned, Setre. I thought you were better than this."
 
-"I'm not your right-hand knight anymore. You have no idea what happened in the all the la'to you were gone. We all had to grow stronger because of your weakness."
+"I'm not your right-hand anymore. You have no idea what happened in the all the time you were gone. What we had to do to survive."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Shinna could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a cesspool of addiction."
+"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Shinna could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a hive of addiction."
 
-"We needed you, and you left right as everything was falling apart. Now you come back and expect me to have picked up the pieces by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
+"We needed you, Casra," she said, raising her voice. "We needed you and you left right as everything was fell apart."
+
+"You forced me out!"
+
+"I sent you off this island to get Linyu to safety. I waited and waited for you to come back, but you never did. Now you expect me to have picked up your mess all by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
+
+<!-- left off -->
 
 "I understand. And Ramne?"
 
@@ -87,7 +87,7 @@ They both looked at each other, at a loss. Kipnu could see Casra's longing stare
 
 "Set... I'm sorry."
 
-"Don't be sorry, Cas," she said, "If I were anyone else, you would be sold to Shinna by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
+"Don't be sorry, Casra," she said, "If I were anyone else, you would be sold to Shinna by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
 
 Setre looked toward the entrance to the safehouse and called, "Kipnu!"
 
@@ -95,7 +95,7 @@ He went up the ladder and walked out to meet them, with Linyu not far behind. Th
 
 Kipnu leaned to Casra and asked, "You were bound?". Thi confirmed with a nod.
 
-Setre lifted herself back up and said to Kipnu, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Cas."
+Setre lifted herself back up and said to Kipnu, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Casra."
 
 He looked at her in a different light now. His fear for her had been mostly replaced with reverence, though the little bits of it had lingered in an animalistic sense of survival.
 
@@ -109,12 +109,6 @@ Setre responded, "Ulu listens!"
 
 They looked on as the forest swallowed her cursed blue light, a living memory of Ara wandering in the darkness.
 
-
-
-
-
-
-
 <!--
 
 
@@ -126,11 +120,11 @@ Setre stopped, considering the idea, but then shook it off.
 
 "We have to be more invisible. More-"
 
-"We? Cas, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Shinna. Thi would give me my own tribe for your neck."
+"We? Casra, I never said anything about joining you. You're lucky I didn't come with a band of warriors to take you and your kaln to Shinna. Thi would give me my own tribe for your neck."
 
 "And yet you are here alone, your spear dry and your speech soft."
 
-Kipnu had never seen such a formidable spirit. In the face of capture Cas retained every thread of hae conviction.
+Kipnu had never seen such a formidable spirit. In the face of capture Casra retained every thread of hae conviction.
 
 Setre removed her spear and held it to Casra's neck. Thi didn't flinch as they both stared each other down.
 
@@ -155,10 +149,8 @@ He pleaded to hae, "This is what you want? To give up?"
 
 "I'm not giving up. ," thi replied.
 
-Casra set hae kaln down and bid hae run off to Kipnu, but Linyu stood still, unwilling to accept that hae mother was leaving. Kipnu's heart was full of rage at Casra's fate and he willed to do all in his power to save Cas while he was here.
+Casra set hae kaln down and bid hae run off to Kipnu, but Linyu stood still, unwilling to accept that hae mother was leaving. Kipnu's heart was full of rage at Casra's fate and he willed to do all in his power to save Casra while he was here.
 -->
-
-
 
 "Lin, fetch a listener and some bluekelp," Casra requested.
 
@@ -172,9 +164,9 @@ Kipnu was surprised, "What are we doing now?"
 
 The air had picked up and become colder than before. Kipnu considered telling Casra about the obstruction of Ara, and the oncoming ice age. He had been keeping it a secret from these people for so long, but he could never find a good time to bring it up - it would only get in the way. _Mel... What ire does your day bring? Will you take me back?_
 
-Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with.  - not the huge metal monstrosities he had imagined them to be.
+Linyu emerged with a small circular wooden trinket and a handful of bright blue sea plants - a color exactly matching the glowing lines that Setre had marked herself with. - not the huge metal monstrosities he had imagined them to be.
 
-Thi handed the listener to Kipnu and told him, 
+Thi handed the listener to Kipnu and told him,
 
 Kipnu said "Got it," and then Linyu went to hae mother to spread the plants all around the tree.
 
@@ -191,12 +183,6 @@ Thi left an area clear where Casra had cleared away the leaves and opened anothe
 "That was a joke," thi said again. Kipnu chuckled but still was looking for an answer.
 
 Casra chimed in, "That box is a transmitter. You speak into the box and it modulates-... it puts your voice onto the air for all who are listening."
-
-
-
-
-
-
 
 "Come over here, Kipnu," Casra said. Thi took the listener from Kipnu and held it up to the light from the bluekelp.
 
@@ -215,8 +201,6 @@ Kipnu could barely understand what thi was talking about, but was eager to learn
 He turned and walked into the dark with the listener at his ear. He glanced back once to find Casra still watching him and telling him to keep going. He stopped after he was pretty sure he had walked fifty paces, and squatted down to listen closer. The forest he had thought silent was now full of static as heard it through the listener. Little clicks and pops would wander into the signal and he pondered how they came to be there. _Are the trees talking to each other?_ And then from the device on his ear, he heard the faint noise of a maman clearing hae throat. _Casra?_
 
 Hae voice began with a single tone, chanting in a steady beat. At first it was quiet, muddied by reverberations and echoes, barely audible through the static. But with every new beat, the thunderous reverberations re-aligned, gradually coalescing to single signal, until at once, Kipnu could hear hae as if hae voice were coming from inside his own head. Thi began singing on top of the beat as if a lone voice stood next to him while a choir of thousands continued chanting from the treetops.
-
-
 
 ---
 

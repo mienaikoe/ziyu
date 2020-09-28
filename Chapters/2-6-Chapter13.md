@@ -118,7 +118,7 @@ He followed behind them and waited until they entered, but before he could climb
 
 Setre barely jumped off the ladder when she started talking again.
 
-"Cas' plan is working, but I need you to–... Oh hey Linyu," she said, surprised at seeing hae face in the lantern light.
+"Casra' plan is working, but I need you to–... Oh hey Linyu," she said, surprised at seeing hae face in the lantern light.
 
 Standing next to Linyu was Ginnu, rummaging through the herb box with hae own lantern, and she asked in a suspicious tone, "How did you get here?"
 

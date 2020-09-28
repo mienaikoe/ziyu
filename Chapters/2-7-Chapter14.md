@@ -23,7 +23,7 @@
 			- "WHERE HAVE YOU BEEN?!"
 			- Setre tells him that Casra and Shinna fled to the northern shore and that the battle was
 			- Lin interrupts them asking for help getting down
-			- Setre goes for Linyu, Kipnu goes for Cas and Lis
+			- Setre goes for Linyu, Kipnu goes for Casra and Shinna
 
 			- Kelp forest
 			- End with Kipnu hearing hearing "3...2...1" and watching Liffe's craft blast off from beneath surface and drowning
@@ -300,7 +300,7 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     He glanced at hae again to check his statement. Blood continued to drip out of the wound, and the convulsions were slowing.
 
-    Ramne continued, "You think you know what happened here, don't you, Kipnu. Everybody took Cas' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Setre and I tried to save it from burning to the ground."
+    Ramne continued, "You think you know what happened here, don't you, Kipnu. Everybody took Casra' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Setre and I tried to save it from burning to the ground."
 
     Ramne leaned over Ginnu, his chest above haes with his palms on his knees. He took a closer look at Kipnu in the light of his decorated body.
 
@@ -378,7 +378,7 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     A silhouette appeared from the Great Pavilion. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Setre, stumbling out of the smoke in a daze. He dashed to her to pull her out of the flames.
 
-    "Cas...Cas...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
+    "Casra...Casra...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
 
     He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kipnu's arm and he turned back toward her. Her gaze was vacant as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
 

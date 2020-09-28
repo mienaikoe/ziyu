@@ -24,7 +24,7 @@ The cold of the sea bit at his limbs but he wasn't letting it bother him - these
 
 Casra sensed that Kipnu should have returned by now, and shot a glance out to the water where his head was barely breaking the surface. At a pace quicker than Linyu had ever seen hae run, Casra waded into the water and swam out to him. Thi locked hae arms around Kips' and pulled hard against the pebble floor. Kipnu was confused, but conscious of what was going on. When they made it to shore, thi set him nearer to the fire and laid underneath him, covering both of their bodies with pebbles just as he had done for Linyu.
 
-"C...Cas"
+"C...Casra"
 
 "Shh. Just focus on getting warmer."
 
@@ -42,7 +42,7 @@ Casra's voice was hushed, to keep the other from hearing much, "Kipnu, what's wr
 
 Thi looked at him with a stern eye, but his own remained vacantly fixed on an invisible specter in the distance.
 
-After a tense moment, he turned around and asked, "Who the hell even are you, Cas? Why should I trust anything you have to say?"
+After a tense moment, he turned around and asked, "Who the hell even are you, Casra? Why should I trust anything you have to say?"
 
 Casra grabbed his arm and leaned hae face into his.
 
