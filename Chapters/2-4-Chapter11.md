@@ -57,25 +57,47 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 "People cannot be owned, Setre. I thought you were better than this."
 
-"I'm not your right-hand anymore. You have no idea what happened in the all the time you were gone. What we had to do to survive."
+"I'm not your guardian anymore. You have no idea what happened in the all the time you were gone. Things have changed now."
 
-"When I left, you had such conviction and even more strength than I had. You knew everything I knew. Shinna could have been brought to justice and the Great Pavilion reformed, but now it's gone back to being a hive of addiction."
+"When I left, you had such conviction and even more strength than I had. I taught you everything I knew. Why didn't you bring Shinna to justice?"
 
-"We needed you, Casra," she said, raising her voice. "We needed you and you left right as everything was fell apart."
+She rose her voice, as if to say something she'd been waiting to say for a long time.
 
-"You forced me out!"
+"I'm not you, Casra. They trusted you with their lives, but me? I'm the one that put you on a boat and sent you away as everything fell apart. I might as well have been Shinna haeself, the way they looked at me after that."
 
-"I sent you off this island to get Linyu to safety. I waited and waited for you to come back, but you never did. Now you expect me to have picked up your mess all by myself? The only way to survive was to adapt, so yes, Casra, this is who I am now."
+"You sent me away for Linyu's safety. They knew that."
+
+"How could they trust me? I told them you would be back, but you never showed. They had to move on. But I never gave up on you. I've been waiting for you. For so long."
+
+Her voice began to break now that hae presence had sunken in, and she released her spear to the ground, moving close to embrace Casra.
+
+"The things I had to do to survive," she said through tears, "You wouldn't think I was the same person."
+
+Kipnu was moved, and waved to Linyu to come up the ladder. There was no danger for hae here. Thi emerged from the hole and Kipnu listened to them, out of their sights.
+
+Setre recognized hae first, and was ecstatic.
+
+"Linyu! Oh you've grown so much!" she said proudly as she rushed in to embrace hae.
+
+For a while all Kipnu heard was silence.
+
+"You," thi said, "You pushed us away from home. Aren't you done bullying us?"
+
+"Linyu... no why would I–"
+
+"Go away. We don't want you here."
+
+"Linyu," Casra said, shocked at his words, "Setre is your nather, no matter what."
+
+"I saw who she really is in the forest. If Shinna knew we were here, we would be just like Kipnu–"
+
+"Don't say that, Linyu," Casra interjected, but Setre held her hand out in defeat.
+
+"No... thi is right. If Shinna discovers that you've come back, your lives would be in immediate danger. You would be taken to hae, if not by me, then by another guardian. There's nothing I could do to stop it."
+
+Casra regained hae composure and asked, "Please... Tell us what happened."
 
 <!-- left off -->
-
-"I understand. And Ramne?"
-
-"He became a dealer. Shipped off to Yansha long before his sentence. Probably bribes."
-
-"No..." Casra paused to fully understand what this meant. "All of our work... was in vain."
-
-She regained hae composure and said, "Please... Tell me what happened."
 
 "There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Shinna has removed all other tribes from the Great Pavilion and killed people in hae own tribe that thi suspected of espionage."
 
@@ -98,6 +120,12 @@ Kipnu leaned to Casra and asked, "You were bound?". Thi confirmed with a nod.
 Setre lifted herself back up and said to Kipnu, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Casra."
 
 He looked at her in a different light now. His fear for her had been mostly replaced with reverence, though the little bits of it had lingered in an animalistic sense of survival.
+
+"I understand. And Ramne?"
+
+"He became a dealer. Shipped off to Yansha long before his sentence. Probably bribes."
+
+"No..." Casra paused to fully understand what this meant. "All of our work... was in vain."
 
 "Setre...how will you-"
 
