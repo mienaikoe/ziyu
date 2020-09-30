@@ -1,28 +1,48 @@
 ## Chapter 12
 
-"Are you sure they're landing here, Casra? I don't see any ships," asked Kipnu.
+"Are you sure they're landing here?" he asked. "I think we came in from over there."
 
-"You can't see anything when it's this dark anyway. And yes, Zaenta will always follow the wind to get it done quicker. She's not real fond of her job, but she keeps the boat in one piece."
+"I'm sure of it. Nanta decides which way to turn depending on the currents. She's not real fond of her job, but she keeps the boat running smoothly."
 
 "Sounds like you know her well."
 
-"I'm a traveler between Ulukoma and Shaki... I find friends in strange places."
+"I'm one of the few voluntary travelers between Ulukoma and Rudjan these days... Tends to raise a few eyebrows."
 
-Kipnu looked out at the dark sea and the dark hint of red and infrared that lie above it. There was far more he could see now that his eyes adjusted, but the waves were still waves. Casra's face was the same expression he had come to expect from hae: calm, intelligent, and resolute. Whatever this plan was, he was certain thi had thought about it for many Ma'to.
+Kipnu looked out at the dark sea and the hint of red and infrared that lie above it. There was far more he could see now that his eyes had adjusted to the dark, but the waves were still waves and the rail was still rail. He wondered at Casra's stoic nature, how thi held the same expression no matter the hardship: calm, intelligent, and resolute. However this plan turned out, he was certain that a better one didn't exist.
 
-He reviewed the plan and glanced again into the bag of listeners he had been tasked to carry, wondering if Casra could really rally a resistance with something so small. Linyu was carrying bread and firestarters, and Casra the kanosin antidote. If he had been given a welcome such as this, Kipnu would likely have followed any plan thi had.
+He glanced again at the tank of fresh water he had been tasked to carry and his eyes wandered to Casra's satchel of kanosin antidote, and Linyu's satchel of hot tips and listeners. He wondered if thi could really start a resistance with something so small, but then he remembered that life under Shinna was a struggle and that gestures of kindness were rare. If he had been given such a warm welcome after such a harsh goodbye, he would have followed hae anywhere.
 
-"There, to the South," Linyu said. They immediately turned their heads and saw two silhouettes of boats and a huge crowd of people on each. Some swimmers were already flailing about in the water.
+"There, a bit to the North," Linyu said. They strained their eyes to see two ships on the horizon nearing the end of the rails.
 
-"Quickly!" Casra yelled and they all ran toward the closest point on the shoreline. Kipnu pushed his bag to a startled Casra, and leapt into the icy sea of needles to save them.
+"Two ships?" asked Casra, incredulously. Kipnu was just as confused as thi was.
 
-"I'm starting to wonder if he enjoys jumping into cold water," Linyu said.
+They drew closer, and the front ship began its turning maneuver. A huge crowd of people was thrown off the side all at once, all without bindings on their arms, and they flailed about in the water struggling to float in the disturbance.
 
-"He's a dreamer...and he wants to wake up," Casra replied.
+"Quickly!" Casra yelled and the three ran toward the closest point on the shoreline where Linyu ran toward the treeline to gather wood and make a fire. Kipnu pushed his bag to a startled Casra, and leapt into the icy sea.
 
-The cold of the sea bit at his limbs but he wasn't letting it bother him - these people needed his help. The pebble sea floor took him as far as it could, and then he began to swim toward that crimson red horizon. But before reached them, they had found solid footing and no longer needed help. His own feet, however, were starting to go numb and he realized that he was in a worse predicament than they were. He turned back toward the shoreline and made it to an area of solid footing before the water began to feel warmer, and his frustration had turned to fear. Breathing had become too difficult to call for help and everyone was too focused on getting to safety to notice that he was still behind them. His muscles started to spasm and lock up - first his legs, then his arms, then he started to sink.
+The cold of the water bit at his limbs but he wasn't letting it bother him - these people needed his help. The pebble sea floor took him as far as it could, and he kicked up to swim toward that crimson red horizon. But before could reach them, the second boat began keeling, pouring more people out into the water – many with tied hands. He reached one man who was gasping in shock at the cold water, showing signs of confusion.
 
-Casra sensed that Kipnu should have returned by now, and shot a glance out to the water where his head was barely breaking the surface. At a pace quicker than Linyu had ever seen hae run, Casra waded into the water and swam out to him. Thi locked hae arms around Kips' and pulled hard against the pebble floor. Kipnu was confused, but conscious of what was going on. When they made it to shore, thi set him nearer to the fire and laid underneath him, covering both of their bodies with pebbles just as he had done for Linyu.
+"On your back!" Kipnu yelled at the man, but he didn't respond. Kipnu latched their arms together, and began swimming backward toward the shore until a woman came upon them.
+
+She yelled between waves, "I've got him. There's a girl. Second boat. Arms tied."
+
+Kipnu understood her, and swam back out to find the child, but he didn't see any signs of struggle. His feet were starting to go numb: the beginning of hypothermia. But he ignored it. He took a deep breath and dove under the water, opening his eyes despite the sting. He gained depth until he saw the faint glow of two blue eyes upon the sea floor. The distance was quite long at this point, so he surfaced to catch his breath before diving again. Five strokes, ten strokes, twenty. His breaths were straining as her eyes receded further into the deep. Thirty. He had to turn back. But he was so close now. Patches of color began to fill his vision and his muscles started to spasm and lock up - first his legs, then his arms, and then he started to sink.
+
+A hand grabbed his shirt, tugged to pull him out, and he watched her eyes recede into the deep as the light of Ara returned to his vision.
+
+The woman was in a canoe with the confused man while he sensed that Casra was with him in the water. Kipnu was confused, but conscious of what was going on. Casra lifted as the woman pulled Kipnu onto the canoe between the seats.
+
+"She's... still down there," he said, between deep breaths.
+
+"It's too dangerous," said Casra. "None of us can do that dive."
+
+"No," he said. "I can... I can–"
+
+"She's gone," said the woman sternly. He looked her in the eye and understood her.
+
+<!-- left off -->
+
+When they made it to shore, thi set him nearer to the fire and laid underneath him, covering both of their bodies with pebbles just as he had done for Linyu.
 
 "C...Casra"
 

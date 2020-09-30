@@ -131,9 +131,11 @@ Setre turned and disappeared into the dark forest.
 
 Casra called out to her, "The wind speaks!"
 
-Setre responded, "Ulu listens!"
+Setre responded, "The wind listens!"
 
-They looked on as the forest swallowed her cursed blue light, a living memory of Ara wandering in the darkness.
+They watched her blue light fade away, swallowed by that pervasive darkness of the forest they'd made a home in. Casra and Linyu headed back in while Kipnu stayed outside for a while to think.
+
+"Don't stay out too long," said Casra. "There's a chill in the air."
 
 <!--
 
