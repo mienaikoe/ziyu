@@ -87,49 +87,47 @@ For a while all Kipnu heard was silence.
 
 "Go away. We don't want you here."
 
-"Linyu," Casra said, shocked at his words, "Setre is your nather, no matter what."
+"Linyu," Casra said, shocked at his words, "Setre is your nather."
 
-"I saw who she really is in the forest. If Shinna knew we were here, we would be just like Kipnu–"
+"I saw her in the forest. A bully, like Ramne. If she had found you instead, you would've been just like Kipnu–"
 
-"Don't say that, Linyu," Casra interjected, but Setre held her hand out in defeat.
+"Linyu!" Casra interjected, but Setre held her hand out in defeat.
 
-"No... thi is right. If Shinna discovers that you've come back, your lives would be in immediate danger. You would be taken to hae, if not by me, then by another guardian. There's nothing I could do to stop it."
+"No... thi's right. If Shinna ever discovers that you've come back, you would stand a better chance turning yourself in. If you're really back for good, then you mustn't bring attention to yourself."
 
-Casra regained hae composure and asked, "Please... Tell us what happened."
+"Setre, I think you should know somethinig. I've come to take this place back for the people."
 
-<!-- left off -->
+"That's a fools errand," she said without hesitation. "Only someone with immense power on the mainland could do such a thing and live."
 
-"There is a network of spies in every tribe, hidden from view, plotting and scheming to bring them down from the inside out. Nobody knew who might be lurking behind a corner or sabotaging every plan. Shinna has removed all other tribes from the Great Pavilion and killed people in hae own tribe that thi suspected of espionage."
+"Shinna turned my people against me. Why can't I do the same?"
 
-"Why didn't you take action to stop it?"
+Setre let out a sigh as if to gather her words together.
 
-"How do you stop an army you can't see?"
+"There is a network of spies in the upper class," she explained. "Plotting against each other, vying for power and favor with Shinna. Nobody knows who they are, only that many of them end up dead. Even if you found a way to topple Shinna, hae spies would undermine you at every turn."
 
-They both looked at each other, at a loss. Kipnu could see Casra's longing stare in the blue gleam of Setre's skin.
+"We can't let that prevent us from trying. We can keep ahead of them, anticipate their traps," thi said.
 
-"Set... I'm sorry."
+"Don't you understand? Their games will never cease. They will always find some new way to torment you because their profit depends on it."
 
-"Don't be sorry, Casra," she said, "If I were anyone else, you would be sold to Shinna by now and I would be planning what to do with my reward. But I love you too much to do that, and I believe - I know - that you can bring some humanity back to the land of Ulu."
+Kipnu felt a pang of fury for this place, and for a brief moment he contemplated staying to help Casra with hae plan. But it was only a moment. He peeked through the crack of the ladder hole and saw Casra's longing stare in the blue gleam of Setre's skin.
+
+"I should have come back sooner," said Casra. "I'm sorry."
+
+"Don't be sorry," said Setre, "If you hadn't left, Linyu might not be the bright young maman thi is today. And I have my doubts, but maybe there is some shred of humanity left in the land of Ulukoma. If anyone can find it, it's you."
 
 Setre looked toward the entrance to the safehouse and called, "Kipnu!"
 
-He went up the ladder and walked out to meet them, with Linyu not far behind. The kaln ran to Setre and gave her a leg-hug, which she kneeled down to return after some hesitation.
+He was surprised to hear his name, but knew there was no point in hiding. He opened hole cover and crawled out, keeping his distance from Setre while he walked to Casra's side. Setre said to him, "Your hardships aren't over. This whole island knows how valuable you are. Stay out of sight and help Casra."
 
-Kipnu leaned to Casra and asked, "You were bound?". Thi confirmed with a nod.
+He looked up to her in a different light now. Behind her violent facade was a kind-hearted soul, stuck in a difficult situation. It was her way of surviving, and he felt a sort of reverence for it.
 
-Setre lifted herself back up and said to Kipnu, "Your hardships aren't over. The whole island knows how valuable you are. Stay out of sight and help Casra."
+"And you," she turned to Linyu, "You stay out of trouble. If people find out your mother is here, they will use you to get to hae. Keep yourself away from them."
 
-He looked at her in a different light now. His fear for her had been mostly replaced with reverence, though the little bits of it had lingered in an animalistic sense of survival.
+Thi looked at hae solemnly, wouldn't say a word but nodded as a peace offering. She knew they had a long way to go.
 
-"I understand. And Ramne?"
+Casra held on to her once more, and nuzzled each other for several seconds. They wished most of all for everything to go back to the way it was before. But time gives us only the present, and will never take back the past.
 
-"He became a dealer. Shipped off to Yansha long before his sentence. Probably bribes."
-
-"No..." Casra paused to fully understand what this meant. "All of our work... was in vain."
-
-"Setre...how will you-"
-
-She put her hand over his mouth saying, "Don't worry about me," and turned to Casra. They stared at each other for several seconds, desire in their eyes for things to go back to the way they were before. But this was now, not then. Setre turned to walk back the way she came.
+Setre turned and disappeared into the dark forest.
 
 Casra called out to her, "The wind speaks!"
 
