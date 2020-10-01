@@ -30,51 +30,63 @@ Kipnu understood her, and swam back out to find the child, but he didn't see any
 
 A hand grabbed his shirt, tugged to pull him out, and he watched her eyes recede into the deep as the light of Ara returned to his vision.
 
-The woman was in a canoe with the confused man while he sensed that Casra was with him in the water. Kipnu was confused, but conscious of what was going on. Casra lifted as the woman pulled Kipnu onto the canoe between the seats.
+The woman was in a canoe with the confused man while he sensed that Casra was with him in the water. Kipnu was confused, but conscious of what was going on. Casra lifted Kipnu as the woman pulled him onto the canoe and nestled him lengthwise into the middle of the boat.
 
 "She's... still down there," he said, between deep breaths.
 
-"It's too dangerous," said Casra. "None of us can do that dive."
+"It's too dangerous," said Casra. "I barely made it to you. I couldn't go further."
 
 "No," he said. "I can... I can–"
 
-"She's gone," said the woman sternly. He looked her in the eye and understood her.
+"She's gone," said the woman sternly.
 
-<!-- left off -->
+He fell silent at her voice, and continued to do so as they pulled some of the stragglers to the side of their boat and untied their arms. Kipnu had never seen such wanton carelessness for life before. If not for their canoe and preparations, surely hundreds more could have died or fallen gravely ill. And who were the people on the first ship? With their ands were unbound, and the deck swollen with their numbers?
 
-When they made it to shore, thi set him nearer to the fire and laid underneath him, covering both of their bodies with pebbles just as he had done for Linyu.
+Their boat made it to shore, and Casra lifted Kipnu out and set him near to the fire. Thi laid underneath him to give him warmth just as he had done for Linyu.
 
 "C...Casra"
 
 "Shh. Just focus on getting warmer."
 
-His muscle control began to return and violent full-body shivers came along with it. He moaned in agony as feeling slowly returned from his core to his limbs, and Casra held him tighter so he wouldn't throw off too many rocks. An unexplainable frustration was building from his belly and circling inward and he let his mind be overtaken by it, wrestling free from Casra's grasp, and making a direct line for the trees. Casra stood up and dusted haeself off as the massive crowd of people looked on at them.
+His muscle control began to return and violent full-body shivers came along with it. He moaned in agony as feeling slowly returned to his limbs and his digits. An unbending rage began to build; first from his belly then circling around him and back inward, and it overtook his mind. That girl had a name, had a family, how could Shaki be so callous!
 
-"I'll be right back," thi said, and then trotted off to find Kipnu.
+He wrestled free from Casra's grasp, and made a direct line for the trees. Casra stood up and dusted haeself off as the massive crowd of people looked on at them.
 
-Casra's voice was hushed, to keep the other from hearing much, "Kipnu, what's wrong?"
+"We'll be back," thi said, and trotted off after Kipnu.
 
-"I'm fine," he said in an angry tone.
+"Kipnu, what's wrong?"
+
+"I need a moment," he said in an angry tone.
 
 "Come back and warm up. You're confused right now."
 
 "I said. I'm fine."
 
-Thi looked at him with a stern eye, but his own remained vacantly fixed on an invisible specter in the distance.
+Thi moved into his line of sight, looked at him with a stern eye, but his own remained vacantly fixed inward.
 
-After a tense moment, he turned around and asked, "Who the hell even are you, Casra? Why should I trust anything you have to say?"
+"I was this close to saving her. Then you pulled me out."
 
 Casra grabbed his arm and leaned hae face into his.
 
-"You may have saved my kaln's life, but I just saved yours, so you might show some fucking gratitude," thi screamed, "This island isn't a playground for your ego. There are too many people who suffer here, whose lives would be destroyed if you make just one mistake. The last thing we need is a man who's out to save the universe. If you're going to be part of my tribe, you can't–"
+"You weren't going to save shit," thi said. "You were going to die."
 
-"I never asked to be part of your tribe, Casra," He said, wrestling free from hae grip. "I got roped into this mess because my only alternative was slavery."
+He was snapped from his cloud of frustration by the tone of hae voice.
 
-"And you don't think that's a fair trade? I risked my own life to give you freedom for a La'To. You don't think that's fair?"
+"This island isn't a playground for your ego. There are too many people whose lives would be destroyed if we don't succeed. The last thing my tribe needs is a man who's out to play the martyr."
+
+Kipnu responded with a voice subdued but not wholly defeated.
+
+"I never asked to be part of your tribe, Casra," He said, wrestling free from hae grip. "I got roped into this mess because my only alternative was being an addict."
+
+"And you don't think that's a fair trade? Your freedom for your help?"
 
 Thi shuffled about, trying to calm hae anger.
 
-She said, "I thought you would be the good kind of doctor, a real man of the people, that you would want an end to slavery in the Great Pavilion. But all you really want to do is take my radio back to Ara and be the big hero you always dreamed of being. Am I wrong? Tell me I'm wrong."
+"You act as if your life is one big game where every risk is worth taking if it means you'll win. But there are people behind those risks, people who need you to stay alive. Maybe you're not the hero you want to be, Kipnu, but you can still be a good man."
+
+He hesitated.
+
+<!-- left off -->
 
 "You know what, I don't even care what happens here," Kipnu replied. "In eleven days I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters right now."
 
