@@ -72,7 +72,7 @@ Casra grabbed his arm and leaned hae face into his.
 
 He was snapped from his cloud of frustration by the tone of hae voice. He hadn't heard this side of hae before.
 
-"You're acting like a child; like every risk is worth taking if it means you'll win. But there are people behind those risks, people who need you to stay alive. Maybe you're not the hero you want to be, Kipnu, but you can still be a good man."
+"You're acting like a child, taking risks like you're invincible. But there are people behind those risks, people who need you to stay alive. Maybe you weren't the hero you wanted to be, but that doesn't mean you aren't a good man."
 
 Kipnu responded with a voice subdued but not wholly defeated.
 
@@ -80,52 +80,55 @@ Kipnu responded with a voice subdued but not wholly defeated.
 
 He wrestled free from hae grip.
 
-"If you didn't want my help, you should never have plucked me from that sale."
+"If you didn't want my help, you should never have plucked me from Shinna."
 
-"Are you listening to yourself? You're telling me you'd have rather been a mindless drone for Shinna than to be more calculated with your risks."
+"You're telling me you'd rather be a mindless drone for Shinna than cautious with your life?"
 
 "Why should I even care what happens here?" he said. "You found me a boat. I'm getting off this dark prison island you call a home and heading straight for Heiko to save the only people that matter to me. That's the only problem that matters to me right now."
 
 Casra was hurt, but thi didn't let it show.
 
-"You can go if you want. You've already tried to waste your life. This time you won't have me to stop you."
+"These people have come in droves to a place they've only heard about, afraid and cold and defenseless. They need someone to lead them away from Shinna."
 
-Thi turned around to return to the fire.
+"Then _you_ do that. Re-form your council. What I do with my life is up to me."
 
-"What I do with my life is up to me!" Kipnu yelled. But his anger had suddenly melted into humility and he regretted what he'd said.
+He spoke firmly, leaving no room in his voice for thought or compromise.
 
-Thi did not stop. Thi did not turn around.
+"Then go on," thi said. "Leave this place and go be the hero you want to be. This time you won't have me to stop you."
+
+Thi receded swiftly toward the beach, leaving Kipnu to his anger. And as thi grew further away, his conviction melted to humility. No, this was a game. Thi would stop at some point and ask him to come back.
+
+But Casra didn't stop.
+
+Linyu stood just near a young campfire, looking out at the crowd before hae. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. Thi had run out of bread to pass out, so everyone was splitting pieces for each other, and huddling to keep warm. Thi was relieved to see hae mother trekking down the treeline, but quickly saw that thi was unhappy.
+
+Casra stood next to Linyu and called out to the group, asking for quiet before addressing them.
+
+"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. What you've just seen and been through represents the dark side of Shaki's governance. To them, you're just a criminal, a number on a manifest. But your lives are worth more than your mistakes."
+
+Every eye on that beach was fixed upon on Casra, searching for any sign that they would be safe.
+
+"I wish that I could tell you that things were different here, but there are people on this island that would shackle and drug every one of us to reap the fruit of _our_ labor, the work of _our_ hands. If you want to survive in this place, you will all have to fight for your freedom."
+
+A single pair of hands began to clap from a fire far away. It was a man, dressed in a thick black kelpen tunic with large rusted steel fasteners that seemed to be doubling as armor.
+
+"You always were so dramatic," he said, mocking hae.
+
+He was standing near a fire with the trees behind him, speaking against the breeze as if he himself was king of Ulukoma. A maman not much older than Linyu and dressed in a tight black robe tugged on his arm to stop, but he pushed hae away with ease and stepped closer to Casra.
+
+He spoke to the crowd. "Shinna grants the wishes of those who have earned the right to have them. Those who succumb to kanosin are lazy and wicked; their contribution to society must be taken from them by force. Shinna did what you were too weak to do."
+
+"I came here just yesterday," Kipnu interrupted them. "Like all of you, I was untrusting, afraid of the dark. I was captured by one of Shinna's thugs and drugged with Kanosin, and then put up for sale to the highest bidder. But Casra set me free. Thi showed me that this place can be more beautiful than the mainland. You can choose to follow your own path, but consider my story a warning of what could happen if you do."
+
+Casra took his hand, accepting his apology.
 
 <!--
-"And you don't think that's a fair trade? Your freedom for your help?"
-
-Thi shuffled about, trying to calm hae anger.
-
-He hesitated.
- And what good would that be? Why save a people that throws away its own kin like trash for an addiction they can't control. That says to the people who built its railroads, 'You don't deserve the luxuries you created because you're an addict'? For me, I'd rather all under Ara freeze to death. Ulukoma will forge a new path in the dark."
--->
-
-Casra stood with Linyu just near a young campfire, and looked out at crowd before hae. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. Linyu had run out of bread to pass out, so everyone was splitting pieces for each other, and huddling to keep warm.
-
-Thi stood on a rock and called out for quiet before addressing them.
-
-"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. There are far more of you here today than we have ever had before."
-
 A voice called out from the crowd, "Ara is dying!"
 
 Another yelled, "Nowhere is safe!"
 
-A clamor erupted, and Casra and Kipnu began to realize the weight of the news Kipnu had withheld from them. Casra raised hae hands to calm the noise and spoke again, "I wish that I could tell you that you are safe here, but there is a tribe in the center of this island that would enslave you all if they could. If you want to survive, you will all have to fight for your freedom."
-
-"Fate be gentle! Hahaha," a man cackled at her. He was standing near a fire with the trees behind him and he laughed to the wind as if he himself was king of Ulukoma. A maman not much older than Linyu and dressed in a tight black robe tugged on his arm to stop, but he twisted free of hae grasp and pushed hae away.
-
-He stepped closer to the Casra, venturing into the light between fires and continued, "Casra, you fool. Shinna grants the wishes of those who have earned the right to have them. These slaves, you call them, they're lazy and wicked. Shinna did what you were too weak to do."
-
-Kipnu, having followed Casra out of the forest moved forward to stand by hae side.
-
-"I came here just yesterday. Like all of you, I was untrusting, afraid of the dark. I was captured by one of Shinna's thugs and drugged with Kanosin. I did a thing I will regret forever and I was put up for sale to the highest bidder, but Casra saved me. Thi showed me hae past and hae plans for the future. You can choose to follow your own path, but consider my story a warning of what could happen if you do."
-
-Casra took his hand, accepting his apology.
+A clamor erupted, and Casra and Kipnu began to realize the weight of the news Kipnu had withheld from them. Casra raised hae hands to calm the noise and spoke again.
+ -->
 
 <!-- left off -->
 
