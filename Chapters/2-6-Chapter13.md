@@ -22,6 +22,8 @@ Setting:
 
 ## Chapter 13
 
+<!-- left off -->
+
 Lin was silent on the walk home. Kipnu was walking next to hae, trying in vain to think of comforting things to say, but he held hae hand in the hopes that it would provide some comfort. He tried to meet the people in the group, but there were too many altogether.
 
 "Kipnu," a maman called to him.

@@ -314,6 +314,10 @@ They both slowly walked around the room, looking at the weapons that were stockp
 
     "You know what, Kipnu, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
 
+<!--
+But the addicts and criminals of the world are lazy and wicked; their contributions must be taken from them by force.
+-->
+
     "Get the fuck out of here."
 
     "Just think about it. This'll be the only place left when the darkness falls and you mainlanders kill each other in the chaos."
