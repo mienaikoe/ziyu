@@ -133,9 +133,33 @@ Casra called out to her, "The wind speaks!"
 
 Setre responded, "The wind listens!"
 
-They watched her blue light fade away, swallowed by that pervasive darkness of the forest they'd made a home in. Casra and Linyu headed back in while Kipnu stayed outside for a while to think.
+They watched her blue light fade away, swallowed by that pervasive darkness of the forest they'd made a home in. Linyu headed back inside while Casra stayed with Kipnu outside for a while. He felt as if Casra was a friend he'd known forever.
 
-"Don't stay out too long," said Casra. "There's a chill in the air."
+"Casra," he asked. "If I told you the world was ending. Would you still have come back?"
+
+Hae eyes perked up, understanding the message he was trying to send.
+
+"If it meant Setre and the others had even one day of freedom, it would still be worth it."
+
+Kipnu nodded in understanding.
+
+But thi added, "I do wonder if bringing Linyu was a bad idea. Thi's old enough to understand the end of the world, but not quite ready to handle hae own mortality."
+
+He responded politely, "If you don't mind me saying, your kaln is much more mature than any of hae age I've ever met."
+
+Casra smiled, laughed inside haeself. "Linyu is still my little baby, I guess." But hae troubled head took hold again.
+
+"How will it happen?" thi asked.
+
+Kipnu hesitated. "Ara. Something they call the obscura."
+
+"I see..." thi said quizzically.
+
+Thi arose to head back inside, but before thi stepped onto the ladder, thi called to him, "I can get you back home tonight on one condition."
+
+He turned to show that he was listening.
+
+"Bring Linyu with you."
 
 <!--
 
