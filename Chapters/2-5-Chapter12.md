@@ -10,7 +10,7 @@
 
 The three had taken a kelping canoe and paddled out to the space where the ships came in, waiting for their moment. Kipnu looked out at the dark sea and the hint of red and infrared that lie above it. There was far more he could see now that his eyes had adjusted to the dark. He wondered at Casra's stoic nature, how thi held the same expression no matter the hardship: calm, intelligent, and resolute. However this plan turned out, he was certain that a better one didn't exist.
 
-He glanced again at the tank of fresh water he had been tasked to carry and his eyes wandered to Casra's satchel of antikan and hot tips. He wondered if thi could really start a resistance with something so small, but then he remembered that life under Shinna was a struggle and that gestures of kindness were rare. Perhaps another would take his place after such a warm welcome.
+He glanced again at the tank of fresh water he had been tasked to carry and his eyes wandered to Casra's satchel of hot tips. He wondered if thi could really start a resistance with something so small, but then he remembered that life under Shinna was a struggle and that gestures of kindness were rare. Perhaps another would take his place after such a warm welcome.
 
 "There, a bit to the North," Linyu said. They strained their eyes to see two ships on the horizon nearing the end of the sea rails.
 
@@ -32,31 +32,21 @@ He reached a man who hadn't moved from the spot where the ship had left him. He 
 
 She yelled between waves, "I've got him."
 
-Kipnu understood her, and handed him off. His feet were starting to go numb, but he ignored them and kept looking for stragglers. Against the Ara horizon, someone was bobbing in and out of the water, struggling to find air. Behind was Casra, paddling furiously. _What has Linyu done?_ He headed toward hae, but before he could make it, hae head was no longer on the surface. He took a deep breath and dove under, accepting the sting of salt in his eyes. He kept gaining depth until he saw the faint glow of two blue eyes upon the sea floor. The distance was too long at this point, so he surfaced to catch his breath, inhaled as much as he possibly could, and dove again. Five strokes, ten strokes, twenty. The pain in his lungs pulled him back to the surface, but still he pushed further into the deep. Thirty, and finally he saw those blue glowing eyes. Turning back was not an option now – not without Linyu. Forty. Colorful flashes of light began to fill his vision and his muscles started to spasm and lock up - first his legs, then his arms, and then he started to panic. A hand grabbed his shirt, tugged to pull him out. There was nothing he could do but watch as those blue eyes so full of hope receded into the deep and flashes of light washed over his consciousness.
+Kipnu understood her, and handed him off. His feet were starting to go numb, but he ignored them and kept looking for stragglers. Against the Ara horizon, someone was bobbing in and out of the water, struggling to find air. Behind was Casra, paddling furiously. _What has Linyu done?_ He headed toward hae, but before he could make it, hae head was no longer on the surface. He took a deep breath and dove under, accepting the sting of salt in his eyes. He kept gaining depth until he saw the faint glow of two blue eyes upon the sea floor. The distance was too long at this point, so he surfaced to catch his breath, inhaled as much as he possibly could, and dove again. Five strokes, ten strokes, twenty. The pain in his lungs pulled him back to the surface, but still he pushed further into the deep. Thirty, and finally he saw those blue glowing eyes. Turning back was not an option now – not without Linyu. Forty. Colorful flashes of light began to fill his vision and his muscles started to spasm and lock up - first his legs, then his arms, and then he started to panic. A hand grabbed his shirt, tugged to pull him out. There was nothing he could do but watch as those blue eyes so full of hope recede into the deep as flashes of light blotted out reality.
 
 ---
 
-The woman was in a canoe with the confused man and Casra was with him in the water. Kipnu was confused, but conscious of what was going on. The woman pulled him onto the canoe and laid him down lengthwise into the middle of the boat.
-
-"She's... still down there," he said, between deep breaths.
-
-"It's too dangerous," said Casra. "I barely made it to you. I couldn't go further."
-
-He fell silent at her voice, and continued to do so as they pulled some of the stragglers to the side of their boat and untied their arms. Kipnu had never seen such wanton carelessness for life before. If not for their canoe and preparations, surely hundreds more could have died or fallen gravely ill. And who were the people on the first ship? With their ands were unbound, and the deck swollen with their numbers?
-
-Their boat made it to shore, and Casra lifted Kipnu out and set him near to the fire. Thi laid underneath him to give him warmth just as he had done for Linyu.
-
 "C...Casra"
 
-"Shh. Just focus on getting warmer."
+"Shh. Just focus on getting warmer. Fanla, could you check his vitals again?"
 
-His muscle control began to return along with violent full-body shivers. He moaned in agony as feeling slowly returned to his limbs and his digits. Casra was under him, lending him warmth, lending him life.
+His muscle control began to return along with violent full-body shivers. He moaned in agony as feeling slowly returned to his limbs and his digits. Casra was under him, lending him warmth, and a woman hovered beside with her hand placed gently on his underarm. Fanla, he surmise.
 
-"Linyu," he recalled and an unbending urgency began to build; first from his belly then circling around him and back inward, and it overtook his mind. He wrestled free from Casra's grasp, and turned to face hae, looked for Linyu but found only strangers.
+"Linyu," he recalled and an unbending urgency began to build; first from his belly then circling around him and back inward, and it overtook his mind. He wrestled free from Casra's grasp, fighting a tingling pain in his muscles and joints and turned to face hae, looked for Linyu but found only strangers.
 
 "Where is Linyu?" he asked Casra.
 
-Thi bowed hae head, and a woman nearby looked into his eyes.
+Thi bowed hae head, and Fanla looked into his eyes.
 
 "Where is Linyu?" he asked her.
 
@@ -64,7 +54,7 @@ Thi bowed hae head, and a woman nearby looked into his eyes.
 
 "I'll go back, I can reach h-"
 
-"Thi's gone," said Casra sternly. Thi stood up and turned away from them with hae head in hae hand, then bolted for the trees. The woman shook her head, but Kipnu didn't understand. He tried standing, shook out the intense tingling in his muscles, and followed Casra awkwardly into the forest.
+"Thi's gone," said Casra sternly. Thi stood up and turned away from them with hae head in hae hand, then bolted for the trees. The woman shook her head, but Kipnu didn't understand. He tried standing, shook out the intense tingling, and followed Casra awkwardly into the forest.
 
 "I need a moment," thi said in an angry tone.
 
@@ -100,39 +90,35 @@ The air was quiet, and a deep regret came to him as it does in those moments. He
 
 But Casra didn't stop.
 
-The woman stood just near a young campfire, looking out at the crowd. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. The bread supply had run out, so everyone was splitting pieces for each other, and huddling to keep warm.
+Fanla stood just near a young campfire, looking out at the crowd. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. The bread supply had run out, so everyone was splitting pieces for each other, and huddling to keep warm. When Casra emerged from the forest, she immediately came to her and they shared a moment of pain together. Even from afar, Kipnu could tell there was something special about Fanla. In her eyes or her earnest sense of touch. She knew how to heal the thngis that he could not.
 
-Casra came out of the forest, and Fanla immediately came to her and they shared a moment of pain together. But thi cut the moment short. This group of wayward travelers were looking for guidance that only thi could give, and every moment was more time for Shinna's guardians to gain knowledge of their presence and hae plan.
+Casra had to cut the moment short. This group of wayward travelers were looking for guidance that only thi could give, and every moment was more time for Shinna's guardians to gain knowledge of their presence and hae plan. Thi stood upon a small ridge in the sand and called out to the group, asking for quiet.
 
-Casra stood upon a small ridge and called out to the group, asking for quiet before addressing them.
-
-<!-- left off -->
-
-"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. What you've just seen and been through represents the dark side of Shaki's governance. To them, you're just a criminal, a number on a manifest. But your lives are worth more than your mistakes."
+"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. What we've just seen and been through represents the dark side of the mainland. You are nothing to them; just a number on a manifest. But your lives are worth more than your past mistakes, more than your fear of the darkness."
 
 Every eye on that beach was fixed upon on Casra, searching for any sign that they would be safe.
 
-"I wish that I could tell you that things were different here, but there are people on this island that would shackle and drug every one of us to reap the fruit of _our_ labor, the work of _our_ hands. If you want to survive in this place, you will all have to fight for your freedom."
+"I wish that I could tell you that things were different here..." thi paused to let a deep pain subside. "But there are some on this island that would shackle and drug every one of us to reap the fruit of _our_ labor, the work of _our_ hands. If you want to survive in this place, you will all have to fight for your freedom."
 
 A single pair of hands began to clap from a fire far away. It was a man, standing near a fire with the trees behind him, dressed in a thick black kelpen tunic with large rusted steel fasteners that seemed to be doubling as armor. Casra recognized him immediately.
 
 He spoke mockingly into the breeze as if he himself was king of Ulukoma. "Such drama, Casra. It's a shame your talents are wasted on an addict."
 
-A maman not much older than Linyu and dressed in a tight black robe tugged on his arm to stop, but he pushed hae away with ease and stepped closer to Casra.
+A young maman dressed in a tight black robe tugged on his arm to stop. The light blue tint in hae eyes showed that thi was in the worst stages of withdraw. He disregarded hae, pushed hae away with ease and stepped closer to Casra.
 
-He spoke to the crowd now, "Shinna grants the wishes of those who have earned their place in society. Wealth beyond what the mainland can offer, attention from the other sexes, euphoria that expands your reality. Now, ask yourself if you've earned it. If you're one of those vile criminals from the second boat, then by all means, follow Casra to hae hole in the ground. But if you're an upstanding member of society and you've come here to find a haven from the obscura, then come with me to the Great Pavilion. You deserve to be a part of the new world order."
+The man was on a ridge of his own now, speaking to the crowd. "Shinna grants the wishes of those who have earned their place in society. Wealth beyond what the mainland can offer, attention from the other sexes, euphoria that expands your reality. Now, ask yourself if you've earned it. If you're one of those vile criminals from the second boat, then by all means, follow Casra to hae hole in the ground. But if you're an upstanding member of society and you've come here to find a haven from the obscura, then come with me to the Great Pavilion. You deserve to be a part of the new world order."
 
-There was clapping and wooing from some people behind him at the fire: his hired band of hypemakers. Thi realized now that the first boat was full of people fleeing the obscura. But why come to the darkness? Did they know?
+He spoke like a commander recruiting his troops from the ranks of children. There was clapping and wooing from some people behind him at the fire: his hired band of hypemakers. Thi realized now that the first boat was full of people fleeing the obscura. But why come here? Did they hear about...no...
 
 "I came here just yesterday," Kipnu interjected from the other side of Casra. His words were like an offering: humble and earnest. "Like all of you, I came here unsure of what to expect. I was captured by one of Shinna's thugs, drugged with Kanosin, then put up for sale to the highest bidder. But Casra set me free. Thi showed me what this place could be if we only fought to change it for the better. You are free to follow this man, but there lies great danger."
 
 Casra took his hand, accepting his apology.
 
-"This your new boyfriend, Casra?" said the man. He scoffed as he looked Kipnu up and down, but Kipnu didn't pay him any mind. Casra's plan was more important than putting this man in his place.
+"Who's this guy, Casra?" said the man. He scoffed as he looked Kipnu up and down, but Kipnu didn't pay him any mind. The plan was more important than putting this man in his place.
 
 Casra continued speaking to the crowd with a rallying cry, "The Great Pavilion can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. For those who choose not to join us, may fate be gentle to you."
 
-The people began to hum and murmur with activity with Casra and the man standing in the middle.
+The people began to hum and murmur with activity, while Casra and the man stood in the middle.
 
 "Ramne," thi said, "How long have you been a kano peddler? The wind told me you left before your sentence was up, yet here you are again."
 
@@ -146,44 +132,46 @@ Casra looked at the maman behind him, "Seems you've found someone new, then."
 
 "I couldn't possibly sell it all on my own." He said casually.
 
-Casra looked around at the crowd, eyeing the rest of his crew. They were nearly eight in number, too much for Kipnu and haeself. Kipnu sensed this too, and spoke to hae aside.
+Casra looked around at the crowd, eyeing the rest of his crew. They were nearly eight in number, too much for Kipnu and haeself. Kipnu sensed this too, and pulled hae aside to talk to her privately.
 
 "Could be an ambush," he said. "Let's get going before it's too late."
 
-"Go. Protect Linyu," Casra asked him.
+"Go. Lead the others," Casra asked him.
 
 "I can't leave you here-"
 
 "Do it!" thi snapped, still under hae breath.
 
-Ramne's group began to stand up and he knew what would come next if he didn't do as thi said. Kipnu wasted no more time, hurrying over to Linyu who was sitting around a fire, never taking his eyes off of the two of them.
+Ramne's group began to stand up and he knew what would come next if he didn't get away for himself. Kipnu wasted no more time; he gathered people and hurried them toward the tree line, far away from Ramne and his group.
 
-"Don't worry," said Ramne. "I'm not after Linyu. Thi's not worth anything to me."
+"Where is Linyu?" asked Ramne. "I've never seen hae away from you."
 
-"Thi's said the same of you. If you're going to take me, then get to it."
+"And you'll never see hae again."
 
-Ramne made a thunderous grunt, and the others echoed it back and fell into formation, trapping Casra in a circle. Thi didn't flinch or cower down, but just kept hae sights on Linyu.
+"I'm sure thi'll come running when thi finds out what happened to hae precious mama."
 
-"Mama!" Linyu called for hae mother. Thi tried to run after hae, but was stopped by a long dagger held by a maman twice Kipnu's weight in muscle - another of Ramne's allies.
+Ramne chuckled uncomfortably, trying not to pay attention to Casra's solemn gaze.
 
-"Stop!" The maman in black wasted no time running toward the warrior. "Thi's just a kaln."
+"If you're going to take me," thi said. "Then get to it."
 
-Casra said to Ramne, "I hope your maman is as disappointed in you as I am."
+Ramne made a thunderous grunt, and the others echoed it back and fell into formation, trapping Casra in a circle. Thi didn't flinch or cower down, but just kept hae sights on Kipnu. He tried to run after hae, but was stopped by the business end of a long spear held by a man taller than him and twice his weight in muscle. He was jabbing it toward him, trying to provoke a fight. He dodged one of the jabs and took the opening to wrest the spear from his hands, quickly reversing it to prepare a jab of his own.
 
-He was expressionless as they walked into the forest.
+"Stop!" The maman in black ran toward them. "You've done enough!"
 
-"Thi won't be so disappointed when thi's indulging the blue."
+Kipnu rested the spear on the ground and scoffed at the man. He noticed that the other group had stopped to observe, but with a swift gesture from Ramne, they turned around and kept moving.
 
-Kipnu clenched his teeth as he saw the band of thugs whisk Casra off into the forest with a few stragglers from the beach in tow. The thought of what Shinna might do to hae disturbed him deeply. As they disappeared into the dark, he looked back at the crowd that remained on the shoreline. The maman who tried to stop Ramne was still amongst them, unsure of whether to follow Ramne or stay behind and a teary-eyed Linyu was fighting all hae instincts to run after hae mother. The rest were now all silently looking at him as if suddenly aware of the dangers of this place. Kipnu never asked for this, but now he found himself chasing a dream for a person he had only just met, and it had become the most important thing in his life.
+Casra spoke to Ramne, "I hope your maman is as disappointed in you as I am."
 
-"I... am Kipnu," he said to the crowd, "And Casra is a dear friend."
+"Thi won't be so disappointed when thi's swimming again in the deep blue sea," he responded. A gleeful look was pasted across his face.
 
-A tear came to his eye as he looked at Linyu, who had returned hae focus to him. _"Protect Linyu,"_ Casra's request resounded in his head.
+Kipnu clenched his fists around the spear as Ramne's brutes disappeared into the forest with a few stragglers from the beach in tow. The thought of what Shinna might do to hae disturbed him deeply. But he looked back at the crowd that remained on the shoreline and took stock. The maman was still there, unsure of whether to follow Ramne or stay behind. The rest were now all silently looking at him as if suddenly aware of the dangers of this place. Kipnu never asked for this, but now he found himself chasing a dream for a person he had only just met, and it had become the most important thing in his life.
 
-"Know this. The Great Pavilion is not a prison, it is a slave cartel. Wherever you go here, you cannot escape from its reach. Right here... Right now... You've made a choice that will affect the rest of your lives. You've rejected a life of addiction, and you fight so that others may never know such a miserable fate."
+"I... am Kipnu," he said to the crowd, "And Casra is a dear friend of mine."
+
+A tear came to his eye as he thought of Linyu. _"Bring Linyu with you,"_ Casra's request resounded in his head.
+
+"Know this. The Great Pavilion is not a prison, it is a kanosin cartel powered by the work of addict-slaves. Wherever you go here, you cannot escape from its reach. Here and now, you've made a choice that will affect the rest of your lives. You've rejected whatever miserable life you'll find with Shinna, and you've resolved to fight so that others may never know such a miserable fate."
 
 "I choose to fight!" yelled a maman near him.
 
-"I choose to fight!" yelled another. And person-by-person, the entire shore had galvanized in the red light of fire. Linyu held tightly to the satchel of listeners and thought of hae mother, a flame of hope still inside.
-
-<!-- left off -->
+"I choose to fight!" yelled another. And one-by-one, the entire shore had galvanized in the red light of fire. He held tightly to the satchel Casra had left behind and thought of Linyu, with a flame of hope still inside.

@@ -22,19 +22,21 @@ Setting:
 
 ## Chapter 13
 
-Linyu was silent on the walk home. Kipnu was walking next to hae, trying in vain to think of comforting things to say, but he held hae hand in the hopes that it would provide some comfort. He tried to meet the people in the group, but there were too many altogether.
+Kipnu was silent on the long walk home, following the perimeter of the island to avoid guardians. Fanla walked next to him, trying in vain to think of something to say. They were both too shocked to think clearly.
 
 "Kipnu," a maman called to him.
 
-It was the young maman who had begged Ramne to stop, hae black robes still drenched and arms folded around hae to keep warm. He looked back at hae, and slowed to match hae pace. Thi seemed a bit too thin to be healthy and hae eyes were dark and sunken.
+It was the young maman who held back his spear with hae words, hae black robes still drenched and arms folded around hae to keep warm. He looked back at hae, and slowed to match hae pace while Fanla kept a watchful eye to the forest, searching for an opening in the canopy where that fallen tree left a gap. The maman seemed to be teetering on malnourished and hae eyes were dark and sunken.
 
 "Yes, Um.."
 
-"Ginnu. Ginnu um Holrag."
+"Ginnu. Ginnu um Yansha."
+
+Thi spoke slowly, with a slurred tone.
 
 "Ginnu. You're the one joined to Ramne?"
 
-"We're... partners."
+"We're not joined... We're... partners."
 
 He realized the lack of a pendant around her neck.
 
@@ -42,67 +44,63 @@ He realized the lack of a pendant around her neck.
 
 Thi went silent, and changed the subject.
 
-"I know it may seem strange, that I chose to go with you and not him, but I really do support your efforts."
+"I want to be rid of him."
 
 "Is that so?" Kipnu asked, unconvinced. "How far are you willing to go to prove it?"
 
-"I will fight alongside you."
+"I will fight him alongside you."
 
 "And you would kill Ramne if it came to that?"
 
 Thi paused, not having thought of that possibility.
 
-"Look," Kipnu said, "I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne doesn't seem like the kind of man who would hesitate to kill you if he had to. You'll know nothing but misery if you stay with him or anyone else who might try to protect Shinna."
+"Look," Kipnu said, "I don't blame you for not wanting to hurt someone you care about, Ginnu. But Ramne wouldn't return the favor. He wouldn't hesitate to kill you if he had to. Nothing but misery follows a man like that."
 
-"He just likes hae for the money. He wouldn't touch me."
+"He wouldn't lay a finger on me. I lead him to money."
 
-    "What do you do for him?"
+"What do you do for him?"
 
-    "I was Ramne's thief. I snuck into places and unlocked doors. I know Rudjan and Yansha like the skin on my knees."
+"I sneak into places, unlock doors, overhear secrets and... other things. I know everything about Yansha."
 
-    "Does he pay you well?"
+"Does he pay you well?"
 
-    "That's none of your business."
+"None of your business."
 
 "Sounds like he has the better end of the deal."
 
-    "We have an arrangement. We're both happy with it."
+"We have an arrangement. We're both happy with it."
 
-    "What do you think he'll do the minute someone else comes along? What did he do to Casra when Shinna came along."
+"What do you think he'll do the minute someone else comes along? I've heard he betrays the people closest to him."
 
-    Ginnu kept walking with hae head faced forward, and a pout on hae lips.
+Ginnu kept walking with hae head faced forward.
 
-    "Kipnu," she asked, "Why do you care so much about Casra? Ramne and I have met every tribe leader on this island and no one has ever mentioned your name."
+"Kipnu," she asked, "Why do you care so much about Casra?"
 
-    "There's something here. A key to something bigger."
+"There's something about hae. In the air thi has about hae."
 
-    "You high or something?"
+"Love?"
 
-    He sighed. "It's hard to explain."
+He sighed. "Not exactly. It's hard to explain."
 
-    They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the smoldering twigs and thinking about what sort of torture Shinna had planned for Casra.
+They arrived at the fallen tree and immediately divided into work teams. Some of the experienced in the group took Casra's fishing nets to the southern shore to catch fish for dinner while the rest stayed behind to build a fire. Kipnu sat watching the twigs catching fire and thinking about what sort of torture Shinna had planned for Casra. Ginnu sat beside him, keeping a proper distance of distrust.
 
-    "Kipnu?" Linyu broke his silence for the first time since coming home.
+"Kipnu," thi started. "I still want to fight."
 
-    "Linyu!" he said with a smile, and hugged hae. "How are you feeling?"
+"Well, you couldn't lift a dagger the way you are now."
 
-    "I want to fight."
+"There are many ways to help."
 
-    "Linyu, it's dangerous out there. Your mother would never forgive me if something happened to you."
+The firewood had been added, and the flame began to take hold.
 
-    "But mom needs me."
+"Did Casra keep any herbs?" thi asked.
 
-    He held hae hands in his own.
+Kipnu recalled the flavors in the stew he had earlier. "A few," he said.
 
-    "You're right, Linyu. But there are many ways to help that don't put your life in danger."
+"Show me?"
 
-The firewood had been gathered, and a flame started. Ginnu was itching to make friends, so she asked them, "Hey you two, did Casra ever keep any herbs here?"
+Kipnu retained some suspicion and said, "Yea, let's go."
 
-Linyu said, "A few."
-
-"Would you mind showing me?"
-
-Kipnu retained some suspicion and said, "Yea, let's go," to make sure she wasn't alone with Linyu.
+<!-- left off -->
 
 He followed behind them and waited until they entered, but before he could climb in he heard footsteps, light and swift in the distance.
 
