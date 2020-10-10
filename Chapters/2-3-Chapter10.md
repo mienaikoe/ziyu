@@ -8,7 +8,7 @@ A hand fell upon Kipnu's back and stayed there - intentional, not accidental. He
 
 "Hold still," a voice called from behind the hand. He could almost place the maman it came from. Thi grasped his arm firmly and pricked him with a needle. It jerked away as a reflex, and the maman let it go.
 
-"Trust me," thi said, and he steadied his hand for hae. Thi had the hand of a doctor, adept and confident, and the injection flowed smoothly into his veins. Gradually, his headache subsided and his eyesight returned, and he saw the maman clearly. Thi had the same kelp clothing as the others and a mask around hae mouth made of thin woven vines.
+"Trust me," thi said, and he steadied his hand for hae. Thi had the hand of a doctor, adept and confident, and the injection flowed smoothly into his veins. With each wash of his blood through his body, the headache subsided and his eyesight returned, and he saw the maman clearly. Thi had the same kelp clothing as the others and a mask around hae mouth made of thin woven vines.
 
 Thi stood up and looked at the crowd so as not to rouse suspicion.
 
@@ -52,11 +52,11 @@ A wave of pain began to swell up again and he clutched his forehead and closed h
 
 He did as she told and immediately winced at a stinging sensation covering his tongue.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Lin eying the shiny pendant around his neck. The stinging went away after a minute, along with the recurrence of his headache.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Lin eying the shiny pendant around his neck. The stinging went away after a minute, along with the sharp pain in his head.
 
-"The pain... it's gone. What is paosin?" he asked.
+"It's gone. What was it?" he asked.
 
-"Back at the pavilion, I gave you antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdraw," Casra responded.
+"Back at the pavilion, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdraw," Casra responded.
 
 "I see," he said. The substances were familiar to him but he had never had the experience of taking them.
 
@@ -90,7 +90,7 @@ Thi laughed, and paused to prepare haeself.
 
 "I guess I'll start where I left off. You remember I mentioned traditions. One of the traditions we used to have was the evening. It used to be a time of storytelling, singing, confessing of love, public mediation. Anyone could stand up and say or do anything they wanted. Then some would group up and explore their sexualities together before sleep, and others would just sleep if they weren't ready. The evening was a place and time where people weaved their lives together and apart and together again, and everyone grew closer to each other because of it. I had been under the addiction, but I had the faculty to understand their words and feel the love of a tribe more deeply than I knew of my junds."
 
-"On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, felt hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
+"On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, saw hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
 
 "Setre..." Kipnu said hesitantly, "She's a guardian now, right?"
 
@@ -104,7 +104,7 @@ Kipnu was starting to have his doubts, but there were still more questions quave
 
 "So what did happen? How did you become the exiled leader of an island prison."
 
-"I told you this was a long story," thi said with a smirk. "When I was in Rudjan, working with Kanosin patients, I saw myself as just one of many doctors who were pursuing this goal. But after Ulukoma, my life's work became deeply personal and unique. I felt addiction, knew it deeply, like a relationship I wanted so badly to get out of but couldn't. And it was all around me in Ulukoma, affecting almost everyone I knew and had come to love. When I got sober, I could have just left this place - my sentence was long up. But these people were my family now, so for the next Ma'Tova I worked with each one of them to make it out of addiction. The ones that made it swore to me the lives I had given back to them, and learned my methods.
+"I told you this was a long story," thi said with a smirk. "When I was in Rudjan, working with kanosin patients, I saw myself as just one of many doctors who were pursuing this goal. But after Ulukoma, my life's work became deeply personal and unique. I felt addiction, knew it deeply, like a relationship I wanted so badly to get out of but couldn't. And it was all around me in Ulukoma, affecting almost everyone I knew and had come to love. When I got sober, I could have just left this place - my sentence was long up. But these people were my family now, so for the next Ma'Tova I worked with each one of them to make it out of addiction. The ones that made it swore to me the lives I had given back to them, and learned my methods.
 
 "And then Shinna arrived. Many who fought so hard to break their addiction were seduced by the concept of antikan as a way to 'cheat' on their sobriety, but they never saw a drop. Others just wanted to feel superior over everyone else. Shinna made many empty promises and built an empire on the backs of their labor. Setre never gave up fighting for me and our tribe, grew impatient with my insistence on a peaceful resolution. She was right, of course, and at the end of it she forced me to leave to keep Linyu safe. I promised Setre I would return one day when Linyu was old enough, and I made her swear to me that she would keep the council alive. That day was yesterday. But when Linyu told me thi saw her in the forest, holding you down and taking you away, I knew it was over."
 
@@ -292,4 +292,4 @@ Linyu got up and walked toward the bed.
 
 "The floor is good," he said to himself, settling into a space underneath the table.
 
-Linyu fetched him a pillow, filled with what he presumed was old dried leaves. To his surprise, it was comfortable, and the ground was warmer than it should have been in such a cold place. He settled into his spot, felt his heavy eyes folding over his eyehaw, and listened as the sounds of Casra's movements settled near Linyu. Casra's voice mulled over the walls in a soft hum, painted them with the words that lay behind them. Words that Linyu already knew. Words that Kipnu didn't need to.
+Linyu fetched him a pillow, filled with what he presumed was old dried leaves. To his surprise, it was comfortable, and the ground was warmer than it should have been in such a cold place. He settled into his spot, felt a great weight folding over his eyehaw, and listened as the sounds of Casra's movements settled near Linyu. Casra's voice mulled over the walls in a soft hum, painted them with the words that lay behind them. Words that Linyu already knew. Words that Kipnu didn't need to.

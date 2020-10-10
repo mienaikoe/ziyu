@@ -76,19 +76,17 @@ He wrestled free from hae grip, responded with a voice subdued but not wholly de
 
 "No. You don't know your limits. You're not some fucking hero, Kipnu. This isn't the place or the time. There are people behind every risk you take. People who are relying on you to stay alive."
 
-"If you didn't want my help, you should never have plucked me from Shinna."
+"What good is my life if I can't use it to make things right? I swore an oath to act when a life is in danger, and I'm not about t–"
 
-"You're telling me you'd rather be a mindless drone for Shinna than cautious with your own life?"
+"I swore the same oath. It's the reason I saved you from Shinna, the reason I chose to save a man who was more likely to live than my own kaln. What about us, Kipnu? What is your integrity worth when it blocks others from exercising their own?"
 
-"Why should I even care what happens here?" he said. "I just got here yesterday. My real life is back in Heiko, where I belong."
+Hae hands had grasped his shoulders, shaking with frustration as thi wept for hae kaln, for Kipnu to understand. But a fire still raged within him. Perhaps it was physiological, a side effect of hypothermia, and if a mind were in control of itself he might have stopped himself, spared the both of them the anguish it would cause. Instead, it smothered the subtleties of his personality and left only pride in that moment.
 
-"Then go on," thi said. "Leave and go be the hero you want to be. This time you won't have me to stop you."
+"I never asked for your help," he said. He pushed hae hands away and walked into the darkness, where Casra could see him no longer.
 
-Thi walked swiftly toward the beach, leaving Kipnu to his anger. And as thi grew further away, his conviction melted into regret. He didn't mean any of what he'd said. There was a feeling, a welling up of emotion, and the words he said were a desparate attempt to understand it. Casra was grieving, and he'd pushed hae too far. But it was much too late for his acknowledgements to matter.
+"Then go," thi said to him. "Go be the hero you want to be. I won't stop you this time."
 
-The air was quiet, and a deep regret came to him as it does in those moments. He wanted hae to stop, to turn around and hear his apology.
-
-But Casra didn't stop.
+Thi drie hae tears and walked swiftly toward the beach, leaving Kipnu to his own fate. And as the distance between them grew, he felt the firey anger cool to dying embers. The air was quiet, and a deep regret came to him as it does in those moments. There was a feeling, a welling up of emotion, and the realization that the words he said were baseless and unnecessary. Casra was grieving, and he hadn't one shred of empathy for hae. Thi was right, he'd come to understand, but it was much too late for acknowledgements.
 
 Fanla stood just near a young campfire, looking out at the crowd. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. The bread supply had run out, so everyone was splitting pieces for each other, and huddling to keep warm. When Casra emerged from the forest, she immediately came to her and they shared a moment of pain together. Even from afar, Kipnu could tell there was something special about Fanla. In her eyes or her earnest sense of touch. She knew how to heal the thngis that he could not.
 
@@ -162,7 +160,7 @@ Kipnu rested the spear on the ground and scoffed at the man. He noticed that the
 
 Casra spoke to Ramne, "I hope your maman is as disappointed in you as I am."
 
-"Thi won't be so disappointed when thi's swimming again in the deep blue sea," he responded. A gleeful look was pasted across his face.
+"Thi won't be so disappointed when thi's swimming in the deep blue," he responded. A gleeful look was pasted across his face.
 
 Kipnu clenched his fists around the spear as Ramne's brutes disappeared into the forest with a few stragglers from the beach in tow. The thought of what Shinna might do to hae disturbed him deeply. But he looked back at the crowd that remained on the shoreline and took stock. The maman was still there, unsure of whether to follow Ramne or stay behind. The rest were now all silently looking at him as if suddenly aware of the dangers of this place. Kipnu never asked for this, but now he found himself chasing a dream for a person he had only just met, and it had become the most important thing in his life.
 

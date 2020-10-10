@@ -76,7 +76,7 @@ The floor became an ocean of silk and he was sinking deeper into it with every m
 
 Thi said, "Never forget... I own you."
 
-His memory of reality faded into the night, hidden forever from the mind where the luckiest of regretful memories live. 
+His memory of reality faded into the night, hidden forever from the mind where the luckiest of regretful memories live.
 
 In its place, a series of dreams.
 
@@ -88,9 +88,9 @@ He woke up again, but this time he was suspended above Palinan with the full bri
 
 "Liffa!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kipnu tried to grab Liffa right as it swallowed him, but thi was lost in the darkness. Kipnu kept swimming through the dark, reaching for the next place Liffa could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
 
-He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Feeling sick, he dropped his head back down and tried to rest.
+He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Incessant chills and aches began to seep into his bones, so he dropped his head back down and tried to rest.
 
-"Shit, What did I do?" he said to himself. The spectre of guilt began to seep into his bones, carrying with it incessant chills and aches. He was still confused, but he remembered Shinna's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him.
+"Shit, What did I do?" he said to himself. He was still confused, but he remembered Shinna's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him.
 
 "Kipnu! Get up!" A voice called to him from behind the fabric. It was Setre.
 
@@ -102,7 +102,7 @@ He pushed her away with what little strength he had.
 
 "What happened to me?" he shouted at her, holding his head in agony.
 
-"The kanosin will wear off" she said, some trouble in her voice. 
+"The kanosin will wear off" she said, some trouble in her voice.
 
 "I need more... make it stop."
 

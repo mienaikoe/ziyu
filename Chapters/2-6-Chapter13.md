@@ -114,149 +114,117 @@ She stopped just short of the range of his spear.
 
 "How could you let this happen?" she asked. Her eyes were glassy, but her face was furious.
 
-"My only kaln..."
+"My only kaln..." her lips quivered.
 
 "Setre..." there was nothing to say.
 
-"My only..."
+She thrust her spear into the ground with a roar of anger.
 
-She fell to her knees and wept, finally giving herself a moment to grieve. But only just.
+"You should be the one in that water right now. The fact that you're standing here and Linyu is dead tells me everything I need to know."
 
-"Setre, let's talk about it inside," he said, kneeling to her. She took his hand and lifted herself up in quiet assent.
+"I nearly died trying to save hae."
 
-She took the ladder first, not looking down to test her footing or find the bottom. She saw Ginnu standing in the kitchen, rummaging through the herb box with a lantern thi had found,
+"But you fucking didn't!"
 
-"How did you get here?" she asked, suspicious of the maman.
+She took up her spear again and cut the air clean in two, landing the blade squarely between Kipnu's feet. Her breaths were labored but she wasn't done, so Kipnu took up his spear and defended himself. The bystanders dared not get anywhere near them.
 
-Startled, Ginnu shot hae head toward Setre and abruptly closed the herb box. By the time Kipnu had made it down the ladder, Setre had already emptied hae hands and pushed Ginnu toward Kipnu.
+"Setre, stop this."
 
-"What's this all about?" Kipnu demanded, but Setre ignored him, pulled a modest length of rope from a buttoned loop on the back of her tunic and held it in front of her like a weapon. Ginnu's expression was that of fear as thi kept hae distance from both of them. But thi couldn't escape from Setre, who swiftly grabbed hae wrists and tied them behind hae back.
+"I won't stop until you're dead."
 
-"Ginnu is a spy. Thi must be silenced," she responded, struggling to keep hae still.
+She swung at him hard with Kipnu blocking each blow with a great deal of effort, moving him into the dark where she had the upper hand.
 
-"Always death," Kipnu grumbled to himself, "When does it end."
+"Killing me won't change what's happened."
 
-Setre bound Ginnu's ankles as well and sat hae down near the ladder while Kipnu sat at the table. Ginnu didn't bother to fight; thi was looking at the ground, shaking with fear, tears in hae eyes.
+"Maybe not. But I'll feel a whole lot better."
 
-Kipnu pleaded to her, "This is too much. Ginnu's done nothing to sow distrust."
+She backed him onto a root in the ground and he lost his footing, stumbling onto his back. All he could see was the dark of the forest and the thin blue streaks of light on her skin.
 
-"That is exactly how Shinna's spies work. They make you think they're on your side until they vanish one day and your enemies know everything about you. Thi already knows that I'm here. What else have you told hae?"
+"Give me one more reason I shouldn't kill you."
 
-"Nothing that the others don't know."
+"Linyu had light in hae eyes."
 
-"And what _do_ they know? There might be others."
+Setre lowered her offense. "Are you certain?" she asked. "No, you're messing with me."
 
-He sighed and stood up, frustrated. "Look, we'll just leave hae here and come back for hae once Casra's plan is over."
+Kipnu didn't know why this intrigued her so much, but he continued.
 
-"And then what? Thi lives the rest of hae life as a prisoner? As long as Kanosin exists in this world, theives like hae will do whatever it takes to keep it alive."
+"It's true. When I dove to pull hae back up, thi had distinctive blue light in hae eyes."
 
-Ginnu interrupted her, "I'm trying to escape this madness. Unlike you, Guardian Setre."
+Setre's eyes remained narrow, untrusting of his words, as he tried his best to recall every detail he could remember.
 
-Setre moved like a lightning bolt across the room and lifted Ginnu by hae shirt, to which thi made no noise of fear or surprise.
+"What has Casra told you about the blue?" she asked him, testing if his story held weight.
 
-"And unlike you," she said, "I'm trying to stop it."
+"The blue?" He was puzzled by her question, but tried to remember Casra saying something about it.
 
-Kipnu drew her away from Ginnu. "Setre, what's gotten into you?"
+"It's just a side effect of Kanosin," he said.
 
-Ginnu breathed heavy and sank into the floor. Kipnu felt pity for hae, but Setre was not amused.
+"Answer the question."
 
-Kipnu suggested to the group, "I'll set hae around the fire with the others. When I come back, we'll talk."
+"Thi said thi was and addict for a long time before Linyu came around."
 
-"You're better off throwing hae into it."
+"What else?"
 
-Kipnu shot her a glare, and then climbed up the ladder, stopping at the top to lift Ginnu up by the shoulders. He carried hae in his arms toward the now roaring fire. The fishing party had just returned with a enough food for everyone, and the smell was filling the air. On a soft patch of ground, he set hae down at a comfortable distance away while the others stared at them in curiosity.
+"Wait. Are you saying you think Casra drugged hae? But that's ridiculous, why would she drown hae own kaln?"
 
-"Why is thi tied up?" asked a maman.
+A series of thoughts went into motion in Setre's mind. Her eyes went blank, and her stance weakened to a slow pace around in a circle. Kipnu took the moment to stand back up and fetch his spear.
 
-"Nothing. It's Setre."
+"Let's talk inside," she said.
 
-"Tried to take a swing at her, eh?" the maman asked.
+"You almost killed me," he protested. "Can we talk about _that_ for a second?"
 
-"No nothing like that. I'm worried thi might run away."
+"I wasn't really going to kill you," she said so soberly that he wasn't sure she was the same person anymore. "It was cathartic just to watch you fear for your life."
 
-"To Ramne, you mean," said a man.
+She turned away from him and began walking back the way they came, ambling to Casra's old home.
 
-"Yes, to Ramne. Listen, even if Ginnu is planning something, Ramne will want hae back safe and sound. At worst, Ginnu is a bargaining chip, and at best, a skilled informant. If I come back and anything has happened to hae, you will answer to the giant warrior in the house."
+"What the fuck?" he said to himself, and took off after her.
 
-They heeded his bluff of a warning, and as he turned he paused to check on Ginnu again.
+He took the ladder first, remembering that Ginnu was still below.
 
-"Thank you," thi whispered to him through tearful eyes. If this was all an act, it was quite convincing.
+"Spears off!" he demanded, and she spent another moment looking for an inconspicuous place to stow her spear. Ginnu was nowhere to be found, but had left a lantern on the kitchen table, filled with fresh anomin oil that filled the air with its piney scent. He wondered where thi went, but was glad that the problem had resolved itself.
 
-Setre was sitting on the bed with a lantern, engrossed in all the random trinkets Linyu kept on a table nearby. She didn't notice Kipnu as he came back in.
+Setre had leapt from the ledge and landed on the ground of the entryway, bypassing the ladder altogether. Kipnu was hardly surprised by her acrobatic feats anymore. She fetched a cup from the kitchen and filled it with water from a spigot in the wall. The battle had parched his throat, and so he did the same.
 
-"Ginnu won't be going anywhere."
+Setre spoke to him over the dish cleaning basin.
 
-"The minute thi knows what you're up to, thi will run and tell Ramne."
+"Casra has a plan that not even I understand. But what you told me out there sparked an idea in my head. Before you came along, hae plan was to secretly recruit as many of hae old followers as thi could and slowly start a resistance. What thi didn't anticipate was the power of Shinna's spy network to discover them. So thi had to scrap that idea after we spoke today. Instead, thi would have to build an army - far from the influence of Shinna. Thi was afraid that such a big battle would be dangerous for anyone on the island and that's why thi agreed to send you back home with Linyu."
 
-"Look. Thi can't go back to the pavilion, and she can't just stay tied up here in the cold. Leave Ginnu with me."
+"But, that all went terribly wrong," he said.
 
-"Like I left Casra and Linyu with you?"
+"There are things about Kanosin that even the best doctors in Palinan don't know about; things that only a kanosin addict could ever understand. And you mainlanders sent all of them here in hopes that they would never return."
 
-She sighed and held her head with her hand, a tinge of regret in her expression.
+"Kanosin is just a drug. There's not much to know."
 
-"You better keep your eyes on hae. Thi could be the end of us all."
-
-"I will."
-
-He squatted down to her level and reset his focus, "Setre. I wanted to ask you about something I saw. It was with Linyu."
-
-She became suddenly attentive. "Yes, what is it?"
-
-"I was trying to remember what happened before I passed out, and the one thing I do remember was Linyu's eyes. They were glowing bright blue, like brighter than I'd ever seen before."
-
-Setre came to him and grabbed his arms, stunned by the revelation. "Is it really true?"
-
-He was confused at her excitement, but nodded. "There was nothing else to see down there - impossible to mistake."
-
-She smiled, laughed through her tears. "The currents here... they flow mainland. Thi may survive after all."
-
-He was confused beyond understanding, but smiled uncomfortably with Setre.
-
-<!-- left off -->
-
-When you first arrived, you mentioned that Casra had a plan and that it was working. What did you mean by that?"
-
-"Casra kept this plan from you because you were completely unexpected. You came out of nowhere, you saved Linyu, and got caught up in this war of secrets. But now when I look at you, leading a band of hundreds, picking up where Casra left; I can tell thi made the right choice to pull you out of Shinna's reach."
-
-"I would be honored, but I know thi only did it expecting I would help hae. There have been many times when I doubted hae vision and my role in it."
-
-"You're still here, ready to unseat a sociopathic brute from hae throne in the biggest cartel in Palinan."
-
-"I guess I can't complain then," he said.
-
-"So, the plan. Casra had originally intended to be captured by Shinna in an effort to rally hae old followers closer to each other. Lin and I would then start a resistance from this group, and overtake hae. What Casra didn't anticipate was the power of Shinna's spy network to thwart the resistance. Thi had to build an army instead - far from the influences of Shinna, and she started by plucking you straight from under the Great Pavilion. Thi took a chance that you would be able to lead the army when the time came. So when she saw hundreds of people on the shore, and a greedy Ramne, she didn't run. She's dedicated her whole life to this plan, and now she's gambled it all on you, Kipnu."
+"You are terribly mistaken, Kipnu. But you would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would inadvertently bring more attention to hae. And thi was right. He came to the pavilion bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more to force a bloodless surrender: a small but knowledgeable resistance within Shinna's ranks, and a much larger force made up of the strangers from the shoreline. Thi's gambled it all on me and you to finish the job."
 
 He stood up and faced the wall adjacent to the ladder.
 
-"I'm just a doctor who got here yesterday, Setre. I will do the best I can, but I really don't know what I'm doing."
+"I just got here yesterday, Setre. How can I lead an army?"
 
 "No, Kipnu. Every person out there followed you here."
 
 "They didn't have a better choice."
 
-"They had the choice of trusting you or trusting Ram."
+"They had the choice of trusting you or trusting Ramne."
 
-He let out a sigh. "And what about our numbers? We are outnumbered ten to one."
+He let out a sigh. "And what about our numbers? There are ten times as many people at the pavilion."
 
-Setre smirked and said, "There are only a few hundred who can actually fight. And half of them are Casra's old tribemates. And besides, you have radio."
+Setre smirked and said, "Only a few hundred guardians can actually fight. And half of them are Casra's old tribemates. Besides, we have these."
 
-"The listeners? The whole invisible wall thing is revolutionary, but those listeners are just toys."
+She pointed to a listener on her ear, a bit old but well taken care of.
 
-"Kipnu, have you ever considered how you could use it in a battle."
+"The listeners? The whole invisible wall thing is amazing, but isn't it just a toy."
+
+"Have you ever considered how you could use it in a battle?"
 
 "Well... no."
 
-"Of course the doctor wouldn't have. When Casra first told me about the listeners, I asked hae about whether Shinna could use them against us and thi laughed at me. But then thi realized that they could be used to deliver secrets or convey plans instantly. Messengers are used for strategy, but the listeners can be used for tactics. If you hide up in the trees surveying the Great Pavilion, your whole army can pin down the guardians and tie them up before anyone can make sense of the inevitable chaos."
+"Of course not. When Casra first told me about the listeners, I realized they could be used to deliver tactical information quickly and quietly. Messenger saffas are used for slower, more strategic information, but if you need to know where your opponent is weakest or how they're changing their strategy, nothing can beat a listener. You can station people high up in the trees who can see land, and dyour whole army can pin down the guardians and tie them up before anyone can make sense of what has happened."
 
-"That's brilliant, but how can I transmit from trees?"
+"That's brilliant. But what if Shinna has them too?"
 
-"You think that big tree out there is the only one Casra made? Thi and Linyu wrapped countless trees when they lived there and Linyu made a small transmitter box that can work with any of them."
+"As hae best and worst spy, trust me when I say that thi dismissed it just the same way you did when thi found out about it."
 
-"Linyu?"
-
-Thi nodded and said, "I like climbing, and mom wanted to know where I was when I did."
-
-Kipnu smiled at him, impressed and thinking of Casra.
+<!-- left off -->
 
 He continued his questions, "Okay, so how do we even locate guardians?"
 
@@ -341,3 +309,79 @@ Kipnu sent a nod in Linyu's direction which thi confirmed and moved to the trans
 Ginnu looked intently toward him without a trace of the doubt thi had before. Thi asked, "How is this possible?"
 
 Kipnu told her, "The wind speaks. And we listen."
+
+<!--
+  -- Setre Finds Ginnu
+  -->
+
+"How did you get here?" she asked, suspicious of the maman.
+
+Startled, Ginnu shot hae head toward Setre and abruptly closed the herb box. By the time Kipnu had made it down the ladder, Setre had already emptied hae hands and pushed Ginnu toward Kipnu.
+
+"What's this all about?" Kipnu demanded, but Setre ignored him, pulled a modest length of rope from a buttoned loop on the back of her tunic and held it in front of her like a weapon. Ginnu's expression was that of fear as thi kept hae distance from both of them. But thi couldn't escape from Setre, who swiftly grabbed hae wrists and tied them behind hae back.
+
+"Ginnu is a spy. Thi must be silenced," she responded, struggling to keep hae still.
+
+"Always death," Kipnu grumbled to himself, "When does it end."
+
+Setre bound Ginnu's ankles as well and sat hae down near the ladder while Kipnu sat at the table. Ginnu didn't bother to fight; thi was looking at the ground, shaking with fear, tears in hae eyes.
+
+Kipnu pleaded to her, "This is too much. Ginnu's done nothing to sow distrust."
+
+"That is exactly how Shinna's spies work. They make you think they're on your side until they vanish one day and your enemies know everything about you. Thi already knows that I'm here. What else have you told hae?"
+
+"Nothing that the others don't know."
+
+"And what _do_ they know? There might be others."
+
+He sighed and stood up, frustrated. "Look, we'll just leave hae here and come back for hae once Casra's plan is over."
+
+"And then what? Thi lives the rest of hae life as a prisoner? As long as Kanosin exists in this world, theives like hae will do whatever it takes to keep it alive."
+
+Ginnu interrupted her, "I'm trying to escape this madness. Unlike you, Guardian Setre."
+
+Setre moved like a lightning bolt across the room and lifted Ginnu by hae shirt, to which thi made no noise of fear or surprise.
+
+"And unlike you," she said, "I'm trying to stop it."
+
+Kipnu drew her away from Ginnu. "Setre, what's gotten into you?"
+
+Ginnu breathed heavy and sank into the floor. Kipnu felt pity for hae, but Setre was not amused.
+
+Kipnu suggested to the group, "I'll set hae around the fire with the others. When I come back, we'll talk."
+
+"You're better off throwing hae into it."
+
+Kipnu shot her a glare, and then climbed up the ladder, stopping at the top to lift Ginnu up by the shoulders. He carried hae in his arms toward the now roaring fire. The fishing party had just returned with a enough food for everyone, and the smell was filling the air. On a soft patch of ground, he set hae down at a comfortable distance away while the others stared at them in curiosity.
+
+"Why is thi tied up?" asked a maman.
+
+"Nothing. It's Setre."
+
+"Tried to take a swing at her, eh?" the maman asked.
+
+"No nothing like that. I'm worried thi might run away."
+
+"To Ramne, you mean," said a man.
+
+"Yes, to Ramne. Listen, even if Ginnu is planning something, Ramne will want hae back safe and sound. At worst, Ginnu is a bargaining chip, and at best, a skilled informant. If I come back and anything has happened to hae, you will answer to the giant warrior in the house."
+
+They heeded his bluff of a warning, and as he turned he paused to check on Ginnu again.
+
+"Thank you," thi whispered to him through tearful eyes. If this was all an act, it was quite convincing.
+
+Setre was sitting on the bed with a lantern, engrossed in all the random trinkets Linyu kept on a table nearby. She didn't notice Kipnu as he came back in.
+
+"Ginnu won't be going anywhere."
+
+"The minute thi knows what you're up to, thi will run and tell Ramne."
+
+"Look. Thi can't go back to the pavilion, and she can't just stay tied up here in the cold. Leave Ginnu with me."
+
+"Like I left Casra and Linyu with you?"
+
+She sighed and held her head with her hand, a tinge of regret in her expression.
+
+"You better keep your eyes on hae. Thi could be the end of us all."
+
+"I will."
