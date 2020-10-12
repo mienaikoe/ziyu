@@ -31,51 +31,35 @@
 
 ## Chapter 14
 
-    Kipnu paused the group in their quiet walk toward the Great Pavilion, smelling the first hints of fire in the air. He turned around and signaled to them to gather in close to him. Huddled to his right was Ginnu, untied and shivering from the cold.
+Kipnu stopped them at the top of the hill overlooking the pavilion, smelling the first hints of fire in the air. Ara was but a reddish sliver on the horizon, a view that he never fathomed to see. He turned around and signaled to them to gather in close. Huddled to his right was Fanla, who held the length of rope binding Ginnu's hands. It was an unpleasant position for the both of them, but she understood the weight of the job.
 
-    "From this point on, Linyu and I will be guiding you from above, so I want to go over a few things. What you see and what we see may not be the same. We will only be able to see things from above, so use your own judgment and decide what's best. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If any one of Shinna's guardians gets a hold of one, they will be able to predict our movements so don't let this happen. And finally, we are not here to kill, we are here to intimidate Shinna into giving up. Even if we have all of the weapons on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
+"From this point on, we'll split into the two groups I mentioned before. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If you're about to be captured, destroy it. We cannot let them get a hold of one. And finally, we are not here to fight, we are here to liberate. Even if we have all of the weapons and antikan on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
 
-    "Yea," they said in a broken unison.
+They made a gesture with their hands in assent, a sort of salute of honor that Kipnu had learned from Melna.
 
-    "Voices off, everyone clear?"
+"Ground team, stay here until you hear us through your listeners. Sky team, let's move."
 
-    They made a gesture with their hands to signal a clearer yes.
+Kipnu took him through the forest, ever closer to the fire until they came upon a tree with a slight lean toward the pavilion. Its roots looked as sturdy as any other tree and its trunk was littered with a coil here and there, a sign that Linyu had often climbed it.
 
-    "Stay here until you hear me through your listeners. I'll join you once you begin. Good luck, everyone."
+"This one," he whispered, looking up into the dark abyss, imagining Linyu there among its branches. He tied a rope to himself, leaving two long ends free, and began the climb up the tree. The lean helped to support their weight on each vault to the next position. With such a large tree, Kipnu was struggling to secure his footing on the bark, but he learned to find the various crevasses that formed out of the bark and use them to his advantage.
 
-    He put his arm around Lin and said, "Lead the way." Lin took him through the forest, ever closer to the fire until they came upon an old tree that was leaning due to shifting clay in the ground.
+He came to a large branch and tossed one of the ropes at his back over the top of it, and a woman below took the other end in her hands. There was such a strong sense of safety in something so simple as a friendly hand end of a rope, he thought. He shook his hands to clear out any soreness and dry the water from his palms. There was another half to go.
 
-    "This one," thi said, already starting to climb.
+A plethora of branches greeted him near the top, where he rested and tossed the other rope over the thickest branch he could find. Now all he had to do was wait for the others to join him.
 
-    Kipnu was concerned, "Is there a closer tree?"
+_So this is the canopy_, he thought. This place was bathed in the light of Ara, a sprawling terrain of leaves and branches bobbing in the wind for as far as the eye could see, like the earth itself had become an ocean.
 
-    "This is the tree you start on. We can travel between trees once we get up above."
+<!-- left off -->
 
-    He looked up into the dark abyss, and put his full trust in Linyu. They tied a rope to each other, one to the transmitter, and another long one for rappeling back down, and began the climb up the tree. They were relying on the lean of the tree to support their weight on each vault to the next position. With such a large tree, Kipnu was struggling to wrap his legs in a way that would secure him, but he watched as Linyu focused on scaling it with hae feet in the various crevasses that formed out of the bark.
+When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind above. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
 
-    "Wait up, Linyu," he said, feeling an upward tug on the rope.
+"Why is it so bright up here?"
 
-    "Sorry, Kipnu."
+"When you've been in the dark for so long, the light can seem painful."
 
-    Nearing the top, Kipnu could see branches, which served as nice places to rest, and the beginning of a canopy, with hints of Ara at the top.
+He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara in a gradient from dark to light. The Shaki Mountains, the Northern one out of which the city was carved. And the lines of houses and farms, mere specks on the land that formed a geometric pattern as natural as Ara itself.
 
-    "Why is it so bright up here?"
-
-    "These trees are so tall so their leaves can reach Ara's light."
-
-    "How do you mean?"
-
-    "You'll see."
-
-    When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind above. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
-
-    "Why is it so bright up here?"
-
-    "When you've been in the dark for so long, the light can seem painful."
-
-    He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara in a gradient from dark to light. The Shaki Mountains, the Northern one out of which the city was carved. And the lines of houses and farms, mere specks on the land that formed a geometric pattern as natural as Ara itself.
-
-    "Absolutely beautiful," he said. Linyu remained quiet, remembering all the times hae mother brought hae there. Kipnu secured his footing and turned around to look toward Ulu. Through the darkness, Kipnu could see cloud cover for at least as far as he could see, which was only about the length of the island. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky.
+"Absolutely beautiful," he said. Linyu remained quiet, remembering all the times hae mother brought hae there. Kipnu secured his footing and turned around to look toward Ulu. Through the darkness, Kipnu could see cloud cover for at least as far as he could see, which was only about the length of the island. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky.
 
 "Linyu, what are those red dots?" he asked, pointing toward the horizon.
 

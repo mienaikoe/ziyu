@@ -1,25 +1,3 @@
-<!--
-
-680
-
-
-ch13
-
-- Setre visits Kipnu in the night, and is furious at him for letting Casra get to a vulnerable position
-  - Setre plans the attack with Kipnu, tells them where the armory is so they can steal weapons.
-  - Linyu suggests using radio to synchronize movements
-  - Linyu teaches the people radio
-  - Linyu and Ramne's jundwoman, Ginnu, become closer
-  - Setre takes the antidote back to the Great Pavilion to heal the slaves who still follow Setre
-- Armed with listeners, they surround the Great Pavilion
-  - Kipnu hears strange signals from Holrag on the radio
-
-
-Setting:
-  - It's starting to get just above freezing temps
-
--->
-
 ## Chapter 13
 
 Kipnu was silent on the long walk home, following the perimeter of the island to avoid guardians. Fanla walked next to him, trying in vain to think of something to say. They were both too shocked to think clearly.
