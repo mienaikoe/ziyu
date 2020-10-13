@@ -98,19 +98,21 @@ Setre responded, "The wind listens!"
 
 They watched her blue light fade away, swallowed by that pervasive darkness of the forest they'd made a home in. He wondered at how Casra and Setre got along in the time before. They seemed so different now.
 
-"Kipnu," he heard Linyu's voice calling to him and he awoke from his daydream.
+"Kipnu," he heard Linyu's voice calling to him and he awoke from his thoughts.
 
-"Are you afraid of her?"
+"Whenever you go back to your home on the mainland," thi said, "don't forget about us."
 
-He smiled at the simplicity of the question, but inside he knew that the answer was far more complicated than even he understood.
+Hae doubtful eyes peered deep into his mind, tore down his defenses. Thi could tell that he wasn't entirely invested in all of this.
 
-"Setre is... a force to be reckoned with. This I know. But she has a good heart. I don't worry about her. I worry about Shinna."
+"Linyu!" Casra rebuked hae, but Kipnu wasn't offended. He knew there was a shred of truth in hae words; a truth that he couldn't stop feeling guilty about.
 
-Thi nodded hae head in understanding.
+"I could never forget about you, Linyu. Or your mother, or your nather. When I find a way to get my family back, I'll bring them here to tell you the stories."
 
-A thought crossed his mind and he followed it on a whim.
+"That's what every no-kano says. They never come back."
 
-"You know what I do when I'm afraid," he asked and Linyu shook hae head. He reached behind his neck and lifted a pendant from his neck, cherishing the nicks and scratches it had gathered over the years.
+Kipnu felt a small tear welling up. He wanted to say _I'm not one of those people. I mean the things that I say_. But instead he cracked a small smile to cover it up.
+
+"You know what I do when I miss my family?" he asked and Linyu shook hae head. He reached behind his neck and lifted a pendant from his neck, cherishing the nicks and scratches it had gathered over the years.
 
 "I hold onto this, and everything is okay again."
 
@@ -120,13 +122,13 @@ A thought crossed his mind and he followed it on a whim.
 
 "Do they have them too?" thi asked.
 
-"Of course," he said. "So they can feel comforted when they're afraid."
+"Of course," he said. "So they can feel comforted when they miss me."
 
 He carefully, put it around hae neck, and thi turned it over in hae fingers, looking at the detail in the engravings.
 
-He told hae, "If you want, you can borrow it for a while. So you too have something to hold onto whenever you're afraid."
+He told hae, "If you want, you can borrow it for a while. So you too have something to hold onto."
 
-Thi smiled and glanced at him, said, "Thanks!" and looked back down at it to really capture all of it. He glanced at Casra, who was smiling as thi came closer.
+Thi smiled with a glance and said, "Thanks!", looking back down to observe all its odds and ends. Casra was smiling as thi came closer.
 
 Thi said, "Okay Linyu, head back in or you'll freeze out here."
 

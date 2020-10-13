@@ -45,22 +45,23 @@ Kipnu took him through the forest, ever closer to the fire until they came upon 
 
 He came to a large branch and tossed one of the ropes at his back over the top of it, and a woman below took the other end in her hands. There was such a strong sense of safety in something so simple as a friendly hand end of a rope, he thought. He shook his hands to clear out any soreness and dry the water from his palms. There was another half to go.
 
-A plethora of branches greeted him near the top, where he rested and tossed the other rope over the thickest branch he could find. Now all he had to do was wait for the others to join him.
+A plethora of branches and rays of red light greeted him near the top, where he tossed the other rope over the thickest branch he could find and gave it a good shake to signal that he was ready. Now all he had to do was wait for the others to join him.
 
-_So this is the canopy_, he thought. This place was bathed in the light of Ara, a sprawling terrain of leaves and branches bobbing in the wind for as far as the eye could see, like the earth itself had become an ocean.
+This place was bathed in the light of Ara, a sprawling terrain of densely-packed leaves and branches bobbing in the wind, spread across the horizon's curve like the earth itself had become an ocean. He had shield his eyes from the searing brightness to look in the direction of the mainland. In the distance to the north, he could make out the Shaki Mountains, and saw some lights from the hill where Yansha sat. A bit to the south was the Rudjan wetlands, lit brightly with the boat lanterns he'd heard about but never saw for himself. And all along the coast were lines of houses and farms and patches of trees, mere specks on the land that formed a geometric pattern as natural as Ara itself.
+
+He turned around to look toward Ulu. Through the darkness, Kipnu could see patches of clouds that faded into Ulu. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky, ever still, ever bright. Like the small children of Ara. He wondered at what they might be, how long they'd been just beyond the veil of Ara.
+
+Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the pavilion. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
+
+Kipnu pulled a listener out of a satchel he was carrying and pulled the coil out of the wooden puck. With a small tool he'd found in Casra's home, he cleaved a hole into the branch, and quickly inserted the end of the coil that stuck out, letting the fresh wet wood take to it. A maman among them already had a listener on hae ear and waited for Kipnu to say something.
+
+"The wind speaks," he said in a sort of regal tone. He'd hoped that Setre was listening.
+
+The maman with the listener nodded to him and he smiled, satisfied that everything had gone well so far. He made a departing gesture to the three and made his way back across the branches and down the leaning tree.
 
 <!-- left off -->
 
-When they reached an area with several smaller branches, they could see clear rays of red light peering between the densely-packed thin leaves dancing with the wind above. Lin led him along one of them so they could reach the end and peek their heads above the canopy. The light of Ara beamed straight into his eyes, and he had to shield them for a moment.
-
-"Why is it so bright up here?"
-
-"When you've been in the dark for so long, the light can seem painful."
-
-He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara in a gradient from dark to light. The Shaki Mountains, the Northern one out of which the city was carved. And the lines of houses and farms, mere specks on the land that formed a geometric pattern as natural as Ara itself.
-
-"Absolutely beautiful," he said. Linyu remained quiet, remembering all the times hae mother brought hae there. Kipnu secured his footing and turned around to look toward Ulu. Through the darkness, Kipnu could see cloud cover for at least as far as he could see, which was only about the length of the island. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky.
-
+<!--
 "Linyu, what are those red dots?" he asked, pointing toward the horizon.
 
 "Don't know. Mom calls them Ara's children. They're always right above the clouds when Ara is far away."
@@ -69,33 +70,13 @@ He finally opened his eyes, and was amazed at what he saw. Shaki Bay, with Ara i
 
 "Always."
 
-Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do.
-
-"Well, shall we move a bit closer?" He asked.
-
-"Can I ask you something first?"
-
-He hesitated, "Well, sure."
-
-"Once this ends, and you go back to your home on the mainland. Don't forget about us."
-
-Hae doubtful eyes peered into a part of himself he had long forgotten. As if Linyu was directing Kipnu's subconscious, and he himself was just a passenger.
-
-"I could never forget about you, Linyu. Or your mother, or your nather. I will find a way to clear Ara and I'll come back to tell you all the stories."
-
-"That's what every outsider says to the people they meet while they're here. They never come back."
-
-Kipnu felt a tear well up without surfacing. He wanted to say _I'm not whoever disappointed you. I mean the things that I say_. But instead he cracked a small smile to cover up his sadness and said, "No excuses, no mistakes. You have my word."
-
-But Linyu didn't smile; thi gathered hae things and climbed across the canopy, toward the clearing where the great fire burned brightly in the darkness below.
-
-    They reached the base of a long thick branch that jutted its way into the opening, and Linyu found a coil wrapped around a smaller branch that grew out of it. Kipnu pulled up the battery and wrapped the slack rope in a simple knot around the smaller branch while Linyu twisted wires from the transmitter box to the coil ends. One-by-one, Linyu checked all of the connections and oriented the long face of the box toward the ground. Kipnu pulled a listener out of a satchel he was carrying and held it to his ear as an eager Linyu positioned haeself to speak into the transmitter.
+Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do. -->
 
     Thi spoke into the transmitter with anticipation, "If you can hear this, we're ready to go," and then laughed at Kipnu who had pulled it away from his ear because it was so loud.
 
     "It's louder, the closer you are," thi said.
 
-    "Yea, I figured that out!" he exclaimed, putting the listener back into his satchel. The two looked over the big branch onto the Great Pavilion, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
+    "Yea, I figured that out!" he exclaimed, putting the listener back into his satchel.
 
     Kipnu moved to the transmitter and said, "Seven guardians around the fire. Five near the armory. Approach from the East, everyone. Approach from the East."
 
