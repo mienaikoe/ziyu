@@ -156,7 +156,7 @@ Ramne made a thunderous grunt, and the others echoed it back and fell into forma
 
 "Stop!" The maman in black ran toward them. "You've done enough!"
 
-Kipnu rested the spear on the ground and scoffed at the man. He noticed that the other group had stopped to observe, but with a swift gesture from Ramne, they turned around and kept moving.
+Kipnu rested the spear on the ground and scoffed at the man. He noticed that the other group had stopped to observe, but with a quiet sound from Ramne, they turned around and kept moving.
 
 Casra spoke to Ramne, "I hope your maman is as disappointed in you as I am."
 

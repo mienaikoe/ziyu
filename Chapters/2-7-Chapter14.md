@@ -53,11 +53,37 @@ He turned around to look toward Ulu. Through the darkness, Kipnu could see patch
 
 Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the pavilion. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
 
-Kipnu pulled a listener out of a satchel he was carrying and pulled the coil out of the wooden puck. With a small tool he'd found in Casra's home, he cleaved a hole into the branch, and quickly inserted the end of the coil that stuck out, letting the fresh wet wood take to it. A maman among them already had a listener on hae ear and waited for Kipnu to say something.
+Kipnu pulled a listener out of a satchel he was carrying and removed the coil assembly from the wooden puck. With a small tool he'd found in Casra's home, he cleaved a hole into the branch and inserted the end of the coil that stuck out, giving time for the fresh wet wood take to it. As they waited, they watched as the last sliver of light extinguished itself into the ground, and an eerie feeling overcame them. They knew that this strange new kind of darkness would soon be everywhere.
 
-"The wind speaks," he said in a sort of regal tone. He'd hoped that Setre was listening.
+A maman, Penyi, produced a listener of hae own and asked for Kipnu to say something into the newly fastened coil.
 
-The maman with the listener nodded to him and he smiled, satisfied that everything had gone well so far. He made a departing gesture to the three and made his way back across the branches and down the leaning tree.
+"The wind speaks," he said with tone of conviction: the sort that Casra spoke with. He'd hoped that Setre was listening.
+
+The maman with the listener nodded to him and he smiled, knowing Linyu's work hadn't gone to waste. He made a departing gesture to the three and made his way back across the branches and down the leaning tree, all the while wondering about in those strange red dots in the sky, and Linyu's strange blue eyes in the deep.
+
+"Seven guardians around the fire," he told the ground team. "Five near the armory. We'll approach from Ulu-side."
+
+And without a moment to pause, he led them in a sparse line through the forest, around the pavilion grounds and further into the dark.
+
+Penyi's voice chimed in through the listener. "There's a commotion in the pavilion," thi said, "The guardians are leaving the armory."
+
+"Now's our chance," he told them. "I need four volunteers to come with me. Walk silently and spread out."
+
+He didn't stop to choose but began walking right as he'd given the order. He knew that time was short.
+
+They reached the back side of the armory tent and Kipnu switched to gestures: a hand from his chest to the underside of the tent, then onto the ground in a waving motion. The four rose their hands in confirmation and he went down into the dirt, underneath the cloth, and arose in a makeshift room lit only by the fire from the far side. He firmly grasped the stolen spear and looked for signs of movement, but saw only racks upon racks of spears and daggers and nets. It was clear that they considered food and battle to be one in the same.
+
+"Three guardians running toward the armory," said Penyi, and Kinpu suddenly found himself in the middle of the tent, looking for a place to hide. He considered running back toward the place he came in, but knew that if they spotted him, they would be led to the others. There was no option but to stay far away, taking cover behind racks and move with them.
+
+"Those damned traitors," said a woman as she entered.
+
+A man's voice followed hers, "We need twenty, maybe thirty. Fetch ten, each of you. I'll handle the rest."
+
+_Ramne. Of course he's leading the counter-resistance._
+
+Kipnu's eyes were trained upon the three figures, watching every move and thinking of contingencies in case they did catch on. He could dispatch Ramne now, with just a spear in the back. _And how satisfying it would be to do so,_ he thought. But Setre promised that she could handle this. He reminded himself of the importance of his mission - to uplift the addicted and force a coup.
+
+Moments stretched longer and longer until Kipnu began to feel uneasy.
 
 <!-- left off -->
 
@@ -71,22 +97,6 @@ The maman with the listener nodded to him and he smiled, satisfied that everythi
 "Always."
 
 Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do. -->
-
-    Thi spoke into the transmitter with anticipation, "If you can hear this, we're ready to go," and then laughed at Kipnu who had pulled it away from his ear because it was so loud.
-
-    "It's louder, the closer you are," thi said.
-
-    "Yea, I figured that out!" he exclaimed, putting the listener back into his satchel.
-
-    Kipnu moved to the transmitter and said, "Seven guardians around the fire. Five near the armory. Approach from the East, everyone. Approach from the East."
-
-    Linyu pointed to the south as the first signs of movement came from their group, moving in a line toward the Great Pavilion and shifting their movement to the East. *Setre's plan is working!*, he whispered.
-
-    Their view of the armory was slightly obscured, but they watched as the group circled around it from the back.
-
-    He noticed one of the eating guardians look to the side, and he quickly said, "Stop! Stop!" into the transmitter. They did, and the guardian went back to eating.
-
-    "Walk slower and spread out," he said. And they watched as the group followed his orders. Once they reached the back side of the armory Kipnu addressed them, "Two people go in and survey the place. The rest of you, sit tight and get your bearings." Kipnu watched them enter and then trained his eyes on the guardians, watching every move and thinking of contingencies in case they did catch on. Moments stretched longer and longer until Kipnu began to feel uneasy about the time it was taking to search a tent so small.
 
     He asked Linyu, "What do you think is taking them so long?"
 
