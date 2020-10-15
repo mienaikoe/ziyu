@@ -93,7 +93,29 @@ Kipnu took a dagger carefully from the stand in front of him, and held it snugly
 
 He tossed aside the carpet and revealed a small wooden door among the thin damp leaves that had meandered there. Its polished hinges and edge moulding were too precise to be made in Ulukoma – closer to Shaki design – but the hinges were covered in a thick grease, as if whoever had placed it there wanted to be the only person using it. With a small jump Ramne fell into the hole, landing squarely upon a stone floor below. _What's he want antikan for?_ Kipnu wondered, and he slowly approached the hole to peer in.
 
-It was dark save for the patterened blue streaks across Ramne's chest that showed a row of crates lining the wall in front of him. He opened one and pulled out a wide cylinder of some sort. It didn't appear to be designed with a syringe in mind, but Kipnu supposed that it could be. He pulled out three others, and packed them in a satchel hung over his left shoulder.
+It was dark save for the patterened blue streaks across Ramne's chest that showed a row of crates lining the wall in front of him. He opened one and pulled out a metallic cylinder of some sort, looking it over in his hands.
+
+"Yes, that'll do nicely," he said.
+
+He pulled out three others, packed them in a satchel hung over his left shoulder, and shut the crate. Kipnu moved back to avoid being seen, but Ramne stayed below. He looked again and saw Ramne's blue light illuminating the marred features of a familiar face.
+
+"You awake now?" Ramne murmured and reached for hae arm, measuring the life left in hae body.
+
+Casra didn't answer.
+
+"Good," he said with a hint of remorse in his voice. But he didn't stick around to grieve or regret. Kipnu removed himself from the hole as Ramne lifted himself out and covered any sign of there having been a door in the floor.
+
+_This is my opening_, Kipnu thought. But Casra's state was more important. Surely someone was expecting Ramne and would come to the armory looking for answers. Surely enough, the woman from before came through the entryway and barked at him.
+
+"You coming?" she asked in a rush.
+
+He lunged at her, covering nearly half the room in a single step, but she moved out of his way just in time.
+
+His voice boomed at her in a sort of low-pitched growl. "If you ever rush me again, you'll be the one locked in the cellar."
+
+She looked him up and down with a disgusted look on her face and ran off back toward the pavilion, while Ramne picked up a spear of his own.
+
+"Time to light this place up."
 
 <!-- left off -->
 
@@ -112,35 +134,29 @@ What to do here... could fall into the dark pit, but that was kind of a shit tro
 
 Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do. -->
 
-    Kipnu shot a glance toward hae feet where
+<!--
+Kipnu shot a glance toward hae feet where
 
-    "Maybe this is where they went," thi said.
+"Maybe this is where they went," thi said.
 
-    "Maybe," he said, taking up two daggers and handing one to Ginnu. Hae hands took the dagger as thi looked up with concern and confusion, but he could do nothing to quell it - they had to find the missing scouts. Kipnu kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for one leading into the darkness.
+"Maybe," he said, taking up two daggers and handing one to Ginnu. Hae hands took the dagger as thi looked up with concern and confusion, but he could do nothing to quell it - they had to find the missing scouts. Kipnu kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for one leading into the darkness.
 
-    "I've never seen this before," thi said.
+"I've never seen this before," thi said.
 
-    "This place gets stranger the longer I'm here," he responded.
+"This place gets stranger the longer I'm here," he responded.
 
-    After a pause, thi said. "Let me go first. I won't raise suspicion."
+After a pause, thi said. "Let me go first. I won't raise suspicion."
 
-    "After you."
+"After you."
 
-    With their hands against the wall, they made their way into the tunnel with only the blue light on Kipnu's chest to light the way. After only a few steps, Ginnu suddenly and silently vanished, followed by a loud thump that reverberated in a space bigger than he could imagine.
+With their hands against the wall, they made their way into the tunnel with only the blue light on Kipnu's chest to light the way. After only a few steps, Ginnu suddenly and silently vanished, followed by a loud thump that reverberated in a space bigger than he could imagine.
 
-    "Ginnu?!" he yelled out to hae, but there was no answer.
+"Ginnu?!" he yelled out to hae, but there was no answer.
 
-    He moved a little closer and came upon a sharp cut off in the ground where there was no more reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. With his right arm, he covered his blue mark, readying his dagger in the other and watched as the mysterious person came closer. The figure stopped immediately below him, several strides down and removed a shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, examining at the body lying on the floor in front of him.
+He moved a little closer and came upon a sharp cut off in the ground where there was no more reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. With his right arm, he covered his blue mark, readying his dagger in the other and watched as the mysterious person came closer. The figure stopped immediately below him, several strides down and removed a shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, examining at the body lying on the floor in front of him.
 
-    "Now who might you be?" He murmured to himself, reaching for her arm. His eyes grey wider in an instant.
-
-    "Ginnu? What are you doing down here?"
-
-    Thi didn't answer, unconscious.
-
-    "Ginnu? Oh fuck," he realized what had happened to hae, and instantly lifted himself and ran back the way he came.
-
-    Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
+Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
+-->
 
     He rubbed his toe to ease the pain and then moved to Ginnu who still lay where Ramne found her.
 
