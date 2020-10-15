@@ -71,21 +71,35 @@ Penyi's voice chimed in through the listener. "There's a commotion in the pavili
 
 He didn't stop to choose but began walking right as he'd given the order. He knew that time was short.
 
-They reached the back side of the armory tent and Kipnu switched to gestures: a hand from his chest to the underside of the tent, then onto the ground in a waving motion. The four rose their hands in confirmation and he went down into the dirt, underneath the cloth, and arose in a makeshift room lit only by the fire from the far side. He firmly grasped the stolen spear and looked for signs of movement, but saw only racks upon racks of spears and daggers and nets. It was clear that they considered food and battle to be one in the same.
+They reached the back side of the armory tent and Kipnu switched to gestures: a hand from his chest to the underside of the tent, then onto the ground in a waving motion. The four rose their hands in confirmation and he went down into the dirt, underneath the cloth, and arose in a makeshift room lit only by the fire from the far side. He firmly grasped his stolen spear and looked for signs of movement, but saw only racks upon racks of spears and daggers and huge fishing nets with metal weights, All of them hardened and polished to a mirror finish.
 
 "Three guardians running toward the armory," said Penyi, and Kinpu suddenly found himself in the middle of the tent, looking for a place to hide. He considered running back toward the place he came in, but knew that if they spotted him, they would be led to the others. There was no option but to stay far away, taking cover behind racks and move with them.
 
 "Those damned traitors," said a woman as she entered.
 
-A man's voice followed hers, "We need twenty, maybe thirty. Fetch ten, each of you. I'll handle the rest."
+A man's voice followed hers, "We need fifty, maybe sixty. Fetch fifteen, each of you. I'll handle the rest."
 
 _Ramne. Of course he's leading the counter-resistance._
 
-Kipnu's eyes were trained upon the three figures, watching every move and thinking of contingencies in case they did catch on. He could dispatch Ramne now, with just a spear in the back. _And how satisfying it would be to do so,_ he thought. But Setre promised that she could handle this. He reminded himself of the importance of his mission - to uplift the addicted and force a coup.
+Kipnu's eyes were trained upon the three figures, watching every move, thinking of contingencies in case they noticed him there in the corner. But for now, they were focused on their work.
 
-Moments stretched longer and longer until Kipnu began to feel uneasy.
+"You done yet?" said Ramne, impatiently piling spears into their already-full arms. Ramne's lackies had cleared the racks near their side of the armory, and ran off on their way to fight Setre's force, leaving Ramne alone with him.
+
+_I could dispatch Ramne now. Just a dagger in the back_, he thought, _wipe that smugness clean off his face_.
+
+Kipnu took a dagger carefully from the stand in front of him, and held it snugly in his hands, imagined getting close enough to land a solid blow in one quick motion. But Ramne had other plans. He paced the racks up and down, with Kipnu moving between the racks discreetly to stay out of his line of sight.
+
+"Ahh," he whispered to himself atop a conspicuously placed carpet. "Just what I was looking for."
+
+He tossed aside the carpet and revealed a small wooden door among the thin damp leaves that had meandered there. Its polished hinges and edge moulding were too precise to be made in Ulukoma – closer to Shaki design – but the hinges were covered in a thick grease, as if whoever had placed it there wanted to be the only person using it. With a small jump Ramne fell into the hole, landing squarely upon a stone floor below. _What's he want antikan for?_ Kipnu wondered, and he slowly approached the hole to peer in.
+
+It was dark save for the patterened blue streaks across Ramne's chest that showed a row of crates lining the wall in front of him. He opened one and pulled out a wide cylinder of some sort. It didn't appear to be designed with a syringe in mind, but Kipnu supposed that it could be. He pulled out three others, and packed them in a satchel hung over his left shoulder.
 
 <!-- left off -->
+
+What to do here... could fall into the dark pit, but that was kind of a shit trope. Casra needs an honorable death.
+
+<!-- _No_, he thought. _Someone else will just take his place. We have to upturn the entire system. Killing Ramne would only be an impedement._ -->
 
 <!--
 "Linyu, what are those red dots?" he asked, pointing toward the horizon.
@@ -98,53 +112,7 @@ Moments stretched longer and longer until Kipnu began to feel uneasy.
 
 Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do. -->
 
-    He asked Linyu, "What do you think is taking them so long?"
-
-    Thi shrugged and kept watching the scene, but Kipnu was getting impatient.
-
-    "I'm going down there"
-
-    "But I need you up here," thi said.
-
-    "You'll be fine. It's just calling out things you see."
-
-    "But-"
-
-    He unwrapped the rope from Linyu and looped it around the first branch
-
-    "I'll be right back," he said.
-
-    "Kipnu!"
-
-    But he was off, heading down the tree before thi could stop him.
-
-    Back on the ground, Kipnu took the rope off and followed the pathway the group had taken as quickly and quietly as they had. Nearing the group, he saw their listeners and remembered to put his own on.
-
-"Hey, what's going on?" he asked Ginnu at a whisper.
-
-Thi told him, "Not sure. Fanla and Penyi went in, then... nothing."
-
-"I'm going in. Come with me to be a messenger in case something goes wrong."
-
-    "Me? Why?"
-
-    "You know this place better than anyone."
-
-    "No no no. I can't."
-
-    "Why?"
-
-    "I'm not a fighter or anything. I wouldn't be helpful."
-
-    "Good thing we're not here to fight, then."
-
-They quietly whisped toward the armory tent, and Kipnu peeked underneath the cloth on the ground. He saw nothing but racks full of spears and a faint blue light from a bottle at the center of the canopy. He slipped underneath with minimal effort and slowly stood up as he continued to look around. With his ears intently listening for any sign of trouble from the fire or from Lin, he began surveying the room a little closer than he had before. All was blue and still, with no sign of the two. _They didn't just vanish_. He took up a spear and with one last glance at the room, signaled under the wall for Ginnu to come in.
-
-They both slowly walked around the room, looking at the weapons that were stockpiled - daggers, spears, swords, bows and arrows. All hardened and sharpened to an infinitesimal edge.
-
-    "Hey, look at this," Ginnu beckoned from another side of the tent.
-
-    Kipnu shot a glance toward hae feet where a small wooden door lay among the thin damp leaves. Its polished hardware was too precise to be made in Ulukoma, but its messy grease and handle reminded them of where they were.
+    Kipnu shot a glance toward hae feet where
 
     "Maybe this is where they went," thi said.
 
