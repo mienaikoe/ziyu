@@ -105,7 +105,7 @@ Casra didn't answer.
 
 "Good," he said with a hint of remorse in his voice. But he didn't stick around to grieve or regret. Kipnu removed himself from the hole as Ramne lifted himself out and covered any sign of there having been a door in the floor.
 
-_This is my opening_, Kipnu thought. But Casra's state was more important. Surely someone was expecting Ramne and would come to the armory looking for answers. Surely enough, the woman from before came through the entryway and barked at him.
+This would be his last chance to stop Ramne, but surely someone would come to the armory looking for Ramne if he never appeared again. He couldn't risk being found while trying to pull Casra out of whatever state thi was in. And just as quickly as he thought it, the woman from before came through the entryway and barked at him.
 
 "You coming?" she asked in a rush.
 
@@ -113,15 +113,53 @@ He lunged at her, covering nearly half the room in a single step, but she moved 
 
 His voice boomed at her in a sort of low-pitched growl. "If you ever rush me again, you'll be the one locked in the cellar."
 
-She looked him up and down with a disgusted look on her face and ran off back toward the pavilion, while Ramne picked up a spear of his own.
+She looked him up and down with a disgusted, dismissive look on her face and ran off back toward the pavilion, while Ramne picked up a spear of his own.
 
-"Time to light this place up."
+"Time to bring a light back to Ulu," he said, and stepped out into the firelight.
+
+With no time to waste, Kipnu ran over to where he'd entered and signalled to the other four to come in.
+
+"I heard Ramne," said a young man. He was frightened for his life.
+
+"It's okay, Ramne is gone," Kipnu whispered, knowing that the walls, though opaque, were not soundproof. "But we have to move quick. Grab a spear and go fetch the others. Can you do that?"
+
+He nodded and ran off toward the back of the tent, forgetting the spear. Kipnu turned to the others and said, "You three, come with me."
+
+Together they opened the cellar door and descended into the darkness with only Kipnu's memory to light their path.
+
+"This room is a long trench," he told them. "There are crates lining the walls that should be full of kanosin, antikan, and syringes. Kanosin glows when it's in contact with water, and antikan doesn't. Find the antikan and move it topside."
+
+He started to walk further into the darkness, and one of them asked him, "Where are you going?"
+
+"Casra needs medical attention," he told them, and they didn't speak a word.
+
+He moved to Casra who was still against the wall where Ramne kept hae. Kipnu felt for a pulse. _Still ticking_. Thi began to stir and moan, but Kipnu kept hae still.
+
+"Hey it's me, Kipnu. Stay as still as you can. I'm gonna get you down okay?"
+
+He felt around hae gently for some sort of shackle, noticed a multitude of scrapes and lacerations on hae shoulder and up hae neck.
+
+"How is your head? Does it hurt?" he asked has he gently felt around.
+
+His fingers meandered onto a strange ridge on hae head. "Ahhhh," thi groaned immediately as his hand came to it.
+
+"Ok. I can work with that."
+
+With graceful and deliberate touches, he assessed the injury, stopping whenever thi moaned in pain. It seemed to be a large welt just in front of hae ear, and it was filling with fluid. He knew it was a skull fracture.
+
+_Shit_
+
+He removed a firestarter from his satchel and primed it, running the edge of his dagger across to sanitize it. With a quick flick, he cut open a small hole at the bottom of the welt. A mix of blood and fluid formed a tangible rivulet across hae face. Kipnu dropped the knife and continued to monitor hae pulse as hae consciousness slowly began to return.
+
+"Am I dying?" thi asked, audibly afraid.
+
+"You'll be fine," he said. "Just stay strong."
+
+The other three had finished moving crates and the sound of new footsteps filled the room above, but Kipnu was steeped in concentration, looking for kanosin to use as a pain reducer. He knew that what would come next would be terribly painful, and he couldn't do it without hae stabilization.
+
+<!-- cauterize -->
 
 <!-- left off -->
-
-What to do here... could fall into the dark pit, but that was kind of a shit trope. Casra needs an honorable death.
-
-<!-- _No_, he thought. _Someone else will just take his place. We have to upturn the entire system. Killing Ramne would only be an impedement._ -->
 
 <!--
 "Linyu, what are those red dots?" he asked, pointing toward the horizon.
@@ -157,30 +195,6 @@ He moved a little closer and came upon a sharp cut off in the ground where there
 
 Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
 -->
-
-    He rubbed his toe to ease the pain and then moved to Ginnu who still lay where Ramne found her.
-
-    Once he was sure that Ramne was gone, Kipnu looked back down at Ginnu and felt for hae pulse. *Still ticking*. Thi began to stir and moan, and Kipnu immediately turned his focus to hae.
-
-    "Hey it's me, Kipnu. Stay as still and quiet as you can," Kipnu told a barely-conscious Ginnu. He could see bad scrapes and bruises on hae shoulder and on the side of hae head.
-
-    "How is your head? Does it hurt?" he asked has he gently touched the wound.
-
-    "Ahhhh," thi groaned.
-
-    "Ok. I can work with that."
-
-    He took off his pouch and removed the dagger from it and gently raised Ginnu's head to place the pouch underneath. With graceful and deliberate touches, he checked the head injury and found that a piece of hae skull had fractured just forward of hae right ear, and fluid was building up at the site of the fracture.
-
-    "UNNHNN!" Thi yelled in pain as he pressed gently at the base of hae skull.
-
-    *Shit*
-
-    He took out the dagger with his left hand and with a quick flick, he cut open a small hole under the scrape on hae temple. A mix of blood, hydrodermal fluid, and cerebral fluid formed a rivulet in the dust while Kipnu put the knife far away and continued to monitor hae pulse.
-
-    "Am I dying?" thi asked, now slightly more awake and audibly afraid.
-
-    "You'll be fine, Ginnu. Just stay strong and quiet for me."
 
     He glanced at where he had seen Ramne before to find nothing but the dark and then reassured hae one more time with a hand squeeze before running back toward the pegs and the hole he entered from. Inside, Fanla and Penyi were busy fetching weapons and passing them under the cloth wall.
 

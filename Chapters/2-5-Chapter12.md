@@ -40,7 +40,7 @@ Kipnu understood her, and handed him off. His feet were starting to go numb, but
 
 "Shh. Just focus on getting warmer. Fanla, could you check his vitals again?"
 
-His muscle control began to return along with violent full-body shivers. He moaned in agony as feeling slowly returned to his limbs and his digits. Casra was under him, lending him warmth, and a woman hovered beside with her hand placed gently on his underarm. Fanla, he surmise.
+His muscle control began to return along with violent full-body shivers. He moaned in agony as feeling slowly returned to his limbs and his digits. Casra was under him, lending him warmth, and a woman hovered beside with her hand placed gently on his underarm. Fanla, he surmised.
 
 "Linyu," he recalled and an unbending urgency began to build; first from his belly then circling around him and back inward, and it overtook his mind. He wrestled free from Casra's grasp, fighting a tingling pain in his muscles and joints and turned to face hae, looked for Linyu but found only strangers.
 
