@@ -147,15 +147,27 @@ His fingers meandered onto a strange ridge on hae head. "Ahhhh," thi groaned imm
 
 With graceful and deliberate touches, he assessed the injury, stopping whenever thi moaned in pain. It seemed to be a large welt just in front of hae ear, and it was filling with fluid. He knew it was a skull fracture.
 
-_Shit_
+He removed a firestarter from his satchel and turned its knob. A titanium cylinder spun in a metallic socket, sending small sparks and the odor of magnesium smoke into the air. In one slow motion, he ran the top of the dagger across the tip of the firestarter and its heat turned the blade yellow with oxidation. He turned to the welt and cut open a small hole at the bottom of the welt with a calculated movement of his hand. A mix of blood and fluid formed a tangible rivulet across hae face as the welt emptied, quickly at first but slowing with time. Kipnu dropped the knife and held his fingers fast to hae chest, continuously checking for a pulse as hae consciousness slowly began to return.
 
-He removed a firestarter from his satchel and primed it, running the edge of his dagger across to sanitize it. With a quick flick, he cut open a small hole at the bottom of the welt. A mix of blood and fluid formed a tangible rivulet across hae face. Kipnu dropped the knife and continued to monitor hae pulse as hae consciousness slowly began to return.
+"Kipnu," thi said in a daze, "Is that you? Am I dying?"
 
-"Am I dying?" thi asked, audibly afraid.
+"You'll be fine," he lied. "Just stay strong."
 
-"You'll be fine," he said. "Just stay strong."
+The other three had finished moving crates and the sound of many footsteps filled the room above, but Kipnu was steeped in concentration, looking for kanosin to use as a pain reducer. He checked the crates that the others had opened, but found no kanosin. Just more of those strange cylinders that Ramne had taken with him.
 
-The other three had finished moving crates and the sound of new footsteps filled the room above, but Kipnu was steeped in concentration, looking for kanosin to use as a pain reducer. He knew that what would come next would be terribly painful, and he couldn't do it without hae stabilization.
+"Casra?" he called hae name, secretly hoping thi might have gone unconscious again.
+
+"I know what's wrong with me, Kip" thi said in a dazed and cheerful tone.
+
+"Yes doctor, what's your diagnosis?" he asked, as he prepared the firestarter again.
+
+"I've got a terrible headache, and I'm bleeding everywhere. I think there's a hole in my head."
+
+"An astute diagnosis, doctor. Shall I close it?"
+
+Thi didn't respond, which Kipnu found strange, and then he heard a faint sound of shaking.
+
+"No no that's too soon!"
 
 <!-- cauterize -->
 
@@ -230,13 +242,10 @@ Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and st
 
     From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Ginnu was having a seizure.
 
-    "No no that's too soon!"
 
-    He sprinted through the darkness toward the sounds and straddled hae braced hae head with his right arm.
 
-    "Nystagmus; pulse fast; temperature high; breathing irregular," he said aloud as he had been trained to do.
 
-    "Come On!" He yelled quietly.
+
 
     He glanced at the wound and saw that the swelling had come down but blood was still draining out steadily.
 
