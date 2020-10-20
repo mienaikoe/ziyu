@@ -157,19 +157,51 @@ The other three had finished moving crates and the sound of many footsteps fille
 
 "Casra?" he called hae name, secretly hoping thi might have gone unconscious again.
 
-"I know what's wrong with me, Kip" thi said in a dazed and cheerful tone.
+"The patient is bleeding everywhere," thi said in a dazed tone, "Needs kan-o..."
 
-"Yes doctor, what's your diagnosis?" he asked, as he prepared the firestarter again.
+"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss.
 
-"I've got a terrible headache, and I'm bleeding everywhere. I think there's a hole in my head."
+Penyi's voice interrupted him again, "Kipnu, I see a figure entering the armory."
 
-"An astute diagnosis, doctor. Shall I close it?"
+But he couldn't deal with that now. The firestarter was hot, and the bleeding needed to stop. He separated the plunger from its socket and held it carefully in his hands.
 
-Thi didn't respond, which Kipnu found strange, and then he heard a faint sound of shaking.
+"Hold still," he said. "This will only be a moment."
 
-"No no that's too soon!"
+But thi didn't respond. He touched hae shoulder and felt a violent shaking in hae body.
 
-<!-- cauterize -->
+"No no that's too soon!" he said to the air. It took all of his strength to hold hae head steady as he pried into the wound to find a path to the artery.
+
+A blue light entered the room but once again he didn't didn't pay it any mind.
+
+"What are you doing with Casra?" asked a maman angrily.
+
+"Thi's having a seizure. I need to stop the bleeding."
+
+He spoke mechanically without moving his head.
+
+"How did..." thi said out loud, but thi walked closer and was repulsed by the blood on hae face.
+
+"You can either help me or stand back," he said.
+
+Thi helped him restrain hae head, adding hae light to the room, and he carefully inserted the hot plunger into the wound. A sizzling sound and the smell of burning flesh bled into the air. The maman coughed and gagged, walking away from the scene. But the task was done. Kipnu felt around for blood, and it seemed to stop, but Casra's seizure continued.
+
+"Thi's lost too much blood," said the maman, looking away. "Thi needs kanosin."
+
+Kipnu dismissed hae suggestion, unsurprised that another stranger would think to give him medical advice. But he recalled the blue light, noted that it was brighter than even Setre would have been. The maman turned around and walked to Casra again, unlocking the chains that held hae to the wall with a key from hae pocket, and held hae in hae arms as if to prepare to carry Casra a long distance.
+
+Kipnu drew his dagger and stood in front of Shinna.
+
+"I won't let you take hae away," he said.
+
+Thi gently set Casra's fading body onto the floor and drew hae thick black robes over hae, plunging the room into darkness. He felt the sharp feeling of a blade against his back and a firm grip on his wrist, and he knealed away from it. Shinna was atop him now, holding his blade arm against his movement and his torso to the ground.
+
+"The next time you try to pull a blade on me, you'll never see daylight again."
+
+He dropped the dagger, sensing that it was his only way out of this situation, and Shinna kicked it aside.
+
+"The underworld is the only way Casra will survive," Shinna said. Thi let go of him, and went back to picking up Casra. Thi lifted Casra up and out of the basement with ease, looking back at Kipnu.
+
+"You're a meager little pawn, Kipnu. But never forget: you're my meager little pawn."
 
 <!-- left off -->
 
