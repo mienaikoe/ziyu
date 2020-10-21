@@ -127,7 +127,7 @@ He nodded and ran off toward the back of the tent, forgetting the spear. Kipnu t
 
 Together they opened the cellar door and descended into the darkness with only Kipnu's memory to light their path.
 
-"This room is a long trench," he told them. "There are crates lining the walls that should be full of kanosin, antikan, and syringes. Kanosin glows when it's in contact with water, and antikan doesn't. Find the antikan and move it topside."
+"This room is a long trench," he told them. "There are crates lining the walls that should be full of antikan, but there may be something else down there. Find the antikan and move it topside."
 
 He started to walk further into the darkness, and one of them asked him, "Where are you going?"
 
@@ -191,17 +191,25 @@ Kipnu dismissed hae suggestion, unsurprised that another stranger would think to
 
 Kipnu drew his dagger and stood in front of Shinna.
 
-"I won't let you take hae away," he said.
+"Where are you taking hae?" he asked.
 
-Thi gently set Casra's fading body onto the floor and drew hae thick black robes over hae, plunging the room into darkness. He felt the sharp feeling of a blade against his back and a firm grip on his wrist, and he knealed away from it. Shinna was atop him now, holding his blade arm against his movement and his torso to the ground.
+Thi gently set Casra's fading body onto the floor and drew hae thick black robes over hae, plunging the room into darkness. In an instant, he felt the sharp feeling of a blade against his back, a firm grip on his wrist, and he kneeled away from it. Shinna was atop him now, holding his blade arm out and his torso to the ground.
 
 "The next time you try to pull a blade on me, you'll never see daylight again."
 
-He dropped the dagger, sensing that it was his only way out of this situation, and Shinna kicked it aside.
+Kipnu struggled to break free, but was not in a position to do so. He dropped the dagger, sensing that it was his only way out of this situation, and Shinna kicked it aside.
 
-"The underworld is the only way Casra will survive," Shinna said. Thi let go of him, and went back to picking up Casra. Thi lifted Casra up and out of the basement with ease, looking back at Kipnu.
+"The underworld is the only way Casra will survive," Shinna said. Thi let go of him, and went back to picking up Casra.
 
-"You're a meager little pawn, Kipnu. But never forget: you're my meager little pawn."
+"Why are you helping hae all of a sudden?"
+
+"Hope fits snugly under my toe. It is a small, fickle thing. But life? Life is far too big a thing to crush - even for a wicked bastard like me."
+
+Thi lifted Casra up and out of the basement with ease, looking back at Kipnu.
+
+"You're a meager little pawn, Kipnu. Fighting a war you never signed up for. But never forget: you're my meager little pawn."
+
+Shinna lifted haeself out of the hole and carried Casra through that bustling crowd of addicts and revolutionaries. Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but Kipnu held them back, tried to assure them that Shinna was helping hae, but they didn't hear him. The hope of hae return had kept them alive a day at a time, and now it was dashed.
 
 <!-- left off -->
 
