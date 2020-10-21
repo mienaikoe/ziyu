@@ -139,13 +139,17 @@ He moved to Casra who was still against the wall where Ramne kept hae. Kipnu fel
 
 He felt around hae gently for some sort of shackle, noticed a multitude of scrapes and lacerations on hae shoulder and up hae neck.
 
-"How is your head? Does it hurt?" he asked has he gently felt around.
+"How is your head? Does it hurt?" he asked as he moved his hand to hae head. His fingers meandered onto a strange ridge in front of hae ear.
 
-His fingers meandered onto a strange ridge on hae head. "Ahhhh," thi groaned immediately as his hand came to it.
+"Ahhhh," thi groaned immediately as his hand came to it.
 
 "Ok. I can work with that."
 
 With graceful and deliberate touches, he assessed the injury, stopping whenever thi moaned in pain. It seemed to be a large welt just in front of hae ear, and it was filling with fluid. He knew it was a skull fracture.
+
+"How did this happen?" he asked hae. But thi didn't respond. He touched hae shoulder and felt a violent shaking in hae body.
+
+"No no that's too soon!" he said to the air.
 
 He removed a firestarter from his satchel and turned its knob. A titanium cylinder spun in a metallic socket, sending small sparks and the odor of magnesium smoke into the air. In one slow motion, he ran the top of the dagger across the tip of the firestarter and its heat turned the blade yellow with oxidation. He turned to the welt and cut open a small hole at the bottom of the welt with a calculated movement of his hand. A mix of blood and fluid formed a tangible rivulet across hae face as the welt emptied, quickly at first but slowing with time. Kipnu dropped the knife and held his fingers fast to hae chest, continuously checking for a pulse as hae consciousness slowly began to return.
 
@@ -159,17 +163,15 @@ The other three had finished moving crates and the sound of many footsteps fille
 
 "The patient is bleeding everywhere," thi said in a dazed tone, "Needs kan-o..."
 
-"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss.
+"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss. He tapped hae cheeks, but thi didn't wake up.
 
 Penyi's voice interrupted him again, "Kipnu, I see a figure entering the armory."
 
 But he couldn't deal with that now. The firestarter was hot, and the bleeding needed to stop. He separated the plunger from its socket and held it carefully in his hands.
 
-"Hold still," he said. "This will only be a moment."
+"Hold still," he said, in case thi could still hear him. "This will only be a moment."
 
-But thi didn't respond. He touched hae shoulder and felt a violent shaking in hae body.
-
-"No no that's too soon!" he said to the air. It took all of his strength to hold hae head steady as he pried into the wound to find a path to the artery.
+He wedged his smallest finger into the space of hae fractured skull and pried into the wound to find a path to the source of the blood. _About a quarter finger length in. Right posterior artery._
 
 A blue light entered the room but once again he didn't didn't pay it any mind.
 
@@ -181,9 +183,9 @@ He spoke mechanically without moving his head.
 
 "How did..." thi said out loud, but thi walked closer and was repulsed by the blood on hae face.
 
-"You can either help me or stand back," he said.
+"You can either help me or stand back," he said abruptly.
 
-Thi helped him restrain hae head, adding hae light to the room, and he carefully inserted the hot plunger into the wound. A sizzling sound and the smell of burning flesh bled into the air. The maman coughed and gagged, walking away from the scene. But the task was done. Kipnu felt around for blood, and it seemed to stop, but Casra's seizure continued.
+Thi helped him restrain hae head and added light to the area. The plunger was hot enough to singe his finger when he slid it over the tip to check. He winced and waved the finger to cool it down and carefully inserted the hot plunger into the wound. A sizzling sound and the smell of burning flesh bled into the air. The maman coughed and gagged, walking away from the scene. But the task was done. Kipnu felt around for blood, and it seemed to stop, but Casra's seizure continued.
 
 "Thi's lost too much blood," said the maman, looking away. "Thi needs kanosin."
 
@@ -199,7 +201,9 @@ Thi gently set Casra's fading body onto the floor and drew hae thick black robes
 
 Kipnu struggled to break free, but was not in a position to do so. He dropped the dagger, sensing that it was his only way out of this situation, and Shinna kicked it aside.
 
-"The underworld is the only way Casra will survive," Shinna said. Thi let go of him, and went back to picking up Casra.
+"The underworld is the only way Casra will survive," Shinna said. "You can either help me or stand back."
+
+Thi let go of him, and went back to Casra.
 
 "Why are you helping hae all of a sudden?"
 
@@ -209,7 +213,13 @@ Thi lifted Casra up and out of the basement with ease, looking back at Kipnu.
 
 "You're a meager little pawn, Kipnu. Fighting a war you never signed up for. But never forget: you're my meager little pawn."
 
-Shinna lifted haeself out of the hole and carried Casra through that bustling crowd of addicts and revolutionaries. Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but Kipnu held them back, tried to assure them that Shinna was helping hae, but they didn't hear him. The hope of hae return had kept them alive a day at a time, and now it was dashed.
+Shinna lifted haeself out of the hole and carried Casra through that bustling crowd of addicts and revolutionaries. Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but Kipnu held them back, tried to assure them that Shinna was helping hae, but they didn't hear him. The hope of hae return had kept them alive, and now that hope was gone.
+
+Penyi came upon the listener again, sounding particularly flustered.
+
+"A fire. There's a fire coming from the Pavilion!"
+
+Shinna left through the main entryway with Kipnu in toe, and turned hae path between the armory and the pavilion toward Ulu. Kipnu heard the clanging of weapons, hoped that Setre was doing well.
 
 <!-- left off -->
 
@@ -295,7 +305,7 @@ Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and st
 
     He took one more observation of hae vitals while repeatedly pressing the plunger to warm it up, "convulsions; pulse fast; pressure high; temperature high."
 
-    The plunger was hot enough to singe his finger when he slid it over the tip to check. He winced and waved the finger to cool it down, then wedged a different finger into the space hae fractured skull created to feel for the position of the artery. *About a quarter finger length in. Right posterior artery is punctured.*
+
     He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kipnu stopped and jumped off of Ginnu and away from an arm trying to grab him out of the darkness. It was Ramne, by the looks of his markings, pacing toward him.
 
     "Who're you?! What are you doing with Ginnu?!" Ramne demanded.
