@@ -163,11 +163,11 @@ The other three had finished moving crates and the sound of many footsteps fille
 
 "The patient is bleeding everywhere," thi said in a dazed tone, "Needs kan-o..."
 
-"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss. He tapped hae cheeks, but thi didn't wake up.
+"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss. He tapped hae cheeks, but thi didn't wake up. There was little time to save hae.
 
 Penyi's voice interrupted him again, "Kipnu, I see a figure entering the armory."
 
-But he couldn't deal with that now. The firestarter was hot, and the bleeding needed to stop. He separated the plunger from its socket and held it carefully in his hands.
+But he couldn't deal with that now. The firestarter was hot, and the bleeding needed to stop. _"Am I dying?"_ He heard hae slurred voice echo in his mind as he moved his hand closer to hae neck.
 
 "Hold still," he said, in case thi could still hear him. "This will only be a moment."
 
@@ -177,7 +177,7 @@ A blue light entered the room but once again he didn't didn't pay it any mind.
 
 "What are you doing with Casra?" asked a maman angrily.
 
-"Thi's having a seizure. I need to stop the bleeding."
+"I need to stop the bleeding."
 
 He spoke mechanically without moving his head.
 
@@ -185,7 +185,7 @@ He spoke mechanically without moving his head.
 
 "You can either help me or stand back," he said abruptly.
 
-Thi helped him restrain hae head and added light to the area. The plunger was hot enough to singe his finger when he slid it over the tip to check. He winced and waved the finger to cool it down and carefully inserted the hot plunger into the wound. A sizzling sound and the smell of burning flesh bled into the air. The maman coughed and gagged, walking away from the scene. But the task was done. Kipnu felt around for blood, and it seemed to stop, but Casra's seizure continued.
+Thi helped him restrain hae head and added light to the area. Kipnu separated the plunger from its socket and quickly slid a finger over the tip to check its heat. He winced at the singe it created and waved the finger to cool it down, then carefully inserted the hot plunger into the wound. A sizzling sound began and the air was soaked with the smell of burning flesh. The maman coughed and gagged, walking away from the scene, but Kipnu remained unfazed. He felt around for blood, and it seemed to stop, but Casra's remained unconscious.
 
 "Thi's lost too much blood," said the maman, looking away. "Thi needs kanosin."
 
@@ -211,19 +211,66 @@ Thi let go of him, and went back to Casra.
 
 Thi lifted Casra up and out of the basement with ease, looking back at Kipnu.
 
-"You're a meager little pawn, Kipnu. Fighting a war you never signed up for. But never forget: you're my meager little pawn."
+"You're a meager little pawn, Kipnu. You're in a war you know nothing about. Never forget: you're my meager little pawn."
 
-Shinna lifted haeself out of the hole and carried Casra through that bustling crowd of addicts and revolutionaries. Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but Kipnu held them back, tried to assure them that Shinna was helping hae, but they didn't hear him. The hope of hae return had kept them alive, and now that hope was gone.
+Shinna lifted haeself out of the hole and carried Casra through that bustling crowd of revolutionaries, none of them stopping hae or knowing who these two maman were. Thi left through the main fissure and turned hae path toward the cold dark night with only a promise of Casra's safety.
 
-Penyi came upon the listener again, sounding particularly flustered.
+Kipnu lifted himself out of the hole, caught his breath in the armory amongst the clamor of people scrambling for more antikan and spears. A pair of anomin lanterns had been lit but the air was not filled with their sweet smell, but the smell of smoke. He looked for Fanla, but couldn't find her. Nor did he find Ginnu.
 
-"A fire. There's a fire coming from the Pavilion!"
+Penyi came upon the listener again. "Fire. There's a fire at the Pavilion!"
 
-Shinna left through the main entryway with Kipnu in toe, and turned hae path between the armory and the pavilion toward Ulu. Kipnu heard the clanging of weapons, hoped that Setre was doing well.
+An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the pavilion, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
+
+Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who was looking after a three people with soot all over their bodies, and he ran toward her, dodging a flurry of people from every direction.
+
+"Fanla! What's going on?" he asked her.
+
+"We're pulling people out of the pavilion. We need your help."
+
+"Where is Setre?" he asked, but she didn't know.
+
+"Kipnu, these people aren't breathing," thi insisted. "What do we do?"
+
+He kneeled over the body of the maman she was attending to, checked hae hearts for a pulse, finding it in one of two and pushed on hae lungs from above.
+
+He said, "If they have a pulse, do this until they cough. If they don't, move on to the next person."
+
+Fanla looked at him, understanding what he was asking her to do but mentally unprepared to do it.
+
+He didn't have time to stick around. Setre was still in the fire.
+
+A dark smoke hung in the air as he ran into the inferno. Everywhere around him the heat of infrared light alighted upon his cheeks and hands, the rumble roared in his ears, exercising vengeance against the darkness. Ahead of him, there were yells that could scarcely be heard through the fire and spears strewn on the ground as if in a hurry, but there was no sign of Setre.
+
+He called her name,.
+
+A silhouette appeared from the Great Pavilion. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Setre, stumbling out of the smoke in a daze. He dashed to her to pull her out of the flames.
+
+    "Casra...Casra...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
+
+    He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kipnu's arm and he turned back toward her. Her gaze was vacant as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
 
 <!-- left off -->
 
 <!--
+
+
+    After 80 presses with no pulse or breathing, he stopped and slowly removed Ginnu's body from his own. He looked into hae lifeless eyes once more, both of their chests blue with kanosin, illuminating the space between life and death.
+
+    "I'll come back for you," he told hae, wishing he could be certain. An overwhelming air of failure welled up in him, but he pushed it down and forced himself to run away.
+
+
+ trying to convince them that  The hope of Casra's return had kept them alive, and now that hope was gone.
+
+
+
+ Kipnu heard the clanging of weapons, hoped that Setre was doing well.
+
+
+
+
+ Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but hae strength was much greater than theirs.
+
+
 "Linyu, what are those red dots?" he asked, pointing toward the horizon.
 
 "Don't know. Mom calls them Ara's children. They're always right above the clouds when Ara is far away."
@@ -386,37 +433,6 @@ But the addicts and criminals of the world are lazy and wicked; their contributi
 
     He moved out from under Ginnu and picked up the needle again, jabbing it into the same wound, yelling in pain and frustration. He removed the bloody dressing and found the narrow vessel again. Her question weighed on him heavily. *"Am I dying?"* He heard it echo in his mind as he crawled back under her and counted his compressions on her hearts.
 
-    Fanla called to him again, "We're pulling people out of the pavilion. They're all unconscious. We need your help."
-
-    "Let them die!" He said in a fit of exasperated rage.
-
-    Exasperated, Fanla left Kipnu to grieve and went to help the others on the surface. After 80 presses with no pulse or breathing, he stopped and slowly removed Ginnu's body from his own. He looked into hae lifeless eyes once more, both of their chests blue with kanosin, illuminating the space between life and death.
-
-    "I'll come back for you," he told hae, wishing he could be certain. An overwhelming air of failure welled up in him, but he pushed it down and forced himself to run away.
-
-    He caught the faint odors of smoke hanging in the air on the way back up. Far away, he could hear a low rumble, constant and unhuman. *Fire? What's going on?* In the armory, the rumble had grown to a deep roar coming from the direction of the pavilion with hints of yells and hollers trickling through. There was no sign of Fanla and spears were strewn on the ground as if in a hurry.
-
-    "Fanla?" He called, trying to find her. All he heard was the commotion outside. He took a spear and moved to a small crack in the entryway. He unsheathed an eye upon the scene outside and felt the heat of the firelight land upon his cheek. Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. In an instant, he dropped the spear and ran out to help.
-
-    "Fanla!" He shouted when he approached them, and they quickly glanced in his direction.
-
-    Fanla franticly waved to him and called out, "Kipnu, these people aren't breathing. What do we do?"
-
-    He rushed toward her and knealt over the body of the maman she was attending to. He checked hae hearts for a pulse, finding one of two and pushed on hae lungs from above.
-
-    He announced to them, "If they have a pulse, do this until they cough. If they don't, move on to the next person."
-
-    They all quickly moved to someone, doing as he told them and repeating his motions. He turned to the woman and asked, "Where is Setre?"
-
-    "She's been moving people in and out of the fire."
-
-    Without a pause, he rose and ran off. The heat grew in intensity as he approached, but he pushed the pain down. He had to find Setre and Casra.
-
-    A silhouette appeared from the Great Pavilion. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Setre, stumbling out of the smoke in a daze. He dashed to her to pull her out of the flames.
-
-    "Casra...Casra...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
-
-    He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kipnu's arm and he turned back toward her. Her gaze was vacant as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
 
     "Thi is safe in the treetops. No need to worry," he comforted her. But her mind was still locked away.
 
