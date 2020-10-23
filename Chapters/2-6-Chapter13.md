@@ -138,7 +138,7 @@ Setre's eyes remained narrow, untrusting of his words, as he tried his best to r
 
 "Answer the question."
 
-"Thi said thi was and addict for a long time before Linyu came around."
+"Thi told me thi was an addict for a long time before Linyu came around."
 
 "What else?"
 
@@ -150,7 +150,7 @@ A series of thoughts went into motion in Setre's mind. Her eyes went blank, and 
 
 "You almost killed me," he protested. "Can we talk about _that_ for a second?"
 
-"If I wanted to kill you, I would have done that with the first stroke," she said. Her voice was so sober that he wasn't sure he was speaking to the same person. "It was cathartic just to watch you fear for your life."
+"If I wanted to kill you, I would have done it much quicker," she said. Her voice was so sober that he wasn't sure he was speaking to the same person. "It was cathartic just to watch you fear for your life."
 
 She turned away from him and began walking back the way they came, ambling to Casra's old home.
 
@@ -172,7 +172,7 @@ Setre spoke to him over the dish cleaning basin.
 
 "Kanosin is just a drug. There's not much to know."
 
-"You are terribly mistaken, Kipnu. But you would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would inadvertently bring more attention to hae. And thi was right. He came to the pavilion bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more to force a bloodless surrender: a small but knowledgeable resistance within the guardians, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
+"You are terribly mistaken, Kipnu. You would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would parade his trophy around, inadvertently bringing more attention to hae. And thi was right. He came to the pavilion bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more steps to force a bloodless surrender: a small but knowledgeable resistance within the guardians, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
 
 He stood up and faced the wall adjacent to the ladder.
 

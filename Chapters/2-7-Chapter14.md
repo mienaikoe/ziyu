@@ -221,33 +221,143 @@ Penyi came upon the listener again. "Fire. There's a fire at the Pavilion!"
 
 An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the pavilion, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
 
-Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who was looking after a three people with soot all over their bodies, and he ran toward her, dodging a flurry of people from every direction.
+Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
 
-"Fanla! What's going on?" he asked her.
+"Fanla! What's going on?" he asked her. Another woman came out of the burning pavilion, carrying two guardians on her shoulders, and set them gently on the ground next to the others.
 
-"We're pulling people out of the pavilion. We need your help."
+"We're pulling people out of the pavilion. I need your help."
 
-"Where is Setre?" he asked, but she didn't know.
+"Where is Setre?" he asked.
 
-"Kipnu, these people aren't breathing," thi insisted. "What do we do?"
+But she didn't know. "Kipnu, these people aren't breathing," thi insisted. "What do we do?"
 
-He kneeled over the body of the maman she was attending to, checked hae hearts for a pulse, finding it in one of two and pushed on hae lungs from above.
-
-He said, "If they have a pulse, do this until they cough. If they don't, move on to the next person."
+"If they still have a pulse, press on their chest until they start coughing. Otherwise move on to the next person."
 
 Fanla looked at him, understanding what he was asking her to do but mentally unprepared to do it.
 
-He didn't have time to stick around. Setre was still in the fire.
+As much as she needed someone to help revive them, he didn't have time. Setre was still in the fire.
 
 A dark smoke hung in the air as he ran into the inferno. Everywhere around him the heat of infrared light alighted upon his cheeks and hands, the rumble roared in his ears, exercising vengeance against the darkness. Ahead of him, there were yells that could scarcely be heard through the fire and spears strewn on the ground as if in a hurry, but there was no sign of Setre.
 
-He called her name,.
+He called her name but could scarcely be heard above the rumble.
 
-A silhouette appeared from the Great Pavilion. It was thin and short, almost resembling a child, but amidst the lapping of flames and fabric, the silhouette stood up and transformed into Setre, stumbling out of the smoke in a daze. He dashed to her to pull her out of the flames.
+A silhouette appeared on the ground. It was short, resembling a child, but through the lapping of flames and fabric, the silhouette moved and transformed into two figures. One on the ground, and the other hovering over.
 
-    "Casra...Casra...", her voice had fractured in two and wheezed through labored breaths as she collapsed onto the ground.
+"Do you need help?" he said to them. But the kneeling figure ran off toward the back of the pavilion, staying low to the ground.
 
-    He was too busy lifting and carrying her to hear what she had said. When he had made it to the area where Fanla and the others were checking for survivors, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kipnu's arm and he turned back toward her. Her gaze was vacant as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
+"Wait!" he said, but the figure had already disappeared. He turned to the person lying on the ground and found Setre.
+
+"Casra...Casra...", her voice had fractured in two and wheezed through labored breaths. But Kipnu was too busy lifting and carrying her to hear.
+
+When he had made it back to Fanla, he set her down gently and began examining her for injury. The entire left side of her head and neck had been disfigured by the flames, and her eyes were dotted with starry cataracts. Setre reached to Kipnu's arm, and tried to gaze at him with vacant eyes, as if she were experiencing some other world far behind the one he was in. She called out again in a voice frailer than before, "Lin..."
+
+"Linyu is safe. No need to worry," he comforted her with her own mysterious words. But her mind was still locked away.
+
+_I need to find Casra._
+
+"The pavilion is clear and the fighting has stopped," he said. "Keep giving antikan to addicts and kanosin to the ones who won't make it. I'm going after Casra."
+
+Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
+
+"I trust you!"
+
+Kipnu ran into the darkness, exhausted but determined.
+
+The trees transformed as he ventured into the dark. From giant pillars in hues of fire to silent shadows looming over him. The darkness and his belabored feet led him stumbling into trees, discovered only by the faint changes in the sound of his breaths echoing off of the tree in front. Still, he wandered further into the darkness.
+
+He searched for any faint sign of a horizon through the darkness, but he saw none – just darkness as far as the eye could see. He once paused and looked upward toward the sky, searching for the red dots he had seen in the treetops, but the sky was obscured by thick branches hanging high above him in this, the darkest part of Ulukoma. A chilly humidity had taken over the air, mingling with the smell of dead pine needles and ice hanging on his breath.
+
+And salt. _I must be near the shore._
+
+Drawing a few deep breaths, he recommitted his mind and started to run again.
+
+A constant pulse of waves began to fill the darkness, and he could taste more of the salty and frosty mist.
+
+"Casra!" He called toward the sound. There was no answer.
+
+He came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was astonished at the scene before him. A streak of blue light hanging upon every wave, reaching down to the ocean floor. In the sky were far more dots marring Ulu than he had seen before. Some were white or red, and many were infrared.
+
+Kipnu refocused on his mission. He called out again, "Casraaa!!"
+
+"Thi's dead," Shinna's voice came from behind him. Kipnu jumped out of surprise and looked around for hae.
+
+"Or alive," thi continued. "Depends on your philosophy, I suppose."
+
+"What did you do to hae?"
+
+Thi took a moment to respond, and Kipnu sensed that thi was moving, but couldn't see where. He lunged where he thought thi might have gone, but Kipnu was met with nothing but thin air and sand. Before he could recover, thi drew hae dagger to his neck.
+
+"Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
+
+"The fire? I didn't start that–"
+
+"Had I known you were a psychopath, I would have kept you a slave. But instead, I let my guard down, and you destroyed everything and everyone I loved."
+
+"It wasn't me," he pleaded. Thi turned him around and stabbed cleanly through the center of his left hand. While he was writhing in agony, thi raised hae voice to overcome his.
+
+"I love my people. We love our way of life. An Ara-worshipper like you would never understand."
+
+He spoke back through gasps and cries, "Your people are slaves."
+
+Thi circled around him, unraveled hae robe to reveal all of the light on hae.
+
+"And you under Ara aren't? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
+
+Thi lowered haeself to put hae face in front of his.
+
+"You think we're a broken society? I'll tell you what we are. We tried to make the only home that made sense to us. Those who threatened us remained in their drunken stupor, while the rest of us made the best we could from their labor.
+
+But you just couldn't stand it, could you? You had to come here and burn it all down. Nobody here can have a shred of fucking happiness."
+
+    Thi took hae hand away from Kipnu's neck and he gasped for air between tears and cries of pain. Shinna rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
+
+    "Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
+
+    He mustered up what little strength he had to answer, "I didn't..."
+
+    Thi hesitated a bit.
+
+    "Stop lying."
+
+    "I... didn't"
+
+    Thi looked over at him, and for the first time showed some doubt.
+
+    They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Shinna's pale-cold face. Thi reached for the pipe from Kipnu and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
+
+    Thi set the blade in hae own left palm and stared at the blood.
+
+    "I took pride in what I built. In outsmarting everyone who stood in my way. I want you to remember that, Kipnu. I want you to remember who we were."
+
+    Thi turned back to Kipnu and helped him sit up. He could see tears welling up in hae eyes in between the refraction of his own.
+
+    "My dream was always to make a home for those who felt they had none. Swear to me you'll remember that."
+
+    Kipnu started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
+
+    Thi stood up and looked out to the ocean, taking hae time pondering about the past couple days.
+
+    Thi let the wind carry hae words to him, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed in hae promise. But this isn't the way it was supposed to happen."
+
+    Thi turned back to him, "Kipnu. Remember that nobody dies in the darkness." A pause punctuated the air and did nothing to help Kipnu understand.
+
+    Shinna lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
+
+    He immediately looked out toward the water, and glanced back to find Shinna walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
+
+    *The water is... warm?* He was slightly disconcerted at the warmth amidst the faint tickles of bluekelp as he swam past, as if the ocean itself had come alive and he was headed straight into its belly. The frail villi-like stalks bent and swayed to his movements, their light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear voices amongst the static in his listener, but he ignored it and kept searching.
+
+    Once he reached about 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
+
+    Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer before drowning. Kipnu started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
+
+    He heard a sound in his listener again, but it was much more audible, "Prepare for ignition".
+
+    Putting it out of his mind, he went for a third dive to pull more kelp. *Three, Two more to go.* Above him, Casra was lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, only taking two breaths before plunging back into the deep. Hallucinations of stars and flashing lights clouded his sight as he reached the bottom again. The last kelp seemed the most stubborn – its roots buried deep into the sand and its vines securely fastened to Casra's left arm. He tied the base of the stem around his arm and kept pulling, feeling his muscles giving away their last bits of strength and his lungs failing to keep their hold on the air. They let a sip of salt slip in, then two, and then the taste of salt permeated his cognition and filled him with panic. He choked in reflex and pushed off from the ground to try to surface, but his arm was held back. The omnipresent blue light amongst the trickles of sand against his skin disoriented him as he fought to unravel himself. Up had become down, and down had become up, and he was lost in between.
+
+    As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
+
+    The listener spoke again, "Kipnu... Melna... I love you."
 
 <!-- left off -->
 
@@ -432,119 +542,6 @@ But the addicts and criminals of the world are lazy and wicked; their contributi
     "I said not now!" he said, tuning her out.
 
     He moved out from under Ginnu and picked up the needle again, jabbing it into the same wound, yelling in pain and frustration. He removed the bloody dressing and found the narrow vessel again. Her question weighed on him heavily. *"Am I dying?"* He heard it echo in his mind as he crawled back under her and counted his compressions on her hearts.
-
-
-    "Thi is safe in the treetops. No need to worry," he comforted her. But her mind was still locked away.
-
-    *I need to find Casra.*
-
-    He turned to Fanla and asked, "Fanla, which direction did Linyu see the figures run?"
-
-    "Figures?" she asked franticly. Her hands were firmly against the chest of a fallen guardian, searching for a pulse.
-
-    "You told me that Linyu was going mad about some figures."
-
-    "Ulu. They ran toward Ulu," she said in a hurried tone.
-
-    "I'm going after them. Take care of Setre and Ginnu."
-
-    Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
-
-    "I trust you!"
-
-    Kipnu ran into the darkness, exhausted but determined to save Casra.
-
-    The trees were transforming as he ventured into the dark. From giant pillars of reflected fire to silent shadows looming over him. The darkness often led him into trees, discovered only by the sudden absence of echoes. He searched for any faint sign of a horizon through the darkness, but none was visible. His feet began to belabor him, and his mind raced with imaginings of being found and killed by lurkers in the dark, or just getting lost and dying in that impenetrable black. Slowing to avoid hitting anything, he looked upward toward the sky to search for the red dots that he had seen up in the treetops with Linyu, but the sky was obscured by the treetops.
-
-    *"Lin...Lin..."* Setre's murmurs passed through the ears of his mind, and confused him even more. *Was Setre hallucinating? I haven't heard anything on the listener. But I am pretty far from them now.*
-
-    He whispered to the darkness in broken phrases, "Casra... Linyu needs you... This place needs you..." but his words were swallowed with the sound of leaves rustling far above. A chilly humidity had taken over the air, mingling with the smell of dead pine needles and ice hanging on his breath, and. Salt. *I must be near the shore.* Drawing a few deep breaths, he recommitted his mind and started running again.
-
-    A constant pulse of of waves began to fill the darkness, and he could taste more of the salty and frosty mist.
-
-    "Casra!" He called toward the sound. There was no answer.
-
-    Finally, he came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was astonished at the scene before him. A streak of blue light hanging upon every wave, and reaching down to the ocean floor. Above, there were far more dots marring Ulu than he had seen before. Some were white, some red, and others infrared.
-
-    Kipnu refocused on his mission. He called out again, "Casraaa!!"
-
-    "She's dead," a maman's voice came from behind him. Kipnu jumped out of surprise and looked around for the source.
-
-    "Have you come to kill me too, Kipnu?" Shinna asked.
-
-    Kipnu lunged, but Shinna was faster with hae dodge, and Kipnu fell to the ground. Before he could get up, thi drew hae dagger to his neck.
-
-    "Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
-
-    "The fire? I didn't start that–"
-
-    "Had I known you were a fucking psychopath, I would have kept you a slave. But instead, I let my guard down, and you destroyed everything and everyone I loved."
-
-    "It wasn't me," he pleaded. Thi turned him around and stabbed cleanly through the center of his left hand. While he was writhing in agony, thi raised hae voice to overcome his.
-
-    "I loved my people. We loved our way of life. An Ara-worshipper like you would never understand."
-
-    He spoke back through gasps and cries, "Your people are slaves."
-
-    Thi applied pressure to his free arm against its natural bend as he struggled to keep both his hand and arm intact.
-
-    "And you under Ara are not guilty of the same? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into an addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
-
-    <!-- TODO: Change this, as Shinna should not be livid but nonchalant since nobody can die -->
-
-    Thi leaned in close to him and wrapped hae hand around his throat.
-
-    "You think we're broken. A derailed train bumbling around in the dark. I'll tell you what we are. We tried to make the only home that made sense to us. But you just couldn't stand it, could you? You had to come here and burn it all down. Nobody here can have a shred of fucking happiness."
-
-    Thi took hae hand away from Kipnu's neck and he gasped for air between tears and cries of pain. Shinna rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
-
-    "Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
-
-    He mustered up what little strength he had to answer, "I didn't..."
-
-    Thi hesitated a bit.
-
-    "Stop lying."
-
-    "I... didn't"
-
-    Thi looked over at him, and for the first time showed some doubt.
-
-    They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Shinna's pale-cold face. Thi reached for the pipe from Kipnu and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
-
-    Thi set the blade in hae own left palm and stared at the blood.
-
-    "I took pride in what I built. In outsmarting everyone who stood in my way. I want you to remember that, Kipnu. I want you to remember who we were."
-
-    Thi turned back to Kipnu and helped him sit up. He could see tears welling up in hae eyes in between the refraction of his own.
-
-    "My dream was always to make a home for those who felt they had none. Swear to me you'll remember that."
-
-    Kipnu started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
-
-    Thi stood up and looked out to the ocean, taking hae time pondering about the past couple days.
-
-    Thi let the wind carry hae words to him, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed in hae promise. But this isn't the way it was supposed to happen."
-
-    Thi turned back to him, "Kipnu. Remember that nobody dies in the darkness." A pause punctuated the air and did nothing to help Kipnu understand.
-
-    Shinna lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
-
-    He immediately looked out toward the water, and glanced back to find Shinna walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
-
-    *The water is... warm?* He was slightly disconcerted at the warmth amidst the faint tickles of bluekelp as he swam past, as if the ocean itself had come alive and he was headed straight into its belly. The frail villi-like stalks bent and swayed to his movements, their light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear voices amongst the static in his listener, but he ignored it and kept searching.
-
-    Once he reached about 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
-
-    Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer before drowning. Kipnu started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
-
-    He heard a sound in his listener again, but it was much more audible, "Prepare for ignition".
-
-    Putting it out of his mind, he went for a third dive to pull more kelp. *Three, Two more to go.* Above him, Casra was lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, only taking two breaths before plunging back into the deep. Hallucinations of stars and flashing lights clouded his sight as he reached the bottom again. The last kelp seemed the most stubborn – its roots buried deep into the sand and its vines securely fastened to Casra's left arm. He tied the base of the stem around his arm and kept pulling, feeling his muscles giving away their last bits of strength and his lungs failing to keep their hold on the air. They let a sip of salt slip in, then two, and then the taste of salt permeated his cognition and filled him with panic. He choked in reflex and pushed off from the ground to try to surface, but his arm was held back. The omnipresent blue light amongst the trickles of sand against his skin disoriented him as he fought to unravel himself. Up had become down, and down had become up, and he was lost in between.
-
-    As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
-
-    The listener spoke again, "Kipnu... Melna... I love you."
 
 <!--
 
