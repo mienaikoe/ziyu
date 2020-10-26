@@ -275,33 +275,57 @@ A constant pulse of waves began to fill the darkness, and he could taste more of
 
 "Casra!" He called toward the sound. There was no answer.
 
-He came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was astonished at the scene before him. A streak of blue light hanging upon every wave, reaching down to the ocean floor. In the sky were far more dots marring Ulu than he had seen before. Some were white or red, and many were infrared.
+He came to a place where the trees cleared, and the ground had all but turned to sand. Looking out toward the ocean, he was astonished at the scene before him. The seawater was teeming with glowing kelp, a streak of blue light hanging upon every wave, reaching down to the ocean floor. In the sky were more of those strange dots he had seen from the treetops, but far more, marring Ulu like the .
 
-Kipnu refocused on his mission. He called out again, "Casraaa!!"
+Kipnu refocused on his mission. He called out again, "Casra!"
 
 "Thi's dead," Shinna's voice came from behind him. Kipnu jumped out of surprise and looked around for hae.
 
-"Or alive," thi continued. "Depends on your philosophy, I suppose."
+"Or alive," thi continued. "Depends on how you look at it, I suppose."
 
 "What did you do to hae?"
 
-Thi took a moment to respond, and Kipnu sensed that thi was moving, but couldn't see where. He lunged where he thought thi might have gone, but Kipnu was met with nothing but thin air and sand. Before he could recover, thi drew hae dagger to his neck.
+There was a moment of silence. Kipnu sensed that thi was moving, but couldn't see where. He lunged at where he thought thi was but he was met with cold thin air and the sound of hae voice above him. Thi spoke with a tone of smoldering rage.
 
-"Burning our home to the ground wasn't enough, huh? Hundreds of people, dead in a moment and you still aren't satisfied-"
+"Burning our home to the ground wasn't enough? Hundreds of people, dead in a moment and still you aren't satisfied."
 
 "The fire? I didn't start that–"
-
-"Had I known you were a psychopath, I would have kept you a slave. But instead, I let my guard down, and you destroyed everything and everyone I loved."
-
-"It wasn't me," he pleaded. Thi turned him around and stabbed cleanly through the center of his left hand. While he was writhing in agony, thi raised hae voice to overcome his.
 
 "I love my people. We love our way of life. An Ara-worshipper like you would never understand."
 
 He spoke back through gasps and cries, "Your people are slaves."
 
-Thi circled around him, unraveled hae robe to reveal all of the light on hae.
+Thi circled around him, unraveled hae robe to reveal all of the light infused into hae skin. It blinded him just enough for hae to immobilize him and hold a dagger to his neck.
 
-"And you under Ara aren't? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into addiction to handle the misery? Burn us all in a fire and make it look like an accident?"
+"And you under Ara aren't? How do you handle those who don't fit your mold of the perfect person? Exile us to the darkness where we won't be a nuisance? Force us into addiction to handle the misery? Burn us all in a fire and make it look like an accident? Psycopaths like you deserve to rot for eternity under the blue. You strip this world of everything good and erase those who dissent."
+
+"It wasn't me," he pleaded. He wanted to show hae somehow that he wasn't the man thi believed him to be, but the words eluded his mind and his lips; only fear was left.
+
+Thi pushed him onto the ground, held his chest firmly under hae foot, and raised hae dagger to strike.
+
+"I gave you a tree," thi said. "And you burned the forest. Tonight you will burn with us."
+
+The sound of two feet rustling the forest floor interrupted hae. Thi looked aside, and put hae dagger away, immediately forgetting about Kipnu.
+
+"Ramne, why are you here?" thi asked.
+
+He seemed as surprised as thi was.
+
+"Found a traitor among them," he said. "Thi knew about the saltpeter and the antikan and led them straight to it. Thi's the only one who could have started the fire."
+
+"Your own partner? Are you sure?"
+
+"Absolutely."
+
+He pushed the maman into Shinna's light and held out hae hands.
+
+"See the dust?"
+
+Shinna glanced at hae hands and nodded in assent while Ramne looked on at Kipnu.
+
+"Looks like you have a rebel of your own," said Ramne.
+
+<!-- left off -->
 
 Thi lowered haeself to put hae face in front of his.
 
