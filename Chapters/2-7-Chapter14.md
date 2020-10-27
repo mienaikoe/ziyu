@@ -303,7 +303,7 @@ Thi circled around him, unraveled hae robe to reveal all of the light infused in
 
 Thi pushed him onto the ground, held his chest firmly under hae foot, and raised hae dagger to strike.
 
-"I gave you a tree," thi said. "And you burned the forest. Tonight you will burn with us."
+"I gave you a tree, and you burned the forest. Tonight you will burn with us."
 
 The sound of two feet rustling the forest floor interrupted hae. Thi looked aside, and put hae dagger away, immediately forgetting about Kipnu.
 
@@ -321,9 +321,59 @@ He pushed the maman into Shinna's light and held out hae hands.
 
 "See the dust?"
 
-Shinna glanced at hae hands and nodded in assent while Ramne looked on at Kipnu.
+Shinna glanced at hae hands and nodded in assent while Ramne glanced at Kipnu. He had a careless scowl, silhouetted in Shinna's body light, and the skin on his ankles were now exposed from which a bright blue light scattered across the ground around him.
 
 "Looks like you have a rebel of your own," said Ramne.
+
+Shinna responded in an almost mechanical tone.
+
+"These two have caused death and destruction to befall Ulukoma. They deserve what is coming to them."
+
+Kipnu was unaware of what would come next, but he felt the frothing of finality in the air, as if fate itself had reached a boiling point.
+
+"Hold Ginnu for a moment," said Ramne. "I'll get him."
+
+He moved slowly toward Kipnu, who had started to run but found poor footing in the darkness, stumbling over rocks and driftwood strewn across the beach. When Ramne caught up to him, he hadn't gone far.
+
+"I remember you," he said a little too loudly for someone so close. "You gave that rousing speech about your first day in Ulukoma. Welcome to the underworld."
+
+A loud patronizing laugh came out of his mouth, mingling with the acrid smell of stale pohua beer. Kipnu smelled something else too, something distinctly mineral.
+
+Shinna followed behind him with Ginnu's arm in hae hand.
+
+"Let's just be finished," Shinna said. "We need to get out of here soon."
+
+"Patience leads to beautiful things, Shinna."
+
+He put his arm around Kipnu as if they were best friends. Kipnu shrugged it off, but Ramne insisted with a tight grip on his wrist that Kipnu couldn't wrestle free from.
+
+"Now Ginnu has been a loyal partner for countless days and nights. Though hae treachery has caused the suffering of hundreds of individuals, hae death should be swift, painless, poetic even."
+
+He turned to Kipnu and said, "Kipnu, fetch us a small bit of kelp from the water."
+
+Ramne pulled out a long metal tube with some sort of ornate mechanisms attached to it.
+
+"And don't even think about running," he said.
+
+Kipnu looked back at Ramne, confused, but knew this might be his last chance to escape. Slowly, obediently, he waded into the waves, keeping his eyes on Shinna and Ginnu, who both seemed agitated at his situation. The water surprised him with its warmth and the faintest tickles of bubbles that were released as he broke the sand below him. His listener had come alive with a strange sound, almost like voices amongst the static. He felt as if the ocean had come alive and he was headed straight into its belly.
+
+The frail villi-like stalks bent and swayed to his movements, and he reached down to fetch one. The blue light was brighter than even the light from Shinna's body. He suspected that this plant is where Kanosin came from.
+
+With his head submerged, he tugged hard on the vine, trying his best to wrest it from the ground, but he the vine wouldn't give. The leaves were much easier to separate from their vines, and he gathered three for good measure, nestling two under the middle of his tunic. He waded back with a leaf of bluekelp and a plan.
+
+"Do you have it?" Ramne asked. But Kipnu didn't respond.
+
+"Kipnu, do you have the kelp?" he asked again. Kipnu kept walking, with his eyes locked upon Shinna's. When he stopped, he was knee-deep in the water, with Ramne impatiently wading into the water to meet him, all with this metal pipe pointed directly to his chest. Kipnu spotted the window of his opportunity approach, and took Ramne's free hand, filling it with the one kelp leaf he'd kept visible. Ramne pushed him away, keeping the kelp leaf, and proceeded toward Ginnu. Meanwhile, Kipnu's eyes were transfixed on Shinna who began to notice.
+
+"Ginnu, we don't have kanosin for you because you destroyed it all, but I suppose this is the next best thing. Swallow the liquid inside and you'll satisfy the craving you so dearly desire."
+
+Kipnu held his hand up to his nose, sending a signal to Shinna. Thi paused for a moment, then took one step closer to Ginnu and inhaled quietly, so Ramne wouldn't notice. Thi noticed an odor with a quizzical look behind hae face, then looked at the leaf, then to Ramne's hand and a look of understanding formed across hae face.
+
+Ginnu quckly took the leaf into hae mouth and pulled it against hae teeth, letting the contents into hae mouth. Thi soon lost hae balance and slipped into the kanosin trance.
+
+"There you go," Ramne said, laying hae softly onto the sand and unceremoniously squeezed on the metal device in his hand. A loud crack rang out into the air and the color of hae blood spread across the sand. Shinna was horrified.
+
+"Kipnu, come closer," said Ramne, but Kipnu stood in shock. Ramne was unnaturally aloof with life.
 
 <!-- left off -->
 
@@ -369,7 +419,6 @@ But you just couldn't stand it, could you? You had to come here and burn it all 
 
     He immediately looked out toward the water, and glanced back to find Shinna walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
 
-    *The water is... warm?* He was slightly disconcerted at the warmth amidst the faint tickles of bluekelp as he swam past, as if the ocean itself had come alive and he was headed straight into its belly. The frail villi-like stalks bent and swayed to his movements, their light and making it easier to look for Casra. Amidst all the noise of his swimming, he thought he could hear voices amongst the static in his listener, but he ignored it and kept searching.
 
     Once he reached about 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
 
