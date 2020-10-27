@@ -373,7 +373,7 @@ Ginnu quckly took the leaf into hae mouth and pulled it against hae teeth, letti
 
 "There you go," Ramne said, laying hae softly onto the sand and unceremoniously squeezed on the metal device in his hand. A loud crack rang out into the air and the color of hae blood spread across the sand. Shinna was horrified.
 
-"Kipnu, come closer," said Ramne, but Kipnu stood in shock. Ramne was unnaturally aloof with life.
+"Kipnu, come closer," said Ramne, but Kipnu stood in shock.
 
 <!-- left off -->
 
