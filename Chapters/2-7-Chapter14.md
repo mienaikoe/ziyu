@@ -303,7 +303,7 @@ Thi circled around him, unraveled hae robe to reveal all of the light infused in
 
 Thi pushed him onto the ground, held his chest firmly under hae foot, and raised hae dagger to strike.
 
-"I gave you a tree, and you burned the forest. Tonight you will burn with us."
+"I gave you a tree, and you burned the forest. Tonight you meet the arbiter of your retribution. And thi is far from kind."
 
 The sound of two feet rustling the forest floor interrupted hae. Thi looked aside, and put hae dagger away, immediately forgetting about Kipnu.
 
@@ -371,260 +371,38 @@ Kipnu held his hand up to his nose, sending a signal to Shinna. Thi paused for a
 
 Ginnu quckly took the leaf into hae mouth and pulled it against hae teeth, letting the contents into hae mouth. Thi soon lost hae balance and slipped into the kanosin trance.
 
-"There you go," Ramne said, laying hae softly onto the sand and unceremoniously squeezed on the metal device in his hand. A loud crack rang out into the air and the color of hae blood spread across the sand. Shinna was horrified.
+"There you go," Ramne said, laying hae softly onto the sand and unceremoniously squeezed on the instrument in his hand. A loud crack rang out into the air and the dark shadow of hae blood spread across the sand.
 
-"Kipnu, come closer," said Ramne, but Kipnu stood in shock.
+"Kipnu, come closer," said Ramne, but he stood perfectly still save for the tremors in his body. Ramne rose the weapon, pointing it toward Kipnu.
 
-<!-- left off -->
+"You heard me," he said, and as if in a trance, Kipnu started to walk closer.
 
-Thi lowered haeself to put hae face in front of his.
+"There you go," Ramne said. "Ah, stop right there."
 
-"You think we're a broken society? I'll tell you what we are. We tried to make the only home that made sense to us. Those who threatened us remained in their drunken stupor, while the rest of us made the best we could from their labor.
+Shinna stood to the side of him, glancing behind haeself as if weighing hae options. Ramne continued as if thi had vanished into the background: a passive audience to his judgment and execution.
 
-But you just couldn't stand it, could you? You had to come here and burn it all down. Nobody here can have a shred of fucking happiness."
+"Now Kipnu, on the other hand. He's a real troublemaker. Came to this shithole and got right to work dismantling it all. You might think yourself a noble man, Kip, but that means nothing in this world. You and all your addict friends are the filth of society, the very spirit of Ulu. Ara is the fire that demands your sacrifice. And if you won't give it willingly, it shall be taken from you by force."
 
-    Thi took hae hand away from Kipnu's neck and he gasped for air between tears and cries of pain. Shinna rummaged in hae dressings and took out an ornate pipe, well-used and wooden, and lit it with a hot tip. The embers were slow to light, and few to number, but thi took a drag anyway.
+Kipnu had heard this way of speaking before, in a Holragi curiosity he'd leafed through on a whim. The teachings inside it struck him as antithetical to everything he believed. The Code of the Conscious, the philosophy of the first Heiko. These are the things that drove him to save lives, to reduce suffering. But now he knew what foul thoughts he was up against, and he met Ramne's gaze with conviction.
 
-    "Why fire?" thi asked, crouching a few paces away. "You could have ambushed us or held some of us for ransom. But fire. Why?"
+"When Ara fades from the sky and you've killed off everyone you ever had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
 
-    He mustered up what little strength he had to answer, "I didn't..."
+He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the dark."
 
-    Thi hesitated a bit.
+He stared comfortably into Kipnu's eyes as if harvesting Kipnu's emotions to feed his malevolent hunger.
 
-    "Stop lying."
+"When the darkness falls and the mainlanders kill each other in the chaos, I'll be there to laugh as it all comes tumbling down."
 
-    "I... didn't"
+Kipnu walked closer to challenge him and said, "You're nothing but a twisted drug peddler. The people of this world are nothing like you."
 
-    Thi looked over at him, and for the first time showed some doubt.
+Ramne smirked and adjusted the instrument. "Not yet."
 
-    They spent a moment in the cold, saying nothing. The blue waves projected countless patterns across Shinna's pale-cold face. Thi reached for the pipe from Kipnu and took two more deep inhales before bringing it back to him and removing hae dagger from his hand and the ground. He cried out again
+He squeezed the metal instrument with his hand and another shot rang out. Kipnu dove into the water to dodge the projectile, bracing for some kind of stinging pain. But a wave passed, and there was no pain. He surfaced again and found him struggling with Shinna, the metal instrument gripped tightly in his hand. Without thinking, Kipnu rushed in to wrest it from Ramne's hand, grasping tightly at his fingers to pry them off, but they held fast. Shinna was thrown out of the scuffle in a sudden twisting motion and the two men fell to the ground with Ramne underneath. He struggled as Kipnu arrested his arms against his back, and suddenly pushed himself backward to lift Kipnu off of him. As he flew back, Kipnu held on to Ramne's firing arm and inadvertently turned it straight toward himself. Another crack rang out and Kipnu felt the sting of hot metal pierce a bone in his chest, and the flowing of blood his body came in one stream down his abdomen and into the sand. Through fading eyes, he saw Shinna with hae light reflecting off the metal of the instrument, and Ramne vanishing into the night.
 
-    Thi set the blade in hae own left palm and stared at the blood.
+"Kipnu!" He heard Shinna's voice calling from above. Or below?
 
-    "I took pride in what I built. In outsmarting everyone who stood in my way. I want you to remember that, Kipnu. I want you to remember who we were."
+"Don't die on me. Not today."
 
-    Thi turned back to Kipnu and helped him sit up. He could see tears welling up in hae eyes in between the refraction of his own.
+But through the commotion and the fickle passage of time, another voice was interred in his ear and slept there with him in his final moment.
 
-    "My dream was always to make a home for those who felt they had none. Swear to me you'll remember that."
-
-    Kipnu started to lose some cognition, but the cold acted as his last thread to coherence. He looked up at hae, pensively toying with the knife and said, "I swear it."
-
-    Thi stood up and looked out to the ocean, taking hae time pondering about the past couple days.
-
-    Thi let the wind carry hae words to him, "This is how thi wanted to die. Dancing in the undying light that Ulu created. Casra and I buried a friend here once. Back when I still believed in hae promise. But this isn't the way it was supposed to happen."
-
-    Thi turned back to him, "Kipnu. Remember that nobody dies in the darkness." A pause punctuated the air and did nothing to help Kipnu understand.
-
-    Shinna lifted her hand and pointed to giant boulder in the distance, "Thirty paces toward Thassa's island. Don't let hae die."
-
-    He immediately looked out toward the water, and glanced back to find Shinna walking back into the forest. With a rush of adrenaline, he leapt toward the ocean and didn't look back.
-
-
-    Once he reached about 30 paces, he dove underwater to look for hae and was faced with a forest of light. It was impossible to see more than a few paces away, and his muscles were becoming slow to respond, but he carried on anyway, diving several times to look for the silhouette of a body.
-
-    Casra had both hae hands and legs tied to several bluekelp around hae; loosely as if to make hae suffer before drowning. Kipnu started to tear some of the kelp off of Casra, but it was tougher than he had predicted it to be, and he got nowhere with that plan. On his second dive, he attempted to pull the tightest kelp off of the rocky seafloor, and with some effort it came loose and Casra surfaced.
-
-    He heard a sound in his listener again, but it was much more audible, "Prepare for ignition".
-
-    Putting it out of his mind, he went for a third dive to pull more kelp. *Three, Two more to go.* Above him, Casra was lightly wrapped by the light of the bluekelp that had once held hae down. He surfaced again to catch his breath, only taking two breaths before plunging back into the deep. Hallucinations of stars and flashing lights clouded his sight as he reached the bottom again. The last kelp seemed the most stubborn – its roots buried deep into the sand and its vines securely fastened to Casra's left arm. He tied the base of the stem around his arm and kept pulling, feeling his muscles giving away their last bits of strength and his lungs failing to keep their hold on the air. They let a sip of salt slip in, then two, and then the taste of salt permeated his cognition and filled him with panic. He choked in reflex and pushed off from the ground to try to surface, but his arm was held back. The omnipresent blue light amongst the trickles of sand against his skin disoriented him as he fought to unravel himself. Up had become down, and down had become up, and he was lost in between.
-
-    As the darkness closed in on him, his listless gaze found Casra's shape, wrapped in blue light, peaceful and solemn.
-
-    The listener spoke again, "Kipnu... Melna... I love you."
-
-<!-- left off -->
-
-<!--
-
-
-    After 80 presses with no pulse or breathing, he stopped and slowly removed Ginnu's body from his own. He looked into hae lifeless eyes once more, both of their chests blue with kanosin, illuminating the space between life and death.
-
-    "I'll come back for you," he told hae, wishing he could be certain. An overwhelming air of failure welled up in him, but he pushed it down and forced himself to run away.
-
-
- trying to convince them that  The hope of Casra's return had kept them alive, and now that hope was gone.
-
-
-
- Kipnu heard the clanging of weapons, hoped that Setre was doing well.
-
-
-
-
- Some of those who knew Casra cried out at the sight of hae body. They leaped to wrest hae free from Shinna's arms, but hae strength was much greater than theirs.
-
-
-"Linyu, what are those red dots?" he asked, pointing toward the horizon.
-
-"Don't know. Mom calls them Ara's children. They're always right above the clouds when Ara is far away."
-
-"And they've always been there?"
-
-"Always."
-
-Kipnu was transfixed on them, wondering why he had never seen them on the mainland. but he snapped out of his temporary obsession, remembering that they still had a job to do. -->
-
-<!--
-Kipnu shot a glance toward hae feet where
-
-"Maybe this is where they went," thi said.
-
-"Maybe," he said, taking up two daggers and handing one to Ginnu. Hae hands took the dagger as thi looked up with concern and confusion, but he could do nothing to quell it - they had to find the missing scouts. Kipnu kneeled down at the edge of the hole and with an imperceptible creak, he swung the door open to uncover a tunnel big enough for one leading into the darkness.
-
-"I've never seen this before," thi said.
-
-"This place gets stranger the longer I'm here," he responded.
-
-After a pause, thi said. "Let me go first. I won't raise suspicion."
-
-"After you."
-
-With their hands against the wall, they made their way into the tunnel with only the blue light on Kipnu's chest to light the way. After only a few steps, Ginnu suddenly and silently vanished, followed by a loud thump that reverberated in a space bigger than he could imagine.
-
-"Ginnu?!" he yelled out to hae, but there was no answer.
-
-He moved a little closer and came upon a sharp cut off in the ground where there was no more reflection of the blue light against anything in front of him. *A room. Dug into the ground like Shaki*, he thought. He sat down on the edge to try and feel for where the ground was in front of him, but he stopped when he heard the sound of footsteps on dust from far away in front of him. With his right arm, he covered his blue mark, readying his dagger in the other and watched as the mysterious person came closer. The figure stopped immediately below him, several strides down and removed a shirt to reveal the bright blue markings of a guardian. The light bounced off of the ground and illuminated the face of Ramne, examining at the body lying on the floor in front of him.
-
-Once Ramne had created enough distance, Kipnu hid the dagger in his pouch and started his search for the ground, slowly swinging his leg down and off the ledge. On the third swing, he broadened his search, and his toe hit a steel peg, causing him to wince and fight every urge to scream. He took a moment to regain his calm while the throbbing pain passed and proceeded to carefully move his hands to the peg. It was grooved in a peculiar way and the bottom was covered with a thick layer of rust, but after a few swipes he was sure he could get a solid grip on it. He started by slowly adding more of his weight on it until he was sure it would hold him. With a leap of faith, he jumped and let his feet fall below him while his hands were still fixed to the ends of the peg. To his surprise, his feet discovered another peg below him, upon which he found more secure footing and carefully stooped down to. He performed the same steps on the next peg and his feet found a layer of dust thick enough to cushion his feet before they hit the cold hard ground. In the distance, he could still see the remnants of Ramne's blue light and the shadow of his feet touching the floor with every step.
--->
-
-    He glanced at where he had seen Ramne before to find nothing but the dark and then reassured hae one more time with a hand squeeze before running back toward the pegs and the hole he entered from. Inside, Fanla and Penyi were busy fetching weapons and passing them under the cloth wall.
-
-    "Fanla? Penyi? Where did you go? We've been waiting for you," he whispered loudly.
-
-    Fanla replied, "We hid because someone came in looking for us."
-
-    He hasitated for a moment and then regained his train of thought.
-
-    "I need a hot tip, have you seen one?"
-
-    Fanla approached him and didn't seem to have heard what he requested, "What have you been doing down there? Linyu has been going crazy on the listener."
-
-    *Why didn't I hear him?*
-
-    "What do you mean?"
-
-    "Thi saw some figures running from the pavilion and is certain one of them was Casra."
-
-    "Dammit."
-
-    "Well shouldn't you go after them?"
-
-    "I can't do that right now. Ginnu is down here and thi fell pretty hard. I need a hot tip to cauterize a wound."
-
-    She gasped and then darted to a corner of the room where she picked up a pouch and immediately handed them to Kipnu who immediately noticed the pouch was still warm. She said, "I saw a vial of Kanosin and a hot tip in this bag."
-
-    Before he could turn back around, she asked him, "What should I tell the others?"
-
-    "Tell them to stay hidden and Find Setre. Tell her what you told me."
-
-    "Got it," she said and darted off.
-
-    From afar he could hear faint sounds of dust shifting quickly on the ground. As he grew nearer his fears were escalated when he realized Ginnu was having a seizure.
-
-
-
-
-
-
-    He glanced at the wound and saw that the swelling had come down but blood was still draining out steadily.
-
-    *Thi's bleeding from an artery under the broken bone.*
-
-    He opened the pouch that Fanla had given him and used his fingers to examine its contents. *syringe, kanosin ampule...A hot tip* He pulled the hot tip out and examined the charred point. *Looks like it's still got some life*.
-
-    He took one more observation of hae vitals while repeatedly pressing the plunger to warm it up, "convulsions; pulse fast; pressure high; temperature high."
-
-
-    He moved the hot tip toward the incision he had made, but either through reflex or alertness, Kipnu stopped and jumped off of Ginnu and away from an arm trying to grab him out of the darkness. It was Ramne, by the looks of his markings, pacing toward him.
-
-    "Who're you?! What are you doing with Ginnu?!" Ramne demanded.
-
-    Kipnu took a defensive stance and held the blade tightly in the light so Ramne could see.
-
-    "I need to help hae," Kipnu asserted.
-
-    "You're that doctor that ran off, aren't you? I know better than to bid on arrogant pricks like you. The fuck are you doing down here?"
-
-    Kipnu didn't respond, but held his stance and his look of disdain.
-
-    "Oh I get it. You're the hero come to the rescue. Well you're about a lifetime too late."
-
-    "Please, I need to help hae."
-
-    He snickered under his gritty breath and took a few steps closer, kicking Ginnu's sprawled lifeless leg out of the way. Kipnu could see that Ramne was on a stiff dose of Kanosin. He quickly glanced at Ginnu and saw the blood still trickling out of the wound, but didn't dare take his eyes off of Ramne.
-
-    Ramne said, "Thi's mine. But I don't give a shit about hae. You think thi's different than anyone else here? You think either of hae hearts still cares about right and wrong? If it weren't her out there keeping the world full of Kano, someone else would be doing it."
-
-    "Look, I'm not here to argue. Ginnu needs help or thi'll die."
-
-    "Thi's already gone. What the fuck does thi care?"
-
-    He glanced at hae again to check his statement. Blood continued to drip out of the wound, and the convulsions were slowing.
-
-    Ramne continued, "You think you know what happened here, don't you, Kipnu. Everybody took Casra' good nature and then stabbed hae in the back with it. We told hae to fight back, but instead thi fled into the dark forest with hae kaln. Thi chose to abandon everyone while Setre and I tried to save it from burning to the ground."
-
-    Ramne leaned over Ginnu, his chest above haes with his palms on his knees. He took a closer look at Kipnu in the light of his decorated body.
-
-    He said, "You might think yourself a noble man. But that means nothing here. Ulukoma is shit. You dominate everything you can. And then you die."
-
-    Kipnu met his gaze with conviction in his eyes. "When Ara fades from the sky and you've killed off everyone you had a chance to love, I hope you find the decency to regret it all as you die alone in the dark."
-
-    He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the dark."
-
-    Rising to his right, he turned and stared comfortably into the void as if speaking to an invisible friend.
-
-    "You know what, Kipnu, I like you. Let's make a deal, I'll let you live at the end of all this and you can stay here to be my personal servant."
-
-<!--
-But the addicts and criminals of the world are lazy and wicked; their contributions must be taken from them by force.
--->
-
-    "Get the fuck out of here."
-
-    "Just think about it. This'll be the only place left when the darkness falls and you mainlanders kill each other in the chaos."
-
-    Kipnu walked closer to challenge him and said, "We aren't like you!"
-
-    Ramne smirked in his face and said, "Not yet."
-
-    Ramne backed away slowly from Kipnu, their eyes fixated on each other, and then he turned to fade into the infinite abyss.
-
-    Without pause, Kipnu once again dropped to Ginnu and took an observation, "Unconscious; pulse high; pressure high; temperature still high; breathing...stopped"
-
-    "Dammit, Ramne," he said under his breath.
-
-    He scrambled to find the hot tip in the dust and caught it with a finger. From a satchel at his waist, he produced some kelp collagen Casra had given him, and applied it to the wound. She said it would melt over a wound, but he wasn't sure if it would do the trick with one so big and full of blood. Without being able to see the wound, he imagined the vasculature system in the area, as he was trained to do. He positioned the hot tip and melted the collagen over the artery exactly where the fractured skull piece would have punctured it. The cauterizing procedure was nearly instant; he had been rehearsing it in his head while talking to Ramne.
-
-    *Kanosin reduces blood pressure.* He reached back into the pouch with his bloody fingers and produced the syringe and ampule. It took only a few presses to warm the hot tip enough to sanitize the needle. He punctured the wax seal of the ampule with the syringe, and set the puncture lever to let the translucent blue liquid enter the needle. *It's ready.* He pulled hae shirt down to expose hae chest and plunged the kanosin into it over one of hae hearts. Glowing blue streaks radiated underneath hae pallid skin as they had for Kipnu a single night ago. Hae eyes gazed forward and inward, sitting lifeless in their cradles where they had been alive moments ago. Kipnu watched as they dilated ever so slightly, but didn't move.
-
-    He checked her vitals again, "Unconscious. Temperature lower. Pulse...No no no!"
-
-    He slipped behind her as he had for Linyu and began to compress hae hearts. No response. *Thi lost too much blood. I need to transfuse.*
-
-    The syringe showed some signs of dulling but he carried on, plunging it into his own arm to fill the barrel with blood. No time was wasted to clot the wound he just produced in his arm; he found a vein in hae arm, narrow and empty with blood loss, and painstakingly located it with the needle to fill it with the new contents of the syringe. Hae shirt became a dressing for the now-cauterized wound while he once again assumed his position behind hae, trying desparately to restart hae hearts.
-
-    "You will not die on me. Not today," he said into hae unhearing ear.
-
-    "Kipnu!" He heard Fanla's voice calling from above.
-
-    "Not now!"
-
-    "The Pavilion is on fire!"
-
-    "I said not now!" he said, tuning her out.
-
-    He moved out from under Ginnu and picked up the needle again, jabbing it into the same wound, yelling in pain and frustration. He removed the bloody dressing and found the narrow vessel again. Her question weighed on him heavily. *"Am I dying?"* He heard it echo in his mind as he crawled back under her and counted his compressions on her hearts.
-
-<!--
-
-	"Tell me, Kipnu um Heiko: Why would a magistrate send a doctor to Ulukoma in the midst of a global crisis? Do you really think he values justice over sensibility?"
-
-	"How do you know about that?"
-
-	"Oh, everybody has a debt to pay. Sometimes an... arrangement can be made for those who would rather pay in power."
-
-	"People like you bring nothing but misery to the world. You make me sick."
-
-
--->
+"Kipnu... Melna... I love you."
