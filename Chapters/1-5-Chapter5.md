@@ -32,7 +32,7 @@ We rode the funicular up the mountain and toward the Senate. It made several sto
 
 "Senate. Last stop," called the operator.
 
-I helped him off the funicular and he took a seat on the first bench he could find to rest his legs. It was a small public square directly in front of the senate building.
+I helped him off and he took a seat on the first bench he could find to rest his legs. It was a small public square directly in front of the senate building.
 
 "Ah this brings me back. You see that gate? I used to walk through it every day. I would always round the left corner as I entered from the west. And the steam fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
 
@@ -72,7 +72,7 @@ Fajro began, "I am Fajro, retired fidelant of Holrag. I have been summoned to de
 
 "She hasn't mentioned this to us."
 
-"Yes. I was summoned by the , as the matter is unexpected and urgent."
+"Yes. I was summoned by the speaker, as the matter is unexpected and urgent."
 
 She deliberated with her partner, and glanced at me once, sending a shock of worry through my bones. I was getting cold again.
 
@@ -80,13 +80,13 @@ She deliberated with her partner, and glanced at me once, sending a shock of wor
 
 _NO_
 
-He replied, "My... attendant helps me walk on account of my injured knee. I really can't go anywhere without help these days."
+He replied, "My... attendant helps me walk on account of my injured knee. I can't go anywhere without help these days."
 
 The male guard begrudgingly walked over to me and said, "Open your bag."
 
 I complied and he rummaged for a bit before walking back and giving a hand sign to the other guard. She said, "Go ahead."
 
-The senate grounds were surrounded by the building that the rest of the city called the Senate. It was a massive circle of offices and gates and walkway, its diameter as large as the farmland I worked in Heiko. But the true focus of this place was the deliberation hall: a marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a short marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without the constant shade that the perimeter circle granted. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but dared not draw attention to myself.
+The senate grounds were surrounded by the building that the rest of the city called the Senate. It was a massive circle of offices and gates and walkway, its diameter as large as the farmland I worked in Heiko. But the true focus of this place was the deliberation hall: a giant marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a short marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without the constant shade that the perimeter circle granted. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but I dared not draw attention to myself.
 
 Fajro set me back on track, "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
 

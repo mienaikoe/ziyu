@@ -397,13 +397,13 @@ Kipnu walked closer to challenge him and said, "You're nothing but a twisted dru
 
 Ramne smirked and adjusted the instrument. "Not yet."
 
-He squeezed the metal instrument with his hand and another shot rang out. Kipnu dove into the water to dodge the projectile, bracing for some kind of stinging pain. But a wave passed, and there was no pain. He surfaced again and found him struggling with Shinna, the metal instrument gripped tightly in his hand. Without thinking, Kipnu rushed in to wrest it from Ramne's hand, grasping tightly at his fingers to pry them off, but they held fast. Shinna was thrown out of the scuffle in a sudden twisting motion and the two men fell to the ground with Ramne underneath. He struggled as Kipnu arrested his arms against his back, and suddenly pushed himself backward to lift Kipnu off of him. As he flew back, Kipnu held on to Ramne's firing arm and inadvertently turned it straight toward himself. Another crack rang out and Kipnu felt the sting of hot metal pierce a bone in his chest, and the flowing of blood his body came in one stream down his abdomen and into the sand. Through fading eyes, he saw Shinna with hae light reflecting off the metal of the instrument, and Ramne vanishing into the night.
+He squeezed the metal instrument with his hand and another shot rang out. Kipnu dove into the water to dodge the projectile, bracing for some kind of stinging pain. But a wave passed, and there was no pain. He surfaced again and found him struggling with Shinna, the metal instrument gripped tightly in his hand. Without thinking, Kipnu rushed in to wrest it from Ramne's hand, grasping tightly at his fingers to pry them off, but they held fast. Shinna was thrown out of the scuffle in a sudden twisting motion and the two men fell to the ground with Ramne underneath. He struggled as Kipnu arrested his arms against his back, and suddenly pushed himself backward to lift Kipnu off of him. As he flew back, Kipnu held on to Ramne's firing arm and inadvertently turned it straight toward himself. Another crack rang out and Kipnu felt the sting of hot metal pierce a bone in his chest, and the flowing of blood his body came in one stream down his abdomen and into the sand. Though his eyes were fading and his ears were ringing, he saw Shinna stab a dagger clean through Ramne's hand, dislodging the weapon from it. Thi held it up toward him and Ramne vanished into the night.
 
-"Kipnu!" He heard Shinna's voice calling from above. Or below?
+"...prepare for ignition," he heard a faint voice through the static in the listener.
 
-"Don't die on me. Not today."
+"Kipnu!" Shinna's voice was calling from above. "Don't die on me. Not today."
 
-But through the commotion and the fickle passage of time, his mind slipped into itself. Another voice entered his ear. Whether it was imagined or real was inconsequential: the voice was true. And it slept there with him in his final thought, as true things do.
+But through the commotion and the fickle passage of time, his mind began to slip into itself and lose contact with the world. Another voice entered his ear. Whether it was imagined or real was inconsequential: the voice was true. And it slept there with him in his final thought, as true things do.
 
 "Kipnu... Melna..." thi said.
 

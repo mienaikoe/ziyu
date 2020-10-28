@@ -18,39 +18,39 @@ Interlogue
 
 "Twelve"
 
-I sat in the dark capsule with cold and trembling hands, checking my shoulder straps and air mask for extra tightness. My muscles could barely pull anything through the shaking. Fajro assured me that the straps would hold me tightly against my seat so I wouldn't injure myself during the launch. _I think he cares, but I can't be sure._
+My hands trembled uncontrollably in the darkness of the capsule as it lie still in the launching chamber of the Holragi space rail. I tried checking my shoulder straps and air mask for extra tightness, but my muscles could barely pull anything through the shaking. Fajro assured me that the straps were engineered to hold me tightly against my seat so I wouldn't injure myself during the launch. _I think he cares, but I can't be sure._
 
 "Eleven"
 
-The tumblers from all the gauges burned their zeroes into my eyes as I went over what I had been taught. _The altimeter is on the left, in paces. My trajectory and turbulence is stable at 8000 paces, but I'll have to use the thruster knobs to control my orientation. Orientation! That's over-_
+The tumblers from all the gauges burned their zeroes into my eyes. I went over what I had been taught. _The altimeter is on the left, measured in paces. Stable trajectory at 8000 paces, but I'll have to use the thruster knobs to control my orientation. Orientation! That's over-_
 
 "Ten"
 
-_Dammit it's too fast! Okay. Orientation is right of the altimeter._ I spun the ball a bit to get a feel for how I might use it once I got up there. _See, scribe, spin. Once every Va'la. Three red dots opposite Ara. And Ara itself._
+_Dammit it's too fast! Orientation is to the right of the altimeter._ I spun the ball a bit to get a feel for how I might use it once I got up there. _See, scribe, spin. Once every Va'la. Three red dots opposite Ara. One big red dot for Ara._
 
 "Nine"
 
 The voice of a control officer filled my listener, "Capacitance: stable. Temperature: stable."
 
-I instinctively responded, "Thank you," with my mask still on.
+I instinctively responded, "Thank you," with my mask still on. But no one could hear me.
 
 "Eight"
 
-My whole body tensed up again. The anxiety came in waves with the countdown and immobilized me for half of the time. I clenched my right hand around the steel bracelet they had given me in the case of my death. _There's a reason I have this. I might die._
+My whole body tensed up again. The anxiety came in waves with the countdown. I clenched my right hand around the steel knife-bracelet they had given me in the case of my death. _There's a reason I have this. I might die._
 
-_"It's only dangerous if you mess up your mission."_ Fajro's reassurance was unhelpful.
+_"It's only dangerous if you deviate from your mission."_ Jesse's reassurance calmed me, but in the back of my mind I knew that none of them could be certain.
 
 "Seven"
 
 "Ahhhnnnhhhh!" I screamed out to fight the panic, and seethed through my teeth at the pain my whole body and mind were in. _Breathe. Breathe. I need to focus to stay alive._
 
-I focused again on the instrument panel. _Antenna 1: Retracted. Antenna. Antenna. Antenna. Antenn-_
+I focused again on the instrument panel. _Antenna: Retracted. Antenna. Antenna. Antenna. Antenn-_
 
 "Six"
 
-"ahhhhhhhhhhhhhhhhhhhhhhhhhhhhhhhnnnn....."
+"Antenna. Antenna," I said aloud.
 
-I closed my eyes and tried to blank out my mind, but all of the instruction from my time in Holrag filled my head.
+I closed my eyes and tried to blank out my mind, but all of the instruction that had been ingrained in me in those two days were rattling around in my head.
 
 _Altitude. Orientation. Apoapsis. Gravitation. Oxygen._
 
@@ -58,7 +58,7 @@ _Altitude. Orientation. Apoapsis. Gravitation. Oxygen._
 
 The panic had turned into sobbing.
 
-_Am I dying? It feels like I'm dying Do I want to die? I wouldn't have to feel this. I want to die._
+"Mama..." I cried aloud to hae memory. "I miss you now. I miss you more than ever."
 
 "Four"
 
@@ -74,43 +74,55 @@ The line bathed static while I melted into the seat, into my mask.
 
 "Three"
 
-I slammed on the reinforced door above me. It didn't budge, and bruised my hands instead.
+I slammed on the reinforced door above me. It bruised my hands, it didn't budge.
 
-_This can't be happening. Why me?_
+_Why me? Why am I here?_
 
 "Two"
 
-I ripped off my mask and pulled at my shoulder straps with whatever strength I could muster through my trembling bones. But they were made for forces far stronger than me. This whole craft was made to be controlled remotely. To make me powerless to control my fate.
+I ripped off my mask and pulled at my shoulder straps with whatever strength I could muster through my trembling bones. But they were made for forces far stronger than my body could muster.
 
-The voice came on the line again, "No damage to craft. Continue."
+This whole craft was made to be controlled remotely. To make me powerless to control my fate.
+
+A voice came on the line again, "No damage. Continue."
 
 "One"
 
-I put my mask back on and clenched my fingers into the firm fabric of the seat.
+I put my mask back on and clenched my fingers into the unyielding fabric of the seat.
 
 _This is where I die._
 
 "Power."
 
-The acceleration instantly pinned me against the chair and I felt my binding pendant press tightly against my chest. All of my hydroderm was flattening backward, squeezing the liquid out onto the seat. The rails that powered the craft came in waves, announcing themselves through powerful pushes and sparks that became progressively quicker. I had no space for thoughts, only the suffering of pain and shock. Suddenly, the overbearing noise and darkness of the rail tunnel gave way and the light of Ara filled the cavernous compartment, echoed by the fluttering shake of the wind around me. Weightless, I watched as the water from my sweat and tears drifted into bulbous spheres around me, scattering the bright light of Ara.
+The acceleration instantly pinned me against the chair and I felt my binding pendant press tightly against my chest. All of my hydroderm was flattened against my body, squeezing liquid out onto the seat. The rails that powered the craft came in waves, announcing themselves through powerful pushes and sparks that became progressively quicker. I had no space for thoughts, only intense force and mental shock. Suddenly, the overbearing noise and darkness of the rail tunnel gave way and the light of Ara filled the compartment. I was immediately flung forward as the capsule came in contact with the air and turbulence shook and slowed its movements.
 
-The countdown voice came on the line, "Altitude 12,600 and climbing. Speed 27,000. Rotation stable."
+_five thousand six hundred_, I read on the altimeter as it began counting up. I reached the edge of the atmosphere and the wind slowly dwindled in strength until it became silent. I felt like I was falling, read the altimeter that told me I was rising. I looked out the window, and the instrument was right. Below me was a vast arc in a sea of black, lit by the light of Ara. _This is Palinan_, I thought. _All of this. The scorching desert, the lush green ring, the unknown darkness_. All around me inside the capsule, the water from my sweat and tears drifted into bulbous spheres around me, scattering the bright light of Ara.
 
-And then the director interjected, "Liffa, set your orientation now."
+"Antenna," I said to myself, and flipped the switch to deploy it.
 
-Her voice snapped me out of my daze and I quickly checked the pressure gauge to make sure the vehicle seal was good, and then set the orientation for the direction of Ara, just as I was taught.
+The voice came on the line again, "Altitude 12,600 and climbing. Speed 27,000. Rotation stable."
+
+And then Jesse interjected, "Liffa, can you hear us?"
+
+His voice snapped me out of my daze and I quickly checked the pressure gauge to make sure the vehicle seal was good. The radio was left on.
+
+"Yes. I can hear you," I said to the air.
+
+"Check your orientation now," he said.
+
+I checked the orientation gauge, "13 down from the origin."
 
 "When the orientation reads 20 down from the origin, let us know."
 
-I toggled the radio on, and confirmed, "Okay"
+I moved the outer marker dial to 20 down, just as I was taught and trained my eyes intently on the orientation ball, waiting for the reticle to match up with the horizon. _After this point, I will be alone for days on a path to L1._ Tears welled up in me again, when I imagined how lonely it would feel to die in this great void. There would be no goodbye. Just silence as we let the space divide us.
 
-My eyes were trained intently on the orientation ball, waiting for the reticle to match up with the line for 20. _After this point, I will be alone for days on a path to L1._ Tears welled up in me again, when I imagined how alone I would feel, dying alone in the great void. _There was no goodbye. Just silence as we let the space divide us. "I'll be waiting". Kipnu... You were always so optimistic. I bet you're back from Ulukoma by now, giving Melna hell._
+"I'll be waiting," I repeated his words in a whisper. "Kipnu... You were always so optimistic. I bet you'll have a few select words for Melna when you come back."
 
 The lines finally met. I inhaled the most painful breath and in the most broken voice said "Attitude 20 down"
 
-"Liffa, Prepare for ignition"
+"Liffa, Prepare for ignition," said Jesse.
 
-The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that I was leaving behind.
+The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that longed to keep me there.
 
 I breathed heavily into my mask and mustered a grain of strength to speak.
 
