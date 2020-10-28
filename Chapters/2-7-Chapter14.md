@@ -403,6 +403,6 @@ He squeezed the metal instrument with his hand and another shot rang out. Kipnu 
 
 "Don't die on me. Not today."
 
-But through the commotion and the fickle passage of time, another voice was interred in his ear and slept there with him in his final moment.
+But through the commotion and the fickle passage of time, his mind slipped into itself. Another voice entered his ear. Whether it was imagined or real was inconsequential: the voice was true. And it slept there with him in his final thought, as true things do.
 
-"Kipnu... Melna... I love you."
+"Kipnu... Melna..." thi said. "I love you."

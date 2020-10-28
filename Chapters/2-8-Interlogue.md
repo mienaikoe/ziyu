@@ -112,4 +112,8 @@ The lines finally met. I inhaled the most painful breath and in the most broken 
 
 The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that I was leaving behind.
 
-I breathed heavily into my mask and said, "Kipnu... Melna... I love you."
+I breathed heavily into my mask and mustered a grain of strength to speak.
+
+"Kipnu... Melna..." I said.
+
+"I love you."
