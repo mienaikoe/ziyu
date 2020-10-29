@@ -1,8 +1,8 @@
 ## Chapter 6
 
-There was a constant reverberant murmur that filled the hall as a fidelant spoke to them - something about her province's proposal for a new academy of arts. I was nestled in a walkway between two elevated seating areas, so I was hidden from the view of most fidelants. A few at the opposite end of the hall me glanced at me for a second, then returned their view as if nothing had happened. 
+There was a constant reverberant murmur that filled the hall as a fidelant spoke to them - something about her province's proposal for a new academy of arts. I was nestled in a walkway between two elevated seating areas, so I was hidden from the view of most fidelants. A few at the opposite end of the hall me glanced at me for a second, then returned their view as if nothing had happened.
 
-As I ventured further, I noticed a faint glow from a wall to the left, where Ara shone through the entryway and onto this giant orb. A precise map of the world appeared in shades on the wall with an inverse orientation, as if looking down from the sky. I observed and inferred more and more and fnially mapped out a route. Typically, people would enter from these walkways into the center before going further up to their desks, and luckily I was on the eastern portion of the hall, so I assumed that Melna sat nearby. I would still have to walk into that center circle, probably bringing a decent amount of attention to myself in the process, but it was large so I might get away with it if I stayed quiet and slow. 
+As I ventured further, I noticed a faint glow from a wall to the left, where Ara shone through the entryway and onto this giant orb. A precise map of the world appeared in shades on the wall with an inverse orientation, as if looking down from the sky. I observed and inferred more and more and fnially mapped out a route. Typically, people would enter from these walkways into the center before going further up to their desks, and luckily I was on the eastern portion of the hall, so I assumed that Melna sat nearby. I would still have to walk into that center circle, probably bringing a decent amount of attention to myself in the process, but it was large so I might get away with it if I stayed quiet and slow.
 
 I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. With every step toward the center of the hall, my hearts rushed with anxiety, but I counted my steps to remain calm. Once I entered the center area, I picked a side – _left_ – and immediately rounded the marble wall and started walking up the steps to make it look like I knew where I was going. _The speaker isn't stopping. I'm almost in the clear._ About halfway up, I lowered myself and raised my gaze to look for Melna. She didn't appear to me immediately, but then I spotted the side of her face in the front row on the opposite side of the entryway. _I chose the wrong side._ I picked up my pace to get to Melna as quickly as possible.
 
@@ -58,7 +58,7 @@ The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, 
 
 ---
 
-The holding area was dark save for a lantern on a distant wall. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time. 
+The holding area was dark save for a lantern on a distant wall. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time.
 
 I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the Senate would believe Melna. If they would ridicule her for allowing her jund to break into the Senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
 
@@ -148,7 +148,7 @@ I was surprised at Melna's reaction. Before I could explain, he rounded the corn
 
 "Absolutely not. This was Liffa's idea."
 
-"I apologize if I seem doubtful, but this is not the sort of idea thi would think of."
+"My apologies if I seem doubtful, but this is not the sort of idea thi would think of."
 
 "Melna, these are dark times. Thi knows it. Now we all know it. We need more selfless heroes like hae who transcend the law and the bureacracy to do the things that we cannot wait for."
 
@@ -162,11 +162,11 @@ I butted in, "I'm guessing you two have met?"
 
 Melna was quick to snatch the response, "Regrettably, yes."
 
-"Melna, surely you're joking. Let our squabbles stay in the past where they belong."
+"Surely you're joking, Melna. Let our squabbles stay in the past where they belong."
 
 "I know your game, Fajro." She didn't hesitate. "We're not playing it."
 
-Fajro leaned back with a serious face now, "Melna, we can agree to disagree, but we will get nowhere pointing fingers at each other. The fact of the matter is that we are now in a battle for our lives against an unknown enemy. We must do everything that we can to come together, understand this threat, and fight it back as quickly as we can."
+Fajro leaned back with a serious face now, "We can agree to disagree, but we will get nowhere pointing fingers at each other. The fact of the matter is that we are now in a battle for our lives against an unknown enemy. We must do everything that we can to come together, understand this threat, and fight it back as quickly as we can."
 
 Melna paused to let his words die in the corners of the room.
 

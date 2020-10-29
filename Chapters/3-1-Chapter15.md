@@ -24,19 +24,19 @@ Melna stared into the image plate, searching for any sign of a light in the dark
 
 "It's just the sky," she said.
 
-"Close your eyes for a moment, and then open them."
+"Close your eyes for a moment, and then open them slowly."
 
-She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny string of five dots, easily mistaken for dust but as bright as Ara, hung upon the thin yellow-orange of the horizon sky.
+She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny string of five dots as bright as Ara punctuated the thin yellow-orange of the horizon sky. Jesse swapped out lenses to the highest magnification he had and adjusted the dials ever so delicately to find the dots again. They were still faint, being so close to the horizon, but they had some speed to them and they were rising quickly.
 
 "What are they?" she asked with new urgency.
 
-"Spacecraft. It looks like Holrag has their rail working."
+"Spacecraft. It looks like Holrag has launched something behind Liffa."
 
 Flushed with anger, she rose from the plate and closed her eyes, facing the darkest corner of the room.
 
-"How large are they? Can they fit a person?" She asked the darkness.
+"How large are they? Where are they going?" She asked.
 
-The observer answered her, "I can't tell at this distance, but judging by the speed of the vehicles, I think they're fairly heavy and headed out of Palinan's orbit."
+The observer answered her, "I can't quite tell their size at this distance, but judging by the speed of the vehicles, I think they're on a similar trajectory as Liffa. I'll have more concrete numbers for you tomorrow."
 
 Melna remained silent.
 
@@ -44,7 +44,13 @@ Melna remained silent.
 
 Melna took a few deep breaths to regain her composure.
 
-"Record everything. Every dot, every time. And find a way to determine their shape and size. Make sure Thimlu is listening at the conduit tomorrow afternoon and wire your findings to me on the private senate channel once I reach Shaki. I'm calling for a debate in the evening."
+"Holragi wouldn't need any more missions than the one Liffa is on unless something has gone terribly wrong."
+
+"But we've been getting recordings of Liffa's voice every tova'la," said Jesse.
+
+"If they aren't missions, then they must be weapons of some kind. They aren't waiting for Liffa."
+
+"Jesse," she turned and approached him. "I want you to record every dot, every time, and find a way to determine their size and trajectory. Pomri will be here tomorrow morning to get your updates before you switch shifts. If anything changes after that, wire your findings to me on the private senate channel. I'm calling for a debate in the evening."
 
 "We shall keep a constant eye."
 
@@ -56,25 +62,23 @@ Jesse scurried away to fetch some empty film plates while Pomri rose from her de
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
-"This goes beyond my relationship with Liffa. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they refuse to share anything."
+"This goes beyond my relationship with Liffa. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they keep us in the dark."
 
 "Holrag has a plan. We must play by their rules."
 
-"The fate of the world is far too much power for one province alone."
+"It's far too much power for one province to wield."
 
-"Perhaps you're right. But we have no other option."
+"Perhaps you're right. But our only other option is war."
 
-Melna sighed, exasperated at how the world let things go this far. "We need to find a way to force Holrag's hand."
+Melna sighed, exasperated at how the world had come to this. "We need to find a way to force Holrag's hand."
 
-"Pleading directly to them will be met with nothing more than hostility. There is far too much to lose and very little to gain by bothering them"
+"Painting them as a villain will be met with hostility. There is very little to gain with a diplomatic approach."
 
 "What do you suggest then? We cower in fear, waiting for the day Holrag saves us all?"
 
 "You bowed to them when you sacrificed our grain. You bowed to them when you sent your own bundsmaman into their experiment. What did it gain for us?"
 
-Melna looked at her with smoldering eyes.
-
-"Our position in the senate has been maintained through the worst of times. The nations continue to share knowledge and wealth to the benefit of everyone."
+Melna looked at her with smoldering eyes and explained herself, "Our position in the senate has been maintained through the worst of times. The nations continue to share knowledge and wealth to the benefit of everyone."
 
 "The senate? You don't find it strange that the conduit has been quiet lately?"
 
@@ -94,7 +98,7 @@ Melna turned back to her and said, "Meet me tomorrow at the train station. Bring
 
 Melna closed the door behind her, ignoring Pomri's complaints.
 
-A small enclosed oil lantern hung beside the door, which she picked up and lit with a hot tip, treading carefully down the muddy steps so as to avoid the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Liffa sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space; if Liffa was cold. She imagined wrapping her arms around hae to keep hae warm, and it made her feel warmer too.
+A small anomin lantern hung from the outside wall where she'd left it in the morning. She picked it up to light it with a firestarter, and tread carefully down the muddy steps, avoiding the newly formed dew puddles. Her mind was littered with worries, all of them feeding her imagination of watching Liffa sobbing, fearful, and alone in a cramped machine far away from home. The wind threw a gust at her, and she wondered if it was cold in space. She imagined wrapping her arms around Liffa to keep hae warm, and it made her feel warmer too.
 
 At the foot of the hill was Laen-Laen, rolled up to keep out the cold, and napping as usual.
 
@@ -124,7 +128,7 @@ The kaln could only muster a whisper through hae raspy voice, so Melna bent down
 
 ---
 
-Melna filled the kitchen mantle with kindling from the garden and pressed her hot tip against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Melna sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
+Melna filled the kitchen mantle with kindling from the garden and pressed her firestarter against it to start a fire. Linyu sat staring at the wall in the dimly lit great room. Thi gasped when thi smelled smoke, remembering the heat of the fire and the screams of panic, but quickly snapped out of it for fear of making hae host suspicious. Melna sensed something off about the kaln and moved to a large dew column at the center of the house to draw two cups of water from the spigot.
 
 "You must be thirsty, Linyu. Have some water."
 
@@ -235,35 +239,3 @@ Before sleep, thi interlocked hae hands with Melna's and mouthed to her a silent
 "To save Ara. To save you. I swear to follow you until the end."
 
 Thi held a moment of mental silence to internalize the promise, and then rolled back over, thinking about tomorrow.
-
-<!--
-and pushed the listener onto Melna's ear, much to her confusion, but she graciously took the offer anyway. She listened intently as Liffa's haunting voice bid her goodbye from the great void of space through the dense fog of static. The words echoed through her mind and sent her into fit of panicked anguish. She could hardly breathe between the exhales of anger.
--->
-
-<!-- are listeners small or big? Are their ears small or big? -->
-<!-- potential child nudity. uh... what do i do? -->
-
-  <!--
-
-
-"Maybe pohua," I interjected.
-
-"...What?"
-
-"Pohua. I grow it at home. It can grow under some very harsh conditions. We could surrender all the food that we have stockpiled, and then quickly grow Pohua to stock up."
-
-She lowered the lantern to the floor and pulled out a charcoal and paper from her bag.
-
-"How long does it take to grow?"
-
-"It grows to maturity around 40 Tova after planting."
-
-"That's too long. What will they eat in the meantime?"
-
-"They can do an early harvest on the crops they're currently growing. The other crops will likely die from inadequate light before 40 Tova anyway."
-
-She noted down my plans and put the paper and charcoal back in her bag.
-
-"Practical and smart. Thank you."
-
-  -->

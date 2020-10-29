@@ -4,7 +4,7 @@ The ship to Ulukoma looked like it was made by a generation of Throngia no longe
 
 The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles like him aboard, but each was accompanied by an armed escort. Most of them seemed mentally detached, their eyes staring blankly into the void of their own minds, and he wondered what each had been sent for. At the end of the line of exiles was a kaln, somewhere on the verge of being an adult. Thi had faint blue eyes: a sign of kanosin withdraw. He hoped that one of the others was a parent.
 
- _These people need medical help. Ulu will only make them worse._
+_These people need medical help. Ulu will only make them worse._
 
 The ship had sailed until the land behind them had disappeared, and before them was a large island full of tall trees and an aroma of smoked fish in the air. The dusk of the sky made everything feel like the end of the day, but Kipnu knew that Ara had only just begun to recede. Kipnu's escort shoved him into a line along the side of the boat with the others. All of their arms were still tied together and the ship was still quite a ways from shore.
 
@@ -46,7 +46,7 @@ Kipnu responded between pushes. "Shouldn't...stop". Thi understood and started d
 
 Kipnu remained still on his back, catching his breath from all the commotion that had just occurred.
 
-A woman in the crowd produced a hot tip and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. The woman breathed gently onto the fire until embers and smoke started to appear. The crowd hollered at the smell: a hint of warmth to come. The maman carefully moved the child toward where the kindling was placed and set hae down on hae lap. The others started bring small dry leaves to the woman who was making good progress on smoldering paper.
+A woman in the crowd produced a firestarter and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. The woman breathed gently onto the fire until embers and smoke started to appear. The crowd hollered at the smell: a hint of warmth to come. The maman carefully moved the child toward where the kindling was placed and set hae down on hae lap. The others started bring small dry leaves to the woman who was making good progress on smoldering paper.
 
 Kipnu had finally caught his breath and moved toward the maman and hae child.
 
@@ -148,7 +148,7 @@ Kipnu looked into Linyu's eyes for answers, then noticed that the kaln had been 
 
 She pinned him to the ground, demanded, "How do you know Linyu?!"
 
-Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of his terrified face and illuminating her own. He tried to wrestle free, but she drew her spear to his neck, 
+Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of his terrified face and illuminating her own. He tried to wrestle free, but she drew her spear to his neck,
 
 "Don't run. The other guardians won't be so forgiving."
 

@@ -1,16 +1,4 @@
-<!--
-
-- Melna heads to Shaki Terminal to meet Pomri, but Pomri doesn't show
-- Melna goes to see Thimlu, and Linyu is there
-- Melna chases after hae and catches hae, with the pendant showing, and Melna seeing it
-- The two travel to Rudjan and talk on the way.
-- At Rudjan, they meet Ramne and Ginnu
-
- -->
-
 ## Chapter 16
-
-<!-- TODO: Add Linyu to this chapter -->
 
 Melna awoke in a dark corner of the great room with a sliver of Ara peering through the windows. For a moment she found herself in that space between dream and reality, imagining Liffa at the front door watching hae garden in the light while Kipnu lay beside her, still sound asleep. The ghosts of tall grasses chirped in her mind. A million thirsty mouths quenched by countless tiny droplets dancing to and fro, dampening the noise of their goings and doings. But something was amiss in her dreams as well: a chill in the air, a dim in the light, a small annoying twist in her tunic. She sat up with Kipnu beside her and looked toward Liffa at the door, looking back at the two of them with tears in hae eyes.
 
@@ -28,7 +16,7 @@ She approached the stable, calling, "Laen-Laen," but she heard nothing. She chec
 
 She panicked and called again, louder and further than before, "Laen-Laen!"
 
-There was no answer, but from a distance she spotted the silhouette of something lying underneath Liffa's tree. She ran toward them calling Laen-Laen once again, and he made three short whoops to wake up.
+There was no answer, but from a distance she spotted the figure of a saffa lying underneath Liffa's ziyu tree. She ran toward it calling for Laen-Laen once again, and he made three short whoops to wake up.
 
 "Why are you all the way out here, Linyu?" She asked him. Linyu was curled up between Laen's stretching legs, beginning to awaken. The wooden listener was still on hae ear.
 
@@ -42,13 +30,13 @@ Thi started to talk but remembered the pain in hae throat as only a whisper emer
 
 "Why?" thi asked, and surprised her.
 
-"Why? Because you're... alone. And I have no clue where your parents are... And you can't call for help."
+"Because you're... alone. And I have no clue where your parents are and you can't call for help."
 
 "Am. Fine," thi said with conviction. Melna's preplexion was renewed. Such an independent child could surely not have come from Heiko. _But then how did thi get here?_, she thought.
 
 "Well, anyway, I need to take Laen on a big trip to Shaki today."
 
-"Shaki?"
+"Sha. Ki?"
 
 "Yes. It's quite far and there are a few things I must attend to there, so I might not be back for a while. I know someone in the city who can look after you while I'm gone."
 
@@ -58,7 +46,9 @@ Thi started to talk but remembered the pain in hae throat as only a whisper emer
 
 Thi nodded earnestly in boundless appreciation of the clarity of a plan and a person to trust, but Linyu had no way to tell her and Melna would never have understood.
 
-"No. It's much too dangerous. It's better if you stay here with Thimlu."
+"No. It's much too dangerous. It's better if you stay here with Thimlu at the observatory."
+
+<!-- left off -->
 
 Thi stood up now and approached her. "With. You," thi insisted.
 

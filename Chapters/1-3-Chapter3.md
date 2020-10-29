@@ -46,7 +46,7 @@ _Not the time for memories_. I snapped out and hopped on while rushing to the fr
 
 ---
 
-The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Whispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss. 
+The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Whispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss.
 
 I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the bright and dim times. They also knew that there were other, much redder stars very far away. Exactly how far, they couldn't be certain, but they were much too far to reach in our lifetimes. Even with the fastest vehicles.
 
@@ -54,7 +54,7 @@ I wondered if the stars could die like we did, or if they had always been there,
 
 At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small woop of acknowledgement.
 
-When I entered, an old man who seemed to know Jesse was already inside, standing by the doorway. 
+When I entered, an old man who seemed to know Jesse was already inside, standing by the doorway.
 
 "Aey, lad," he said, "You forgot to clean the lenses. And weren't you supposed to be looking for Melna?"
 
@@ -98,7 +98,7 @@ He paused and sighed.
 
 I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-Thimlu interrupted us, "I remember you two lovebirds from orbital. Couldn't teach you a damn thing until thi left. Why didn't you just marry him instead, Liffa?"
+Thimlu interrupted me, "I remember you from orbital. Couldn't teach Jesse a damn thing until you left. Why couldn't you two find a nice woman and settle down?"
 
 Jesse's cheeks went red, and he protested, "Thimlu! You can't say something lke that."
 
@@ -248,7 +248,7 @@ He pushed again, "If you won't tell me, then I'm going with you to find out myse
 
 "Stop being cryptic. What are you planning, Liffa?"
 
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. 
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing.
 
 No. His guilt would be my guilt. He can't be involved in this.
 

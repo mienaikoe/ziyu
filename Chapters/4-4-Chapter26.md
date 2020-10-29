@@ -188,7 +188,7 @@ Her dark lantern rocked about with a subtle metallic creak as she rummaged throu
 
 "Oil of Anomin. It's a thick oil from the bran of anomin grains. We use it to lubricate machines, and to do this..."
 
-With a hot tip just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosin blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
+With a firestarter just above the oil pool of her lantern, she lit the flame again and the area around her was instantly illuminated. Shadows of kanosin blue and a firey red were cast against the wood of the table and the floor, reflected on the water of her skin, swallowed by the deep black of the painted wall.
 
 "Right then. Let's find this message."
 

@@ -10,7 +10,7 @@
 
 The three had taken a kelping canoe and paddled out to the space where the ships came in, waiting for their moment. Kipnu looked out at the dark sea and the hint of red and infrared that lie above it. There was far more he could see now that his eyes had adjusted to the dark. He wondered at Casra's stoic nature, how thi held the same expression no matter the hardship: calm, intelligent, and resolute. However this plan turned out, he was certain that a better one didn't exist.
 
-He glanced again at the tank of fresh water he had been tasked to carry and his eyes wandered to Casra's satchel of hot tips. He wondered if thi could really start a resistance with something so small, but then he remembered that life under Shinna was a struggle and that gestures of kindness were rare. Perhaps another would take his place after such a warm welcome.
+He glanced again at the tank of fresh water he had been tasked to carry and his eyes wandered to Casra's satchel of firestarters. He wondered if thi could really start a resistance with something so small, but then he remembered that life under Shinna was a struggle and that gestures of kindness were rare. Perhaps another would take his place after such a warm welcome.
 
 "There, a bit to the North," Linyu said. They strained their eyes to see two ships on the horizon nearing the end of the sea rails.
 

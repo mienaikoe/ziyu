@@ -2,7 +2,7 @@
 
 The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I turned to let my nose take me closer. But Laen had been waiting for his moment, and he bolted toward the bakery as soon as he saw me stop.
 
-"Laen!" I yelled at him. If I'm being honest, I wanted to get mine first. 
+"Laen!" I yelled at him. If I'm being honest, I wanted to get mine first.
 
 I caught up to him as he was begging Gilli for a cake.
 
@@ -18,7 +18,7 @@ She tossed a roasted tor-nut handcake into the air and Laen caught it with his m
 
 I reached out to take it, but she didn't let go.
 
-"I mean it," she said under her breath, "I need more. That last shipment you gave me was fantastic. It makes a better sweetener than idze starch."
+"I mean it," she said under her breath, "I need more. That last shipment you gave me was fantastic. It makes a better syrup than idze."
 
 I looked at her and smiled uncomfortably, slightly intimidated, "Y-yea... I'll... See what I can do."
 
@@ -38,7 +38,7 @@ The station attendant called for us through a flathorn, "Train to Shaki approach
 
 I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a Maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it all mixed together and just looked like I had some weird genetic defect in my hydroderm. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
 
-The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central." 
+The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central."
 
 The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
 
@@ -131,7 +131,7 @@ Melna,
 I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. For brevity, we will call this collection "the obscura". It is difficult to estimate the size of each object, but they seem to span the entire view we have of Ara. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are moving in tandem so to be evenly-spaced.
 
 If left alone, we calculate that the obscura will cause colder temperatures, weaker winds, and decreased precipitation, which will lead to most seasonal crops to become dormant in six days. In ten days, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
-  
+
 - Jesse
 ```
 
@@ -159,7 +159,7 @@ I snapped back, "And you intend to stop me with that leg of yours?"
 
 "My name is Fajro. I used to be a senior Holragi fidelant at the senate back when your bundwoman, Melna, was just getting started there. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
 
-I didn't appreciate his tone. 
+I didn't appreciate his tone.
 
 "You haven't answered my question."
 

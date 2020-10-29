@@ -106,7 +106,7 @@ He finished jotting his notes and then turned the page for the next question.
 
 "It was intended for Melna, my jundwoman."
 
-"Melna, as in the fidelant?"
+"Melna? As in žah-Melna, the Heiko fidelant?"
 
 "Yes."
 
@@ -132,7 +132,7 @@ I thought about what Melna said about him. To never trust Fajro. Perhaps the tru
 
 "He asked about me?"
 
-"Yea, you could say that. But we'll talk about that later. You were saying?"
+"You could say that. But we'll talk about that later. You were saying?"
 
 "Oh. Yes, I was helping him walk on account of his injured leg, and he was helping me get to the deliberation hall. He believed in the importance of the news too."
 
@@ -224,7 +224,7 @@ I thought of Jesse, surmised they would need his help to get a vehicle up there 
 
 "I don't trust you. You could do anything with me," I said.
 
-"You're right. You can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either." 
+"You're right. You can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either."
 
 He took a step closer and I stepped back.
 
