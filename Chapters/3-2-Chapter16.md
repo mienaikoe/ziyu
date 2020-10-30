@@ -48,8 +48,6 @@ Thi nodded earnestly in boundless appreciation of the clarity of a plan and a pe
 
 "No. It's much too dangerous. It's better if you stay here with Thimlu at the observatory."
 
-<!-- left off -->
-
 Thi stood up now and approached her. "With. You," thi insisted.
 
 She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
@@ -60,25 +58,39 @@ Thi nodded back.
 
 "Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
 
-"You like these, right Laen?" she asked him, pointing at the vast field of pohua. He sniffed the stems, hungry but loyal in his patience.
+"You like those, right Laen?" she asked him, pointing at the vast plot of pohua. He sniffed the stems, hungry but patient.
 
-"Let's find you a couple big ones... wow these are all pretty big. And they seem pretty healthy even in the cold."
+"Let's find you a couple big ones..."
 
-She plucked a couple big ones at the low point of the field and quickly dusted them off, storing them in her bag.
+She entered a row at a low point in the field and dug at the root of one plant.
 
-"Here you are," she said, tossing two of the largest ones to him. He chomped down on them, splashing droplets of a sweet white liquid in a circle around his mouth, and the sweet aroma of fresh pohua and not-so-fresh saffa breath filled their noses. She took his eating time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light.
+"This one seems pretty healthy even in the cold," she said to herself.
 
-"Our grain stores are practically empty from ration sharing. I guess we'll have to get something to eat in town," she told a disappointed Linyu. The quicker we ride out there, the quicker we get to eat.
+The girthy root began to taper in the soil, and she pulled easily on the stems to liberate it from the ground. She hadn't worked the soil since her childhood, as her stance and dress might suggest, but a fidelant was always ready for anything, including the care of her saffa. A few more and and she stored them in her bag for later, leaving two in her hands for now.
 
-She led them to the stable where she fetched a thick linen riding cloth and wrapped securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
+She handed them to Linyu and said, "Here, feed these to Laen-Laen."
 
-"Here," she said to Linyu, stooping to fetch a small mycoleather travel bag. "Keep this with you. It's waterproof and keeps its shape well so it's great for storing food.
+Thi held them out one at a time and a gentle mouth lifted them from hae hands and chomped down, splashing droplets of a sweet yellow liquid all over. The sweet aroma of fresh pohua and not-so-fresh saffa breath filled their noses.
 
-With a firm grab of his neck hair, she hopped onto Laen's back and settled herself in. Then, holding her arms out to Linyu, she said, "Come on, I'll pull you up," and with a firm grip she lifted hae up to sit in front of her.
+Melna took this time to find something that she and Linyu could eat, but everything else had seemed to be wilting under the low-light. With each row she checked, her panic mounted. She wondered how many people had moved their plots closer to Ara or faced the same problems.
 
-"Alright, Laen-Laen. Let's take a steady trip to the station."
+"Our grain stores are practically empty from ration sharing," she tol a disappointe Linyu. "I guess we'll have to get something to eat in town. The quicker we ride out there, the quicker we get to eat."
+
+She led them to the stable where she fetched a thick linen riding cloth and wrapped it securely around Laen-Lean's back and chest. Once he had finished with his breakfast, he hummed in satisfaction as he sniffed around for scraps that might have fallen between his teeth.
+
+"Here," she said to Linyu, stooping to fetch a small but durable travel bag. "Keep this with you. It's made of mycose, so it's waterproof and keeps its shape well. It's great for storing food."
+
+With a firm grab of his neck hair, she hopped onto Laen's back and settled herself into the forward-leaning position, a little further back than she was used to.
+
+"Come on," she said, holding her arms out to Linyu, "I'll pull you up."
+
+And with a firm grip she lifted hae up to sit in front of her.
+
+"Alright, Laen-Laen. To the station, but steady."
 
 He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Melna focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
+
+<!-- left off -->
 
 The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
 
