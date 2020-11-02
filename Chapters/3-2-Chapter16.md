@@ -52,13 +52,17 @@ Thi stood up now and approached her. "With. You," thi insisted.
 
 She didn't have the time to argue, and thought it might be good to understand more about this mysterious child with a listening device. She stooped to hae height and placed her hands on hae shoulders.
 
-"I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a fidelant from Heiko, and I was accused of keeping the obscura a secret to hoard food. We must keep a low profile to avoid danger. Do you understand?"
+"I don't know how much you remember or know about the world right now, but I need you to understand something if you're going to be traveling with me. I am a fidelant from Heiko. Do you know what a fidelant is?"
+
+Thi furrowed hae brow, and Melna was surprised.
+
+"I go to a big room where all the provinces of the world discuss things, and I represent the people who live here. In that room, a few days ago, I was accused of hoarding food, and I had to give away some of my province's food. A lot of people aren't happy about that, so we must keep a low profile to avoid danger. That means we have to stick together and stay out of trouble. You understand?"
 
 Thi nodded back.
 
-"Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ran toward the garden to fetch whatever vegetables might still be living, with the saffa in toe guiding Linyu's path.
+"Good. Now we don't have much time so let's eat up to prepare. Just follow wherever Laen goes and you'll be safe," she told hae. She ambled across the path and down a shallow slope toward the garden to fetch whatever vegetables might be waiting there, the saffa in toe with Linyu's hand glued tight to his rib.
 
-"You like those, right Laen?" she asked him, pointing at the vast plot of pohua. He sniffed the stems, hungry but patient.
+"You like those, right Laen?" Melna asked him, pointing at the vast plot of pohua. He sniffed the stems, hungry but patient.
 
 "Let's find you a couple big ones..."
 
@@ -90,55 +94,57 @@ And with a firm grip she lifted hae up to sit in front of her.
 
 He started walking, still licking his teeth and clearly not focused on the path while Linyu got in some last bits of sleep and Melna focused her mind to the day ahead. Putting pressure on Holrag while they held ultimate power in the senate was a nearly impossible task, but it had to be done.
 
-<!-- left off -->
+The station would have been quiet and empty, were it not for a couple of mechanics resting in the corner near the entrance and the old station attendant who found some solace in being there. The ground near the tracks had notices painted on, "No Trains – Provincial Travel Lockdown", in big white lettering, barely visible through the fog-diffused light of Ara. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
 
-The station was nearly empty. The only sign of life was two people talking in a corner near the entrance and a station attendant who knew no other job. The walls had notices painted on them, "No Trains – Provincial Travel Lockdown", in big white lettering, while the fog-diffused light of Ara painted soft shapes on top. The breath of Ulu loitered in the still air, a sign of an end to morning winds in Heiko.
+She strained her eyes to look for Pomri in case she had been waiting elsewhere. The echoes of her voice bounced off of the walls, absent of any people to muffle them.
 
-She called, "Pomri!", in case she was waiting elsewhere. Her echoes bounced off of the walls, absent of people to muffle them. She looked around and saw no sign of her. _Guess I'm not the only late one._ She hopped off of Laen-Laen and patted the saffa's cheek and turning to Linyu.
+"Guess I'm not the only late one," she said to herself.
+
+Laen-Laen stooped down, letting her gently off his back. She patted the saffa's cheek and turned to Linyu.
 
 "Stay here, Linyu. I'll be right back."
 
-She approached the pair in the corner wearing an impeccable posture in lieu of her robes. There was a young man in an mechanic's uniform who looked like he had skipped sleep the night before and a maman about his height and build, twiddling with a small steel bar with a bend at the end.
+She approached the station attendant wearing an impeccable posture in lieu of her robes.
 
-She greeted them, "Hi there. Do you know if this is when the train typically arrives?"
+She greeted him, "Hi there. Do you know if this is when the train typically arrives?"
 
-They gave them a once-over and the man asked, "No trains today. Get out of here."
+He gave her a once-over and said, "No trains today. Get out of here."
 
-"I'm just looking for the time," she persisted, now suspicious of them.
+"I'm just looking for the time," she persisted.
 
-The two glanced at each other and the maman approached her with a swagger meant to intimidate.
+He looked behind her and quickly walked away, ending the conversation. The mechanics from the corner were approaching slowly with a swagger meant to intimidate: a young man in uniform who looked like he hadn't slept the night before and a maman about his height and build, twiddling with a steel bar fashioned with a crook at the end.
 
-Thi said, "You look familiar," and glanced at her bag from which hastily-packed robes were peaking out.
+"You look familiar," thi said. Hae eyes shot toward Melna's bag where her hastily-packed robes were peeking out.
 
-"You're the fidelant who gave away all our food."
+"You're the one who gave away all our food."
 
 Melna suddenly felt her muscles tighten and she glanced back at Laen-Laen who wasn't paying attention to them.
 
-"Wonder if you hoarded any," thi said, as thi grasped for the bag. Melna pulled it away from hae fingers, but then she felt the cold touch of the steel bar across her neck and she stopped from fleeing. Linyu, who was listening intently, panicked tried to get Laen's attention.
+"Wonder if you kept any for yourself," thi said, and thi lunged for her bag. Melna just barely pulled it away from hae fingers, but as she turned to run she felt the cold touch of a steel bar across her throat. She tried to turn around, but the man held his arm against her shoulder to keep her down.
 
-She tried to reason with them, "We have no food. Only robes and water."
+"I have no food," she pleaded, "Only robes and water."
 
 "Your saffa will do", the man said, looking at Laen-Laen. "Call it over."
 
 "You would kill a saffa to eat?"
 
-"If we have nothing to eat, how will we survive? We don't have the luxury of choice," he said in his most scornful tone. It was clear he had been waiting for a moment to take his revenge.
+"We don't have the luxury of choice. You took that from us," he said in his most scornful tone. It was clear he had been waiting for this moment to take his revenge.
 
-Melna hesitated, thinking of a way out, and then made a peculiar humming sound with her fingers at her neck. Laen-Laen looked over to her for a moment and then slowly approached them, looking around at every corner.
+Melna looked over to Laen-Laen who was too busy licking his legs to know what was happening. She held a moment for thought, and then raised her hand to her ear and made a peculiar humming sound. Laen-Laen looked over to her for a moment and then slowly started walking toward them, looking cautiously in every direction.
 
-"Hurry it up!" The maman demanded with the bar still at Melna's neck.
+"Hurry it up!" The maman demanded with the bar still at Melna's neck. Melna made the sound again, and Laen-Laen continued, ever more cautious. Before he reached her, Laen-Laen became suddenly happy about something nearby.
 
-Suddenly, a voice called from behind them, "Melna. glad I found you."
+A voice called from behind them, "Melna. glad I found you."
 
-The pair turned around to find Pomri, on her own saffa, holding a titanium sword to the maman's neck.
+The pair turned around to find Pomri, on her own saffa, holding a polished blue titanium sword to the man's neck.
 
 "Looks like you've made some friends," she addressed Melna.
 
 The maman tugged on the man's arm and they dashed away from the station as fast as they could.
 
-"You're woefully unprepared," said Pomri.
+"You're woefully unprepared," said Pomri, sheathing her swordd.
 
-Melna was furious. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
+Melna was stoic. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
 
 Pomri suspended her disagreement and aimed her tongue elsewhere. "Who's this kaln?" she asked, giving the slightest glance to Linyu, "And what's with hae eyes?"
 
@@ -148,9 +154,9 @@ Pomri patiently waited for more details.
 
 Melna started again, "I found hae with Laen-Laen, voiceless and blind. Now they're pretty much inseparable. I don't know where thi came from, or how thi got into such a state."
 
-"And you're taking hae with us to Shaki? Isn't there someone here to take care of hae?"
+"And you're taking this kid with us to Shaki? Isn't there someone here to take care of hae?"
 
-"I think thi might know something about Holrag that we don't know."
+"I think thi might know some things that we don't know."
 
 Pomri wore a blank stare in an attempt to hide her frustration.
 
@@ -160,19 +166,24 @@ Melna let out an exasperated sigh. "My ways may seem strange to you, Pomri, but 
 
 "I only hope that we don't run out of time," she rebuked.
 
-"Time... Never been fond of it. I find that I get more done when I don't have time to complain about how little time I have."
+"Time... Never been fond of it. A little more, and we'd use it to complain about how little we had."
 
-"Oiii. Sometimes I wonder how you became a fidelant with such blind convictions."
+"Oiii. Sometimes I wonder how you became a fidelant with such terrible quips."
 
-"I build my trust around those who see what I can't."
+"There are no bad jokes, Pomri. Only bad people."
+
+"Are you done?"
 
 ---
 
-The seldom-trodden path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Shaki and it showed in the old paths of sand and rock that had never been improved after the rail was introduced.
+The seldom-seen path along the rail line was littered with withered leaves and stems. Several Ka'To had passed since the line had been laid by the railmakers of Holrag and it showed in these old paths of sand and gravel that had been abandoned soon after the rail was built.
 
-Pomri took out her canteen and took a gulp of water before looking over to Linyu.
+Pomri took out her canteen and gulped a mouthful of water before looking over to Linyu.
 
 "You thirsty, Linyu? Boon-Boon filled up on plenty so she won't be needing much."
+
+<!-- "I build my trust around those who see what I can't." -->
+<!-- left off -->
 
 Thi didn't answer, but threw back a scowl of distrust in Pomri's direction.
 
