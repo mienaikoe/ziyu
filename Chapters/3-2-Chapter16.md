@@ -182,18 +182,25 @@ Pomri took out her canteen and gulped a mouthful of water before looking over to
 
 "You thirsty, Linyu? Boon-Boon filled up on plenty so she won't be needing much."
 
-<!-- "I build my trust around those who see what I can't." -->
-<!-- left off -->
+Thi didn't answer, but wore a scowl of distrust.
 
-Thi didn't answer, but threw back a scowl of distrust in Pomri's direction.
+Pomri's hand receded and twisted the vessel closed. "Oh, my water's not good enough for you? Your pride will be your death," she said.
 
-Pomri's hand receded and twisted the vessel closed. "Your pride will be your death," she said. Linyu's gaze of hearing had already diverted back toward the road.
+"Oh Pomri, thi's a lost kid. Don't take it personally."
+
+"Lost or not, a gift from a Rudjani is not to be refused."
+
+Linyu's gaze of hearing had already diverted back toward the road.
 
 A soft hand rested on hae shoulder, and thi snapped out of hae thoughts, "Hey, you ok?"
 
 Thi straightened hae back and let out a gentle sigh, bringing a hand to meet hers.
 
-Melna said, "Pomri might be a bit harsh, but she means well. We're about Va'na to Rudjan, and Shaki is still further. We need to keep hydrated out here."
+Melna told hae, "Pomri can be a bit difficult at times-"
+
+"-If by difficult you mean honest"
+
+"...But she means well. And there's some truth in her words. We're not quite halfway to Rudjan, and Shaki is still further. We all need to keep hydrated out here."
 
 She extended her own canteen to hae, and thi begrudgingly took a sip, a pause, and then another before giving it back to Melna.
 
@@ -203,45 +210,51 @@ She extended her own canteen to hae, and thi begrudgingly took a sip, a pause, a
 
 Thi leaned forward into his thick fur and held close to his back. Melna briefly let her curiosity wander back to the listener on hae ear; the things she heard, and the things she might be missing.
 
-"Linyu," she began to ask. Thi turned a bit more to show thi was listening. The bruises on hae neck and the craftwork of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother, and she didn't want to take that away.
+"Linyu," she began to ask. Thi turned hae head along Laen's back to show thi was listening. The polished surface and patterns in the grain of the listener shone clearer now in the brighter light. She remembered how attached thi was to it, that it symbolized hae mother. There were so many questions she had to ask, and so few ways to ask them.
 
 "It's.. It's nothing. Never mind," she said.
 
-Linyu relaxed again while Melna kept looking toward Rudjan, troubled by a question she didn't know how to ask. _When we stop at Rudjan. I need to know._
+Linyu relaxed again while Melna kept looking toward Rudjan, troubled by a question she didn't know how to ask.
+
+_When we stop. I need to know._
 
 ---
 
-Pomri was glowing at the first sight of her hometown, Rudjan. The pale orange of Ara splashed its remaining light upon the patchwork of grasses and lakes dotting the wetlands, leaving the bridge into the city that hung above it. It was rare that she would be introducing the city to a kid. They wouldn't be there for long, so she made the best of what little time they had.
+Pomri was glowing at the first sight of her hometown. The pale orange of Ara splashed its light upon the patchwork of grasses and lakes dotting the wetlands, above which stretched a long wooden causeway proudly laying the path into the city. It was rare that she would be introducing the city to someone, much less a child, so she was filled with excitement.
 
 "Linyu, do you know much about Rudjan?"
 
 Linyu looked in her direction with a vacant face, annoyed that she was talking again.
 
-"Well anyway, allow me to introduce you to my home. Rudjan is a great city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
+"Oh, of course you don't. Allow me to introduce you to Rudjan, the city of ships!"
 
-"It wasn't very safe from saffa," Melna butted in.
+She waved her hands as if channeling some magic in the splendor before them.
+
+"Rudjan is a fortress of a city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
+
+"It wasn't very safe from saffas," Melna butted in.
 
 Pomri shot her a glare, and continued teaching.
 
 "The saffas and tilmarims that inhabited the area did not take kindly to their new neighbors, and almost destroyed the settlement completely. But through ingenuity, we found a way to communicate at a basic level with the animals and bargained with them to live in peace."
 
-"The settlers tricked them into fighting each other."
+"The settlers tricked them into fighting each other," said Melna.
 
-"Melna! Let me tell the story!"
+"Goodness, woman, let me tell the story!"
 
-"Linyu doesn't need fog in hae water."
+"You're fogging up the water."
 
 "How would you know this story anyway?"
 
-"I hear it everytime I come here with a Rudjanese."
+"I hear it everytime I come here with you."
 
 "Good. Then let Linyu hear it too."
 
 Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
 
-"Anyway, after much bargaining we came to a mutual agreement. The walls of Rudjan were built to keep saffas and tilmarim out and throngia in."
+"Anyway, after much bargaining we came to a mutual agreement. The walls of Rudjan were built to keep saffas and tilmarim out and people in."
 
-"Your ancestors were afraid of cuddly creatures with vendettas."
+"They were afraid of revenge."
 
 "Melna!"
 
@@ -249,15 +262,18 @@ She snickered under her breath so only Linyu could hear.
 
 "Anyway, now that you know about our history, let me tell you about the bridge we're crossing."
 
-Linyu leaned back against Melna as if to say, "Do I have to?", to which Melna laughed at the surprise.
+Linyu leaned back and looked up at Melna as if to say, "Do I have to?", to which Melna laughed in surprise.
 
-"By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're bright as a stone in the desert."
+"By Ara, I haven't heard you chuckle once since the Obscura showed up. Some kaln comes along and now you're as bright as glass in the desert."
 
 She looked down at hae and pondered at the mysteries behind this peculiar child dressed in kelp clothing that life had swept her way.
 
-"Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We will need to do the same."
+"Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We should all be so resilient."
 
-Linyu was elated and scratched Laen-Laen on the back of the neck to which he wooped in joy. Boon-Boon joined him and together they announced their presence to the wetlands of Rudjan.
+They came to the edge of the wetland, and dismounted from their saffas. Before them, a city awaited their arrival, a train awaited their board. But for now the saffas wooped and played in the water of their ancestors, the throngia looked on in glee, and not one among them in this moment of respite felt any worry for the state of their world.
+
+<!-- "I build my trust around those who see what I can't." -->
+<!-- left off -->
 
 <!--
 

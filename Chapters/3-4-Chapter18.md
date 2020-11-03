@@ -2,7 +2,7 @@
 
 She knew that something was amiss at the train station when the crowds she expected to be waiting for the train were nowhere to be found. The steel pylons of the elevated line hung over the square and cast their endless lines of shadow upon it. The few occupants who dared remain there glanced around cautiously, as if wary for some all powerful demon who whisks trains and passengers in and out of existence.
 
-After much searching, she quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. *What happened here?*
+After much searching, she quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. _What happened here?_
 
 From the corner of her eye, she spotted a little boy against a wall in a shaded corner staring at her. From the crevasse of his cloak he summoned her with a slight gesture of his hand, catching Melna off guard. But his gaze did not move, and she had no other leads to go on, so she approached him slowly, checking every corner and vantage point in the area.
 
@@ -42,13 +42,13 @@ She looked at him for a moment, trying to interpret his meaning, but paused to c
 
 He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it.
 
-*Who was he?* She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. *The wind speaks? Who are you?*
+_Who was he?_ She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. _The wind speaks? Who are you?_
 
-She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. *Pomri knows what she is doing. They'll be alright without me*, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
+She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. _Pomri knows what she is doing. They'll be alright without me_, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
 
 "I will find you when this is over," she swore to them, "and you will have a home to come back to. I promise."
 
-She turned and bowed as a parting gesture and looked back toward Rudjan with all its patches of wooden buildings haphazardly placed amongst the watery foreground, and surrendered all of her worries in order to focus. *They're invading Heiko but they also expected us to go to Shaki. I need to figure out what they're planning. And keep a low profile.* She loosened her black shawl and raised it above her head to form a makeshift hood, and tightened it again around her neck. With a quick glance and a first step she headed back to the conduit to get some answers.
+She turned and bowed as a parting gesture and looked back toward Rudjan with all its patches of wooden buildings haphazardly placed amongst the watery foreground, and surrendered all of her worries in order to focus. _They're invading Heiko but they also expected us to go to Shaki. I need to figure out what they're planning. And keep a low profile._ She loosened her black shawl and raised it above her head to form a makeshift hood, and tightened it again around her neck. With a quick glance and a first step she headed back to the conduit to get some answers.
 
 Her feet retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
 
@@ -68,7 +68,7 @@ She said, "You seem agitated. Do you have some things to tell the rest of us?"
 
 "Step away from the desk!"
 
-"Ooh so you *do* know what's happening to Holrag. Or maybe you know where they took my assistant."
+"Ooh so you _do_ know what's happening to Holrag. Or maybe you know where they took my assistant."
 
 He didn't say a word, but held his apprehensive stance. Melna glanced at the space across the table, her hand still at the ready.
 
@@ -112,7 +112,7 @@ Her hands released his shirt and he slipped to the floor, still in shock. She sp
 
 He was still contemplating the microphone; if she had really broadcast so much to the conduit. The silence on the line was unbreaking and told him nothing. She gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step toward the door as he lifted himself from the floor.
 
-When he had stood up, she turned her head and said, "You *will* regret this day."
+When he had stood up, she turned her head and said, "You _will_ regret this day."
 
 "I would quicker forget you," he chuckled quietly.
 
@@ -128,7 +128,7 @@ She could hear him as clearly as if he were standing right next to her.
 
 A voice spoke in anger, "Did you find her?"
 
-*This voice... I know this voice.*
+_This voice... I know this voice._
 
 "...Yea," said Tunbe, hesitantly.
 
@@ -136,9 +136,9 @@ A voice spoke in anger, "Did you find her?"
 
 "I.. it-"
 
-"You *do* want to be risen, don't you?"
+"You _do_ want to be risen, don't you?"
 
-*Risen?*
+_Risen?_
 
 "Y-Yes, žah," said Tunbe, quivering.
 
@@ -146,11 +146,11 @@ A voice spoke in anger, "Did you find her?"
 
 "It shall be done."
 
-*I need to hurry.* She began to run toward the entrance, but kept listening.
+_I need to hurry._ She began to run toward the entrance, but kept listening.
 
 "Žah, I've also heard word about a kaln who can hear our radio and knows about the risen. Thi escaped from Ulukoma through the chaos."
 
-*Linyu?*
+_Linyu?_
 
 "No one would take some kaln in kelp clothing seriously. Focus on your duty."
 
@@ -162,8 +162,8 @@ A voice spoke in anger, "Did you find her?"
 
 The voices stopped and a pool of rage welled up within her from the static that remained on the line, but she handled it with the finesse of a leader. To let that passion burn uncontrollably would be to waste it. Instead she let it burn slowly, fueling her planning, crafting her speech, filling the hearts of her people. Passion was her own personal Ara, giving her the means to its own end.
 
-Her fervid limbs slipped through the crowds of Rudjanese who remained blissfully ignorant and powerless to the greater changes happening around them. They were hungry and they were envious; nothing would stop them from filling the docks of the merchant's quarter with their demands. She felt a false disdain for them but did not let it slow her charge toward the gates to Heiko. She was cautious as she approached the mostly empty gate, but did not see any signs of a trap.
+Her fervid limbs slipped through the crowds of Rudjani who remained blissfully ignorant and powerless to the greater changes happening around them. They were hungry and they were envious; nothing would stop them from filling the docks of the merchant's quarter with their demands. She felt a false disdain for them but did not let it slow her charge toward the gates to Heiko. She was cautious as she approached the mostly empty gate, but did not see any signs of a trap.
 
 She called to her from the inside, "Bavle...," but there was no response nor sign of anyone.
 
-"Bavle!" she called again, making sure to be heard. But no one was there to hear her. *Neither fear of death nor promise of reward*, she recalled Bavle saying, and a wave of dread washed over her. The entire city had become an elaborate trap and she was in the middle of it all.
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. _Neither fear of death nor promise of reward_, she recalled Bavle saying, and a wave of dread washed over her. The entire city had become an elaborate trap and she was in the middle of it all.

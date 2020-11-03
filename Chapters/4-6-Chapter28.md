@@ -66,7 +66,7 @@ I removed the listener and put my ear to the air. In the dead air, I could hear 
 
 "No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
 
-In the darkness of the ocean, six lanterns suspended on the crooks of Rudjanese boats appeared, and a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
+In the darkness of the ocean, six lanterns suspended on the crooks of Rudjani boats appeared, and a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
 
 Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi yelled, "Shinna!" with a bellow as if hae belly no longer hurt.
 
@@ -201,6 +201,3 @@ Shinna led Laen and Boon onto the outer boats followed by Annu and me who laid o
 Laen's back kept me warm as I nuzzled my face into his fur.
 
 "Time to save Liffa," I whispered.
-
-
-

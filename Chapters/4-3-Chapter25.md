@@ -11,7 +11,7 @@ Rocks. Everywhere. I would never have believed that something so simple could ha
 
 "All these tracks are headed toward Rudjan," she said, observing carefully. "The children who couldn't swim that distance. They would have been captured by now – never had a chance."
 
-I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjanese soldiers comes to scoop us up. Would we be sold into slavery to work in the desert?
+I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjani soldiers comes to scoop us up. Would we be sold into slavery to work in the desert?
 
 "Bavle said you were a traitor," I began. "Why did you choose to fight for Heiko?"
 

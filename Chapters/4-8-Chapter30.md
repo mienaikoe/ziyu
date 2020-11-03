@@ -26,7 +26,7 @@ Setre snapped at Annu impatiently, "Shut it!"
 
 "You sat and watched while he burned this place to the ground. Casra and Kipnu might have survived if you had warned us. But you betrayed your trustworthiness long ago when you banded with him."
 
-The third person intervened. A woman's voice, bold and sweet. Like Rudjanese bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
+The third person intervened. A woman's voice, bold and sweet. Like Rudjani bread. "Setre, what if thi's telling the truth? Ramne could ruin everything we've built."
 
 "This is fearmongering, Fanla. To make us easy targets. Look," she pointed to hae eyes, dimly blue in the darkness. It reminded me that thi was still vulnerable to death. "Thi is an addict. Ginnu was sent here to take all the kanosin Ramne couldn't carry from the fire."
 
@@ -40,7 +40,7 @@ Setre was taken aback. I glanced at Ramne who had a satisfied grin on his face.
 
 "Oh I love this," he whispered with an almost giddy tone. "She doesn't know when to stop."
 
-Setre reached for her spear and Fanla held her arm up. 
+Setre reached for her spear and Fanla held her arm up.
 
 "Don't," said Fanla. She took a step. "If you hurt hae, you threaten the very trust that binds this place together."
 
@@ -66,7 +66,7 @@ She raised the spear and I raised my arm, and as the ball left my fingers I felt
 
 A voice called out toward me, but the blast had caused a ringing in my ears that made everything sound like a hum. I looked up to find Ramne, but he had disappeared from his spot in the tree. I looked below and saw a slow stream of blood running down my body from my chest.
 
-"-inyu?!" I heard my name, followed by more hums of muffled speech. Two voices echoed in my head as I struggled to stay awake and keep a grip on the branch. I felt the branch stutter under my weight, slowly fracturing with the sway of my body. With a loud *snap* the branch finally broke, upending my sense of direction as I fell for what seemed like several moments compressed and molded to fit into the space of one. A dark figure appeared below me as I was about to land: large and quick. As my body pressed into it, I felt its softness, then its warmth as it moved with me as if to soften the blow. Then as if to rouse me awake, it made a soft humming sound that vibrated through my body.
+"-inyu?!" I heard my name, followed by more hums of muffled speech. Two voices echoed in my head as I struggled to stay awake and keep a grip on the branch. I felt the branch stutter under my weight, slowly fracturing with the sway of my body. With a loud _snap_ the branch finally broke, upending my sense of direction as I fell for what seemed like several moments compressed and molded to fit into the space of one. A dark figure appeared below me as I was about to land: large and quick. As my body pressed into it, I felt its softness, then its warmth as it moved with me as if to soften the blow. Then as if to rouse me awake, it made a soft humming sound that vibrated through my body.
 
 I heard my name called again by muffled speech, and saw the two figures crowd around me. Deft hands raced across my body, jostling different parts of me left and right, up and down. I felt a finger slide under my coat and catch the wound on my chest. I winced in pain and soon after the fastenings of my coat were undone and a blue light shined above me, showing Setre's face.
 
@@ -78,7 +78,7 @@ Fanla and Setre paused, puzzled at the question, but Boon raised her head to loo
 
 Setre leaned in close and asked me loud enough to hear, "Who did this?"
 
-I responded with the name she least wanted to hear. 
+I responded with the name she least wanted to hear.
 
 "Ramne."
 
@@ -100,7 +100,7 @@ Fanla chimed in, "Ramne won't be back with this many people. He only strikes whe
 
 I told them, "He coerced me because I was alone."
 
-"Then it's best the three of us stick together from now on," she said. 
+"Then it's best the three of us stick together from now on," she said.
 
 Fanla stopped massaging and shook her hand to loosen it up. I motioned for her to stop when she tried to go back to my neck.
 
@@ -114,17 +114,17 @@ I yelled to Annu, "It's time."
 
 Thi nodded and bellowed to the crowd "To Ulu! Run to Ulu!"
 
-Fanla and I bolted off into the crowd, yelling "To Ulu!" to all who we could find. Some of the Heikoi were packing food into bags, clutching their children close. 
+Fanla and I bolted off into the crowd, yelling "To Ulu!" to all who we could find. Some of the Heikoi were packing food into bags, clutching their children close.
 
 "No time!" said Fanla, "Run!"
 
-She motioned for me to follow, but I couldn't. My bond to my nather kept me frozen and planted. 
+She motioned for me to follow, but I couldn't. My bond to my nather kept me frozen and planted.
 
 "I'll look after Setre!" she said. "Go!"
 
 The first of the Holragi made it into the clearing, and the guardians who had fled before were now attacking from all sides. Explosions and shouts littered the cold air and I was certain Setre was amidst that cacophony. But I knew that I would be more trouble than help. I knew that it was best not to be by her side. So I turned. And I ran.
 
-*"Tova'na to re-entry"*
+_"Tova'na to re-entry"_
 
 Far ahead, Annu was running slowly with hae arms held out, tripping on the various traps the forest had set. I sped to hae side and picked hae up on my back.
 
@@ -138,7 +138,7 @@ I slowed my walk to listen.
 
 "No, no," thi sobbed deeply into my shoulder. "Everyone... I'm sending them all to die."
 
-I paused my speech to take in her meaning, still running toward the shore. It was something I knew but had never acknowledged. Annu's responsibility encompassed the future of our species. Every one of us would die here. This was an end. The people that inhabit our bodies in a hundred lifetimes may forget about everything they used to be. They would move along the path of time unaware of the memories we used to share, the places we used to dwell, the people we used to love. Or perhaps we *would* remember, and continue our quarrels until we wiped each other out again.
+I paused my speech to take in her meaning, still running toward the shore. It was something I knew but had never acknowledged. Annu's responsibility encompassed the future of our species. Every one of us would die here. This was an end. The people that inhabit our bodies in a hundred lifetimes may forget about everything they used to be. They would move along the path of time unaware of the memories we used to share, the places we used to dwell, the people we used to love. Or perhaps we _would_ remember, and continue our quarrels until we wiped each other out again.
 
 But this was not question of memory or of self or even of right or wrong. This was a gamble for the future of our species; for our collective knowledge, our ways of life; for any recollection that any of our lives were meaningful. If just one person rose with those memories, then all of our struggles would have been worth it.
 
@@ -176,7 +176,7 @@ I spared no pause to repeat hae words, and neither did anyone who heard. Straigh
 
 "Say a few words, and then I'll tell them," thi said, and I nodded to hae in agreement.
 
-I gathered those around me and mustered up enough mental fortitude to speak to them. But I knew how precious our time was, and I began before I was ready. 
+I gathered those around me and mustered up enough mental fortitude to speak to them. But I knew how precious our time was, and I began before I was ready.
 
 "As you know, the Holragi have cornered us into this beach and we're out of options. I had hoped we could have some time to discuss this, but this is our last and only option. What we're asking you to do today will take incredible courage and indominitable will from each and every one of you."
 
@@ -188,7 +188,7 @@ Thi took a deep sigh, looking to the crowd.
 
 "...We swim... Far far away... Where Holrag can never find us."
 
-They seemed confused by this cryptic answer. 
+They seemed confused by this cryptic answer.
 
 "Where do we go?" asked a boy, nearly my age.
 
@@ -228,25 +228,25 @@ She held me back. "It's too dangerous. Wait until they stop."
 
 As my eyes began to adjust, I could see their figures in the light of Fanla's outstretched hands. A jingling sound accompanied Annu's dodging and weaving through Ramne's attacks. As I looked closer, I saw that thi held Melna's binding pendant taut in front of hae as a sort of weapon. We waited for an opening, a distance just long enough for us to hold Ramne back and disarm him, but every time Annu would create distance between them Ramne would close it in an instant.
 
-"You can't stop this, Annu!" yelled Ramne, "The Holragi have control!" 
+"You can't stop this, Annu!" yelled Ramne, "The Holragi have control!"
 
 He wailed on hae but thi dodged every blow and jab he tried. In a fake motion, Ramne thrusted his dagger in a stabbing motion toward hae belly, then twisted in the direction of hae dodge and struck the front of hae shoulder, nearly landing his blow on hae neck. Annu growled between hae teeth in pain and stepped away from Ramne a few paces, but thi did not let hae guard down. I wanted to run and help hae, but Fanla saw Ramne approaching again and held me back. He tried the same movement again, twisting in the direction of hae dodge, but this time Annu predicted his movements and dodged his second swing.
 
 "You're an undertake, Ginnu. A fool. You're sending these people to their deaths!"
 
-A third time, he lunged at hae, and this time thi dodged underneath his free hand, slipping behind him in his most vulnerable stance. Thi caught his neck in the strand of the pendant and held him back, while Fanla rushed in to prevent a counterattack. Ramne writhed with his dagger and landed a blow on Annu's belly, to which thi cried in pain and forced him onto the ground. Fanla deftly pinned his arm down and wrested the dagger free. 
+A third time, he lunged at hae, and this time thi dodged underneath his free hand, slipping behind him in his most vulnerable stance. Thi caught his neck in the strand of the pendant and held him back, while Fanla rushed in to prevent a counterattack. Ramne writhed with his dagger and landed a blow on Annu's belly, to which thi cried in pain and forced him onto the ground. Fanla deftly pinned his arm down and wrested the dagger free.
 
 Thi stopped to his ear, and spoke to him in a fevered voice, "Remember this as you breathe your last. My name is Annu. You sent me to my death countless times, only because you knew you could do it again. The pain... the suffering you caused can never be erased. Death is now every part of me. It becomes me. And nothing makes me happier than returning this gift to you."
 
-Thi moved hae knee onto his head and pushed his face firmly into the frozen dirt. 
+Thi moved hae knee onto his head and pushed his face firmly into the frozen dirt.
 
 And it was done.
 
-In the distance, the sound of explosions and yells grew closer. 
+In the distance, the sound of explosions and yells grew closer.
 
 "The guardians are being pushed back," said Fanla.
 
-*Setre.*
+_Setre._
 
 Annu stood up from Ramne's lifeless body and watched the motion in the trees grow closer. Thi took up Ramne's dagger, laughed with that same fervored voice, and readied haeself as if to go into battle.
 
@@ -254,7 +254,7 @@ Annu stood up from Ramne's lifeless body and watched the motion in the trees gro
 
 I swiftly ran to Ramne's body and fetched the pendant, wanting to help hae fight. But Fanla pulled hard on my arm to wrest me from that idea. I screamed and pried at her arms, but Fanla would not stop until we had reached the shore.
 
-*Nather.*
+_Nather._
 
 The darkness swallowed the percussion of an advancing Holragi army as we came back into the clearing. Everyone had a faint blue glow underneath their skin, and seemed in somewhat of a euphoric state.
 
@@ -262,7 +262,7 @@ The darkness swallowed the percussion of an advancing Holragi army as we came ba
 
 The crowd waded into the water, kicking up a large blue froth that spanned the coast for as far as we could see. I checked on Laen and Boon, made sure the skin under their fur was turning blue. They were fighting sleep, but refused to go without me. Overhead, a dim streak of light formed in the sky and a rumbling noise came over my listener.
 
-*"If anyone can hear me, I'm landing Lao 2-ka Ulu Ulukoma. Lao 2-ka. Ulu. Ulukoma. I need assistance."*
+_"If anyone can hear me, I'm landing Lao 2-ka Ulu Ulukoma. Lao 2-ka. Ulu. Ulukoma. I need assistance."_
 
 "Come on!" yelled Fanla, impatiently.
 
@@ -282,12 +282,6 @@ A little bird, floating up above,
 With Ara's light filling up the sky,
 It's you who fills our lives with love.
 ```
-
-
-
-
-
-
 
 <!--
 
