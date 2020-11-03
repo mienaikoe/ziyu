@@ -1,5 +1,8 @@
 ## Chapter 18
 
+<!-- I surround myself with people I trust to do a better job than I could ever do alone. -->
+<!-- left off. -->
+
 She knew that something was amiss at the train station when the crowds she expected to be waiting for the train were nowhere to be found. The steel pylons of the elevated line hung over the square and cast their endless lines of shadow upon it. The few occupants who dared remain there glanced around cautiously, as if wary for some all powerful demon who whisks trains and passengers in and out of existence.
 
 After much searching, she quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. _What happened here?_

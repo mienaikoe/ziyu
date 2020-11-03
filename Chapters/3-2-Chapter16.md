@@ -226,9 +226,11 @@ Pomri was glowing at the first sight of her hometown. The pale orange of Ara spl
 
 Linyu looked in her direction with a vacant face, annoyed that she was talking again.
 
-"Oh, of course you don't. Allow me to introduce you to Rudjan, the city of ships!"
+"Home," thi said.
 
-She waved her hands as if channeling some magic in the splendor before them.
+"Yes, it is my home! Allow me to introduce you to Rudjan, the city of ships!"
+
+She waved her hands as if channeling some sort of illusion in the air.
 
 "Rudjan is a fortress of a city-state on the border of Shaki and Heiko provinces. The settlers found this giant wetland and realized that it would be safe from invaders."
 
@@ -252,9 +254,9 @@ Pomri shot her a glare, and continued teaching.
 
 Melna kept her face forward with a slight smirk and gestured to Pomri to continue.
 
-"Anyway, after much bargaining we came to a mutual agreement. The walls of Rudjan were built to keep saffas and tilmarim out and people in."
+"Anyway, after much bargaining we came to a mutual agreement. The stone walls of Rudjan were built to keep saffas and tilmarim out and people in, and we would no longer form trade routes on their wetlands."
 
-"They were afraid of revenge."
+"The people were afraid."
 
 "Melna!"
 
@@ -271,9 +273,6 @@ She looked down at hae and pondered at the mysteries behind this peculiar child 
 "Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We should all be so resilient."
 
 They came to the edge of the wetland, and dismounted from their saffas. Before them, a city awaited their arrival, a train awaited their board. But for now the saffas wooped and played in the water of their ancestors, the throngia looked on in glee, and not one among them in this moment of respite felt any worry for the state of their world.
-
-<!-- "I build my trust around those who see what I can't." -->
-<!-- left off -->
 
 <!--
 
