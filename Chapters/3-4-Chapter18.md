@@ -3,9 +3,11 @@
 <!-- I surround myself with people I trust to do a better job than I could ever do alone. -->
 <!-- left off. -->
 
-She knew that something was amiss at the train station when the crowds she expected to be waiting for the train were nowhere to be found. The steel pylons of the elevated line hung over the square and cast their endless lines of shadow upon it. The few occupants who dared remain there glanced around cautiously, as if wary for some all powerful demon who whisks trains and passengers in and out of existence.
+She knew that something was amiss when she saw a group of citykeepers leafing through the crowd at the station, looking for someone specific. The members of this crowd did not seem particularly rushed as a normal intending passenger might be, but glanced around cautiously, as if worried that their deepest secrets might become the target of the keepers' inquisition.
 
-After much searching, she quickly discovered that there was no sign of Pomri or Linyu, and then paused to ask a couple people if they had seen a woman and child, but they all averted their eyes and walked away the minute she reached out. _What happened here?_
+She walked along the perimeter of the area, searching for Pomri and avoiding the keepers, but after searching for a long while she discovered no sign of Pomri or Linyu. She found a young maman, asked hae if thi had seen a woman and child, but thi averted hae eyes and walked away.
+
+_What happened here?_
 
 From the corner of her eye, she spotted a little boy against a wall in a shaded corner staring at her. From the crevasse of his cloak he summoned her with a slight gesture of his hand, catching Melna off guard. But his gaze did not move, and she had no other leads to go on, so she approached him slowly, checking every corner and vantage point in the area.
 
