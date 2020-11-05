@@ -1,31 +1,56 @@
 ## Chapter 18
 
-<!-- I surround myself with people I trust to do a better job than I could ever do alone. -->
-<!-- left off. -->
-
 She knew that something was amiss when she saw a group of citykeepers leafing through the crowd at the station, looking for someone specific. The members of this crowd did not seem particularly rushed as a normal intending passenger might be, but glanced around cautiously, as if worried that their deepest secrets might become the target of the keepers' inquisition.
 
-She walked along the perimeter of the area, searching for Pomri and avoiding the keepers, but after searching for a long while she discovered no sign of Pomri or Linyu. She found a young maman, asked hae if thi had seen a woman and child, but thi averted hae eyes and walked away.
+She walked along the perimeter of the area, searching for Pomri and avoiding the keepers, but after a long while she discovered no sign of Pomri or Linyu. She found a young maman, asked hae if thi had seen a woman and child, but thi averted hae eyes and walked away.
 
 _What happened here?_
 
-From the corner of her eye, she spotted a little boy against a wall in a shaded corner staring at her. From the crevasse of his cloak he summoned her with a slight gesture of his hand, catching Melna off guard. But his gaze did not move, and she had no other leads to go on, so she approached him slowly, checking every corner and vantage point in the area.
+From the corner of her eye, she spotted the eyes of a woman staring back at her. She wore a thin ashen gray coat and her mouth and nose was covered with a thick black cloth that was almost certainly the same material that Linyu was wearing. Melna planned her next steps carefully, checking every corner and vantage point in the area, and all the while the woman's gaze did not move.
 
-"You are looking for someone?" he asked.
+"You are looking for someone?" she asked.
 
 "Yes. A woman and a kaln. Have you seen them?"
 
-"What is your name?"
+"Show me your pendant."
 
-"My name? Why do you ask?"
+"My pendant? Whatever for?"
 
-He remained silent, staring at her with the eyes of a child who had internalized the folly of trust.
+She remained silent, staring at her with the eyes of a woman who had long internalized the folly of trust.
 
-Melna stood confidently and said, "I am Melna um Heiko. Now please tell me if you know where they've gone or I shall be on my-"
+Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show our peoples' most valued traditional artifact to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
 
-"Pomri and Linyu are in a safe place. They were walking into a trap at the station, but my nather removed them from the danger in time and stowed them on her ship. There was no time for them to say goodbye."
+"Come with me," she said interrupted her, and turned down the alleyway she stood in. Melna was exasperated and but for her utter lack of any other leads, she would have turned around and left. But there was something about this woman, like the crucial piece of a puzzle there was no way forward without her.
 
-"No time? Why?"
+"First of all, who are you?" Melna asked.
+
+"I am Setre, Linyu's nather," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than the age her eyes would suggest.
+
+"Thi and Pomri are in a safe place," the woman explained. "They were walking into a trap at the station, but I removed them from the danger."
+
+"How did you ever find us? I want to see them. Where are they now?"
+
+"They've fled the city on a fishing vessel back to Heiko."
+
+"What? No!"
+
+"I know the captain personally. They'll be safe."
+
+"Heiko is in grave danger."
+
+She stopped walking and Melna stepped and turned to stand in front of her.
+
+"What do you mean?" she asked.
+
+"I overheard a man talking about Heiko. He said it would be a pile of rubble overnight."
+
+"Even the greatest warriors in the world can't take a city in one night."
+
+"Holragi doesn't need warriors," Melna said. Her voice deadened the air.
+
+"We must go after them," said the woman.
+
+<!-- left off -->
 
 "You will learn soon. But now, it is too dangerous in Rudjan. You must leave immediately."
 

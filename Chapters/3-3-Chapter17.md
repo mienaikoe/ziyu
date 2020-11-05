@@ -248,22 +248,24 @@ With a loud and quick huff he took off without looking, barrelling straight into
 
 But there was no response in either eye or stride. She quickly measured her options and decided that she had just enough time to follow him to at least the center of the city. She could always get word from the observatory from Shaki, and she was suspicious that there was something brewing that an angry man like him could divulge.
 
-She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats on his left side. Melna immediately took a position hiding behind a large wooden column as she looked on.
+She placed her steps as quickly as possible, trying to keep up as they entered a crowded islet near the center of the city. He seemed to move through the crowd without causing a stir, seeing openings in the chaos before they formed. A couple times, she thought she had lost him, but his messy robes made him easy to spot. They had nearly reached the pier to North Harbor before he turned south onto a small dock and slowed his pace to look for boats. Melna immediately took a position hiding behind a large wooden column as she looked on.
 
 "The magistrate hasn't seen them in Shaki either," he said as he approached a boat. _Was he speaking to someone?_
 
 "They must have gone to Heiko, it's the only place left."
 
-Melna could barely make out the whispers of a response, but the boat seemed empty as far as she could tell. She watched him untie the boat from the dock and step in near the back. Without a pause, a rough shipping bag in the boat begin to move and from it emerged a pair of glowing blue eyes. On the right side of hae head was a terrible gash that was healing. She was sure such an injury would have killed a normal person, but somehow this maman was alive and well. A deluge of questions washed over her, but she resolved to stay focused as long as she could.
+Melna could barely make out the whispers of a response, but the boat seemed empty as far as she could tell. She watched him untie the boat from the dock with one hand and step in near the back. Without a pause, a rough shipping bag in the boat begin to move and from it emerged a pair of glowing blue eyes. On the right side of hae head was a terrible gash that was healing. She was sure such an injury would have killed a normal person, but somehow this maman was alive and well. A deluge of questions washed over her, but she resolved to stay focused as long as she could.
 
-"Those idiots. He said the whole place will be rubble in a matter of days."
+"Those idiots. He said the whole place will be rubble by tomorrow."
 
 _What?!_
 
-"Did I say you could come out?" he barked at hae and thi covered hae head again.
+"What are you waiting for?" he barked at hae. "Start paddling."
 
 They paddled off into the canal toward South Harbor while Melna pieced together what she had just heard.
 
-"This trip was doomed to fail. Those projectils are meant for Heiko," she said to herself, trying to remain calm.
+"This trip was doomed to fail," she whispered to herself. "Those projectiles are meant for Heiko."
+
+She tried to remain calm, but her mind refused to be clear.
 
 "I need to find Pomri."
