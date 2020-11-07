@@ -30,7 +30,7 @@ Thi started to talk but remembered the pain in hae throat as only a whisper emer
 
 "Why?" thi asked, and surprised her.
 
-"Because you're... alone. And I have no clue where your parents are and you can't call for help."
+"Because you're... alone and blind. And I have no clue where your parents are and you can't call for help."
 
 "Am. Fine," thi said with conviction. Melna's preplexion was renewed. Such an independent child could surely not have come from Heiko. _But then how did thi get here?_, she thought.
 
@@ -56,7 +56,7 @@ She didn't have the time to argue, and thought it might be good to understand mo
 
 Thi furrowed hae brow, and Melna was surprised.
 
-"I go to a big room where all the provinces of the world discuss things, and I represent the people who live here. In that room, a few days ago, I was accused of hoarding food, and I had to give away some of my province's food. A lot of people aren't happy about that, so we must keep a low profile to avoid danger. That means we have to stick together and stay out of trouble. You understand?"
+"It means I travel to a big room where all the provinces of the world discuss things, and I represent the people who live here. In that room, a few days ago, I was accused of hoarding food, and I had to give away some of my province's grain. A lot of people aren't happy about that, so we must keep a low profile to avoid danger. That means we have to stick together and stay out of trouble. You understand?"
 
 Thi nodded back.
 
@@ -108,13 +108,13 @@ She approached the station attendant wearing an impeccable posture in lieu of he
 
 She greeted him, "Hi there. Do you know if this is when the train typically arrives?"
 
-He gave her a once-over and said, "No trains today. Get out of here."
+He gave her a once-over and said, "I'm afraid there are no trains anymore. No thanks to you."
 
 "I'm just looking for the time," she persisted.
 
-He looked behind her and quickly walked away, ending the conversation. The mechanics from the corner were approaching slowly with a swagger meant to intimidate: a young man in uniform who looked like he hadn't slept the night before and a maman about his height and build, twiddling with a steel bar fashioned with a crook at the end.
+He looked behind her and quickly walked away, ending the conversation. The mechanics from the corner were approaching slowly with a swagger meant to intimidate: a young man in uniform who looked like he hadn't slept the night before and a maman about his height and build, twiddling with a steel bar fashioned with a crook at the end. The attendant whisked himself away, eager to stay out of trouble.
 
-"You look familiar," thi said. Hae eyes shot toward Melna's bag where her hastily-packed robes were peeking out.
+"You look familiar," said the maman. Hae eyes shot toward Melna's bag where her hastily-packed robes were peeking out.
 
 "You're the one who gave away all our food."
 
@@ -142,7 +142,7 @@ The pair turned around to find Pomri, on her own saffa, holding a polished blue 
 
 The maman tugged on the man's arm and they dashed away from the station as fast as they could.
 
-"You're woefully unprepared," said Pomri, sheathing her swordd.
+"You're woefully unprepared," said Pomri, sheathing her sword.
 
 Melna was stoic. "Those two need guidance not threats, Pomri. Their lives are already filled with fear."
 
@@ -168,7 +168,7 @@ Melna let out an exasperated sigh. "My ways may seem strange to you, Pomri, but 
 
 "Time... Never been fond of it. A little more, and we'd use it to complain about how little we had."
 
-"Oiii. Sometimes I wonder how you became a fidelant with such terrible quips."
+"Oiii. Sometimes I wonder how you became a fidelant with such terrible quotes."
 
 "There are no bad jokes, Pomri. Only bad people."
 

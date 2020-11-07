@@ -1,5 +1,55 @@
 ## Chapter 18
 
+<!--
+
+re-outlining
+
+IF this is Shinna
+- IF Shinna has met with Pomri and Linyu
+  - Linyu would have been completely against, Shinna probably couldn't get very far
+  - Pomri might try to convince Linyu there was no other way out
+  - Casra's home? but Linyu wouldn't want to lead Shinna there.
+  - Maybe Casra had fled to Casra's home (some convo they had or something)
+  - They wouldn't know about Heiko destruction
+- ELSE
+  - Shinna might try to lie to Melna about knowing where Pomri and Linyu went
+    - Thi'd have to first know that Pomri and Linyu were there
+      - maybe thi saw them at the station
+      - Trust giving is the listener Linyu dropped while running
+    - Bavle helped Pomri+Linyu get out and get back with their saffas
+  - Ginnu+Ramne are stowaways on hae ship?
+    - One of Shinna's crew helped him out?
+  - Maybe ginnu is on Shinna's ship without Ramne
+    - No narrative of
+
+- What if this is Ramne?
+  - Ramne lies about Pomri and Linyu
+  - The reader knows the danger
+  - Where is Shinna in this?
+    - Needs to be there too for the turning on Holrag plot
+      - Maybe Change CH14 so Shinna and Ramne are still villains, but Shinna has second thoughts
+  - maybe Melna follows Shinna out of the conduit
+    - Shinna would be informed? Ramne would be more informed
+  - he saw Pomri and Linyu
+  -
+
+IF this is Setre
+- Setre knows where Casra's place is
+- Setre has access to a ship - she got there somehow
+- Pomri+Linyu are taking a ship to Shaki?
+- Setre can't stay with her for some reason
+  - Trying to
+- Shinna has a ship
+
+
+Truths:
+- Bavle helped Pomri+Linyu get out and get back with their saffas
+- Shinna and Ramne are tenable allies until the fight after the torture
+- Shinna draws Melna in
+
+
+-->
+
 She knew that something was amiss when she saw a group of citykeepers leafing through the crowd at the station, looking for someone specific. The members of this crowd did not seem particularly rushed as a normal intending passenger might be, but glanced around cautiously, as if worried that their deepest secrets might become the target of the keepers' inquisition.
 
 She walked along the perimeter of the area, searching for Pomri and avoiding the keepers, but after a long while she discovered no sign of Pomri or Linyu. She found a young maman, asked hae if thi had seen a woman and child, but thi averted hae eyes and walked away.

@@ -279,15 +279,13 @@ He came to a place where the trees cleared, and the ground had all but turned to
 
 Kipnu refocused on his mission. He called out again, "Casra!"
 
-"Thi's dead," Shinna's voice came from behind him. Kipnu jumped out of surprise and looked around for hae.
-
-"Or alive," thi continued. "Depends on how you look at it, I suppose."
+"Thi's gone," Shinna's voice came from behind him. Kipnu jumped out of surprise and looked around for hae.
 
 "What did you do to hae?"
 
 There was a moment of silence. Kipnu sensed that thi was moving, but couldn't see where. He lunged at where he thought thi was but he was met with cold thin air and the sound of hae voice above him. Thi spoke with a tone of smoldering rage.
 
-"Burning our home to the ground wasn't enough? Hundreds of people, dead in a moment and still you aren't satisfied."
+"You burn our entire home; hundreds of people, dead in moments and still you only care about Casra."
 
 "The fire? I didn't start that–"
 
@@ -397,7 +395,7 @@ Kipnu walked closer to challenge him and said, "You're nothing but a twisted dru
 
 Ramne smirked and adjusted the instrument. "Not yet."
 
-He squeezed the metal instrument with his hand and another shot rang out. Kipnu dove into the water to dodge the projectile, bracing for some kind of stinging pain. But a wave passed, and there was no pain. He surfaced again and found Ramne struggling with Shinna, the metal instrument gripped tightly in his hand. Without thinking, Kipnu rushed in to wrest it free, grasping tightly at his fingers to pry them off, but they held fast. Shinna was thrown out of the scuffle in a sudden twisting motion and the two men fell to the ground with Ramne's face in the sand. Kipnu pinned Ramne's arms against his back, but in a sudden movement, Ramne twisted and threw Kipnu off of him. As he flew back Kipnu held on to Ramne's firing arm, and inadvertently turned it straight toward himself. Another crack rang out and Kipnu felt the sting of hot metal pierce a bone in his chest, and the flowing of blood came in one stream down his abdomen into the sand. Though his eyes were fading and his ears were ringing, he saw Shinna stab a dagger clean through Ramne's hand, dislodging the weapon from it. Thi held it up toward him and Ramne vanished into the night.
+He squeezed the metal instrument with his hand and another shot rang out. Kipnu dove into the water to dodge the projectile, bracing for some kind of stinging pain. But a wave passed, and it didn't come. He surfaced again and found Ramne struggling with Shinna, the metal instrument gripped tightly in his hand. Without thinking, Kipnu rushed in to wrest it free, grasping tightly at his fingers to pry them off, but they held fast. Shinna was thrown out of the scuffle in a sudden twisting motion and the two men fell to the ground with Ramne's face in the sand. Kipnu pinned Ramne's arms against his back, but in a sudden movement, Ramne twisted and threw Kipnu off of him. As he flew back Kipnu held on to Ramne's firing arm, and inadvertently turned it straight toward himself. Another crack rang out and Kipnu felt the sting of hot metal pierce a bone in his chest, and the flowing of blood came in one stream down his abdomen into the sand. Though his eyes were fading and his ears were ringing, he saw Shinna kick the weapon from Ramne's hand, saw him vanish into the night.
 
 "...prepare for ignition," he heard a faint voice through the static in the listener.
 
@@ -405,6 +403,6 @@ He squeezed the metal instrument with his hand and another shot rang out. Kipnu 
 
 But through the commotion and the fickle passage of time, his mind began to slip into itself and lose contact with the world. Another voice entered his ear. Whether it was imagined or real was inconsequential: the voice was true. And it slept there with him in his final thought, as true things do.
 
-"Kipnu... Melna..." thi said.
+"Kipnu... Melna..." said the voice.
 
 "I love you."
