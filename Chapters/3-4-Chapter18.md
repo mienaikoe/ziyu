@@ -45,6 +45,8 @@ IF this is Setre
 Truths:
 - Bavle helped Pomri+Linyu get out and get back with their saffas
 - Shinna and Ramne are tenable allies until the fight after the torture
+  - Ramne set the fire, but Shinna had nowhere else to go.
+  - This is Ramne's ship, but Shinna can lead a mutiny.
 - Shinna draws Melna in
 
 
@@ -56,9 +58,9 @@ She walked along the perimeter of the area, searching for Pomri and avoiding the
 
 _What happened here?_
 
-From the corner of her eye, she spotted the eyes of a woman staring back at her. She wore a thin ashen gray coat and her mouth and nose was covered with a thick black cloth that was almost certainly the same material that Linyu was wearing. Melna planned her next steps carefully, checking every corner and vantage point in the area, and all the while the woman's gaze did not move.
+From the corner of her eye, she spotted the eyes of a maman staring back at her. Thi wore a thin ashen gray coat and hae mouth and nose was covered with a thick black cloth that was almost certainly the same material that Linyu was wearing. Melna planned her next steps carefully, checking every corner and vantage point in the area, and all the while the maman's gaze did not move.
 
-"You are looking for someone?" she asked.
+"You are looking for someone?" thi asked.
 
 "Yes. A woman and a kaln. Have you seen them?"
 
@@ -66,31 +68,27 @@ From the corner of her eye, she spotted the eyes of a woman staring back at her.
 
 "My pendant? Whatever for?"
 
-She remained silent, staring at her with the eyes of a woman who had long internalized the folly of trust.
+Thi remained silent, staring at her with the eyes of a maman who had long internalized the folly of trust.
 
-Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show our peoples' most valued traditional artifact to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
+Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show you our peoples' most valued traditional artifact to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
 
-"Come with me," she said interrupted her, and turned down the alleyway she stood in. Melna was exasperated and but for her utter lack of any other leads, she would have turned around and left. But there was something about this woman, like the crucial piece of a puzzle there was no way forward without her.
+"Come with me," thi said interrupted her, and turned down the alleyway they stood in. Melna was exasperated. If not for her utter lack of any other leads, she would have turned around and left. But there was something about this maman; like the crucial piece of a puzzle, there was no way forward without her.
 
-"First of all, who are you?" Melna asked.
+"First of all, who are you?" Melna asked as she caught up with hae.
 
-"I am Setre, Linyu's nather," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than the age her eyes would suggest.
+"Who I am is not important," thi said, removing her mask. Though it was dark, Melna could see more of the features of hae face. Thi seemed younger than the age hae eyes would suggest, and more clever than many of the fidelants she' worked with.
 
-"Thi and Pomri are in a safe place," the woman explained. "They were walking into a trap at the station, but I removed them from the danger."
+"Linyu and Pomri are safe," the maman explained. "They were walking into a trap at the station, but I removed them from the danger."
 
-"How did you ever find us? I want to see them. Where are they now?"
+"I want to see them. Where are they now?"
 
-"They've fled the city on a fishing vessel back to Heiko."
+"They've fled the city and are going back to Heiko."
 
-"What? No!"
+"What? No! Heiko is in grave danger."
 
-"I know the captain personally. They'll be safe."
+Thi stopped walking and Melna stepped and turned to stand in front of hae.
 
-"Heiko is in grave danger."
-
-She stopped walking and Melna stepped and turned to stand in front of her.
-
-"What do you mean?" she asked.
+"What do you mean?" thi asked.
 
 "I overheard a man talking about Heiko. He said it would be a pile of rubble overnight."
 
@@ -98,7 +96,7 @@ She stopped walking and Melna stepped and turned to stand in front of her.
 
 "Holragi doesn't need warriors," Melna said. Her voice deadened the air.
 
-"We must go after them," said the woman.
+"We must go after them," said the maman.
 
 <!-- left off -->
 

@@ -367,17 +367,19 @@ With his head submerged, he tugged hard on the vine, trying his best to wrest it
 
 Kipnu held his hand up to his nose, sending a signal to Shinna. Thi paused for a moment, then took one step closer to Ginnu and inhaled quietly, so Ramne wouldn't notice. Thi noticed an odor with a quizzical look behind hae face, then looked at the leaf, then to Ramne's hand and a look of understanding formed across hae face.
 
-Ginnu quckly took the leaf into hae mouth and pulled it against hae teeth, letting the contents into hae mouth. Thi soon lost hae balance and slipped into the kanosin trance.
+Ginnu quckly took the leaf into hae mouth and held it between hae teeth. With a quick pull, thi emptied its contents onto hae tongue, covering hae lips with a glowing blue liquid. In a moment, thi had lost hae balance and slipped into the kanosin trance.
 
 "There you go," Ramne said, laying hae softly onto the sand and unceremoniously squeezed on the instrument in his hand. A loud crack rang out into the air and the dark shadow of hae blood spread across the sand.
 
-"Kipnu, come closer," said Ramne, but he stood perfectly still save for the tremors in his body. Ramne rose the weapon, pointing it toward Kipnu.
+"Kipnu", said Ramne, turning to him. "Come closer."
 
-"You heard me," he said, and as if in a trance, Kipnu started to walk closer.
+But Kipnu stood perfectly still save for the tremors in his body. Ramne rose the weapon, pointing it toward him.
 
-"There you go," Ramne said. "Ah, stop right there."
+"You heard me," Ramne said, and as if in a trance, Kipnu started to walk closer.
 
-Shinna stood to the side of him, glancing behind haeself as if weighing hae options. Ramne continued as if thi had vanished into the background: a passive audience to his judgment and execution.
+"There you go. Ah, stop right there."
+
+Shinna stood to the side of him, glancing behind haeself as if weighing hae options. Ramne continued to speak to the wind as if thi had vanished into the background: a passive audience to his judgment and execution.
 
 "Now Kipnu, on the other hand. He's a real troublemaker. Came to this shithole and got right to work dismantling it all. You might think yourself a noble man, Kip, but that means nothing in this world. You and all your addict friends are the filth of society, the very spirit of Ulu. Ara is the fire that demands your sacrifice. And if you won't give it willingly, it shall be taken from you by force."
 
@@ -387,7 +389,7 @@ Kipnu had heard this way of speaking before, in a Holragi curiosity he'd leafed 
 
 He chuckled a quick breath, barely a puff, and told him, "Nobody dies in the dark."
 
-He stared comfortably into Kipnu's eyes as if harvesting Kipnu's emotions to feed his malevolent hunger.
+He stared comfortably into Kipnu's eyes as if harvesting Kipnu's emotions to feed the hunger of his malevolence.
 
 "When the darkness falls and the mainlanders kill each other in the chaos, I'll be there to laugh as it all comes tumbling down."
 

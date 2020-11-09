@@ -33,6 +33,8 @@ There are names for the various time divisions, which are tabulated here:
 This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
 X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
 
+Eras are measured by volcanic activity that makes the whole world go dark and cold for a temporary time. The Throngia have a limited understanding for why this happens but know that it happens somewhat regularly through time in approximately 100,000 day increments. The story takes place in the days after the seventh cold.
+
 ## Distance
 
 Distance is measured in ratios of circumference of the planet, and divided in twelves. Lao means "arc", and can be used for angles as well, but is often used in reference to distance in general conversation. The observers use Lao to refer to angles on the sky.
