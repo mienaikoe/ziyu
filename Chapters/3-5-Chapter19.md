@@ -30,17 +30,17 @@ She turned around and began to walk as quickly as she could toward the harbor.
 
 She stopped just short at the first sign of three rudjan officials, and blended in behind a porter waiting for hae merchant with far too many boxes. The officials were customs inspectors by look, patrolling the island that connected the markets to the fishers' quarter. _Usually they stay in the port_.
 
-One of them was taking her frustration out on an older maman.
+One of them was taking her frustration out on a young maman.
 
 "They came right through here. How could you miss them?" She said.
 
 "I honestly wasn't looking."
 
-"A pair of glowing eyes and wounds all over hae body. You don't miss someone like that."
+"A pair of glowing eyes and wounds all over hae body? You don't miss someone like that."
 
 "All kinds of people come through here, I don't-"
 
-"This isn't just anyone. Thi could be working with the obscura. You better not be a sympathizer."
+"This isn't just anyone. The obscura could be among us for all we know! You better not be a sympathizer."
 
 "N-no. I-"
 
@@ -88,7 +88,7 @@ Thi finally was able to stand up with Melna's help.
 
 "Thank you, darling."
 
-She hesitated and introduced herself, "Melna-", she rethought her words, "ka. Melka."
+She hesitated and introduced herself, "I'm Mel-", she rethought her words, "ka. Melka."
 
 "Melka. A beautiful name," thi said. "I'm Shinna. My ship is at the northernmost dock. We're about to depart, but come find me if you're ever in the area."
 

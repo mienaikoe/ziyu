@@ -1,5 +1,26 @@
 ## Chapter 21
 
+<!--
+He leaned closer to her and pulled some things out of a pocket in his coat.
+
+"Linyu left this for you."
+
+He lifted his hand from his coat and produced a satchel, which Melna hesitantly took and opened. On the top were two thick ornamental vials in a disc shape with a reddish liquid inside them.
+
+"What is in these vials?"
+
+"A cure for the undying."
+
+She looked at him for a moment, trying to interpret his meaning, but paused to continue digging into the satchel. At the bottom was a copper coil embedded in a wooden puck: the same that Linyu was fiddling with. The coil had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. Gently closing the satchel, she quickly hid the gift away in her field pack, still confused.
+
+"Why did Linyu leave these for me?" she asked, bewildered, "And who are you?"
+
+"The wind speaks," he said mysteriously. "You must listen."
+
+_Who was he?_ She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. _The wind speaks? Who are you?_
+
+-->
+
 Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan for as long as the eye can see, but you only know that the trees have fallen away when you've been in it for long enough. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She was conditioned to feel more like herself within the arms of those rolling plains and the shorelines abutting them.
 
 A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.

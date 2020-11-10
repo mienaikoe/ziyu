@@ -64,25 +64,25 @@ From the corner of her eye, she spotted the eyes of a maman staring back at her.
 
 "Yes. A woman and a kaln. Have you seen them?"
 
-"Show me your pendant."
+"You have a pendant. Show me."
 
 "My pendant? Whatever for?"
 
 Thi remained silent, staring at her with the eyes of a maman who had long internalized the folly of trust.
 
-Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show you our peoples' most valued traditional artifact to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
+Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show my most valued traditional heirloom to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
 
 "Come with me," thi said interrupted her, and turned down the alleyway they stood in. Melna was exasperated. If not for her utter lack of any other leads, she would have turned around and left. But there was something about this maman; like the crucial piece of a puzzle, there was no way forward without her.
 
 "First of all, who are you?" Melna asked as she caught up with hae.
 
-"Who I am is not important," thi said, removing her mask. Though it was dark, Melna could see more of the features of hae face. Thi seemed younger than the age hae eyes would suggest, and more clever than many of the fidelants she' worked with.
+"Who I am is not important," thi said, removing her mask. Though it was dark, Melna could see more of the features of hae face. Thi seemed younger than the age hae eyes would suggest, and her tone more clever than many of the fidelants she had worked with.
 
 "Linyu and Pomri are safe," the maman explained. "They were walking into a trap at the station, but I removed them from the danger."
 
 "I want to see them. Where are they now?"
 
-"They've fled the city and are going back to Heiko."
+"They've fled the city. They're going back to Heiko."
 
 "What? No! Heiko is in grave danger."
 
@@ -90,37 +90,35 @@ Thi stopped walking and Melna stepped and turned to stand in front of hae.
 
 "What do you mean?" thi asked.
 
-"I overheard a man talking about Heiko. He said it would be a pile of rubble overnight."
+"I overheard a man talking about Heiko. He said it would be a pile of rubble by morning."
 
-"Even the greatest warriors in the world can't take a city in one night."
+"Even the greatest army in the world can't take a city in one night."
 
-"Holragi doesn't need warriors," Melna said. Her voice deadened the air.
+"Holragi doesn't need an army," Melna said. Her voice deadened the air. "We must go after them."
 
-"We must go after them," said the maman.
+"I have a ship. Best in Rudjan."
+
+Melna felt a sudden pang of suspicion.
+
+"What's your angle in all this?" she asked.
+
+"You will learn soon. But for now, it is too dangerous here. We must leave immediately."
+
+"No. This is all too convenient to be coincidence. You tell me why you're helping me and how do you know Linyu?"
+
+Thi sighed and spoke somberly. "I was once a pupil of Linyu's mother, Casra. Thi led a small company back in the early days after the seventh cold. Thi taught me nearly everything I know about how to lead people. Over time, it became clear that the kanosin had taken over and I was forced to take hae place. As chief, I took hae company to new heights and became very wealthy in the process, but I never got to thank hae for all that thi taught me."
+
+Thi laughed softly at haeself. "I guess my gratitude is burning a hole in my heart, and this is my way of paying it."
+
+Melna knew a lie when she saw one. But this one was peppered with truths that she couldn't decipher. She decided to follow this maman to see where thi would lead her, but knew to keep a safe distance.
+
+"Before I go with you," she said, "There are some things I need to tend to. I'll be quick about it. Meet me at the harbor?"
+
+"Melna, we must leave _now_."
+
+"I'll be fine"
 
 <!-- left off -->
-
-"You will learn soon. But now, it is too dangerous in Rudjan. You must leave immediately."
-
-He leaned closer to her and pulled some things out of a pocket in his coat.
-
-"Linyu left this for you."
-
-He lifted his hand from his coat and produced a satchel, which Melna hesitantly took and opened. On the top were two thick ornamental vials in a disc shape with a reddish liquid inside them.
-
-"What is in these vials?"
-
-"A cure for the undying."
-
-She looked at him for a moment, trying to interpret his meaning, but paused to continue digging into the satchel. At the bottom was a copper coil embedded in a wooden puck: the same that Linyu was fiddling with. The coil had been hastily tied to a round glass plate, with one long length of wire pointed outward and a flap of dry kelp covering the center. Gently closing the satchel, she quickly hid the gift away in her field pack, still confused.
-
-"Why did Linyu leave these for me?" she asked, bewildered, "And who are you?"
-
-"The wind speaks," he said mysteriously. "You must listen."
-
-He backed away and she shouted, "Wait!" but he was much too difficult to find in the dark and she stopped herself before getting lost in it.
-
-_Who was he?_ She took out the coil device he gave her and ran her fingers along the copper windings, imagining what such a strange thing might be for. She knew that train motors often had coils of wire, but this didn't appear to be a motor of any kind. It was too delicate and precise to be pushing anything. _The wind speaks? Who are you?_
 
 She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. _Pomri knows what she is doing. They'll be alright without me_, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
 
