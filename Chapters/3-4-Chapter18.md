@@ -112,21 +112,31 @@ Thi laughed softly at haeself. "I guess my gratitude is burning a hole in my hea
 
 Melna knew a lie when she saw one. But this one was peppered with truths that she couldn't decipher. She decided to follow this maman to see where thi would lead her, but knew to keep a safe distance.
 
-"Before I go with you," she said, "There are some things I need to tend to. I'll be quick about it. Meet me at the harbor?"
+"Before I go with you," she said, "I need to tend to my saffa. I'll be quick about it. Meet me at the harbor?"
 
 "Melna, we must leave _now_."
 
-"I'll be fine"
+"I'll be fine," she said confidently.
 
-<!-- left off -->
+"Let me go with you. I know these streets well."
 
-She looked down the wall toward the oceans of Ulu, and with her mind she reached out through the massive ocean rails that took Pomri and Linyu away. _Pomri knows what she is doing. They'll be alright without me_, she reassured to herself. Yet there was a looming dread hanging in her mind, battering her with guilt for not doing more to stop this from happening. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her cheek.
+"That won't be necessary. I'll only be a moment."
 
-"I will find you when this is over," she swore to them, "and you will have a home to come back to. I promise."
+The maman saw that she wouldn't be convinced so easily. Thi sighed and backed away, realizing how closely thi had leaned in to speak to her.
 
-She turned and bowed as a parting gesture and looked back toward Rudjan with all its patches of wooden buildings haphazardly placed amongst the watery foreground, and surrendered all of her worries in order to focus. _They're invading Heiko but they also expected us to go to Shaki. I need to figure out what they're planning. And keep a low profile._ She loosened her black shawl and raised it above her head to form a makeshift hood, and tightened it again around her neck. With a quick glance and a first step she headed back to the conduit to get some answers.
+"My ship is at pier 5," thi said. "We have very little time to save them, Melna. Please be quick."
 
-Her feet retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. At the door, she shed her memories and focused on the task at hand: discovering the truth and drilling the truth out of the operator.
+"I want to save Linyu as much as you do. It won't be long, I promise."
+
+And with a quickness in hae step, the maman walked down the dark alley with hae eyes fixed upon Melna. There is no other displeasure quite like being the prey of another's eye. She felt it at Heiko station: How the two looked at her with a hungry gaze, eyeing her bag and her saffa. She felt it in Fajro's presence, his face barely hiding his lustful thoughts.
+
+She walked back up the alley and stopped at the place where she'd encountered the maman. Her eyes peered down the wall of the station toward the skies above Heiko, and with her mind she reached out through the dusty path that Pomri and Linyu had traveled. _Pomri knows what she's doing_, she reassured to herself. Yet there was a looming dread hanging in her mind where her guilt nucleated and pervaded her thoughts. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her flushed cheek.
+
+"I will find you when this is over," she swore to them. "You will have a home to come back to. I promise."
+
+She turned her eyes back toward Rudjan with all its patches of wooden buildings haphazardly placed amongst the watery foreground, and surrendered all of her worries in order to focus. _I need to keep a low profile until I'm gone._ She loosened her black shawl and raised it above her head to form a makeshift hood, and tightened it again around her neck. With a quick glance and a first step she headed back to the conduit to get some answers.
+
+Her feet retraced her steps down the pathway toward the conduit building, recalling her run-in with the strange man, and that eerie look of malice in his eyes. Somehow that man knew that Heiko would be destroyed. Somehow the maman knew right where Pomri and Linyu would be, knew to wait for her. There was some sort of network of information that was right under her nose, and she was determined to get to the bottom of it.
 
 "Aey?" she called, but there was no answer. At the operator desk sat a man, tall and exhausted, speaking quietly into the microphone. He glanced at her and quickly murmured something quiet into the microphone and then shuffled from the desk to approach her.
 
@@ -136,7 +146,7 @@ Her feet retraced her steps down the pathway toward the conduit building, recall
 
 "Rudjan conduit is closed under order from the senate."
 
-She lowered her hood and said, "I am a fidelant. There is no such order."
+She lowered her hood and said, "I am a fidelant of the senate. There is no such order."
 
 "You leave now!" he yelled, realizing who she was. He ran over to her to push her toward the door, but Melna spun his hands off of her arm and moved further into the room behind the desk, holding her hand out to keep him away. Her other hand hovered over the switch for the conduit, stopping the man in his tracks.
 
@@ -144,7 +154,7 @@ She said, "You seem agitated. Do you have some things to tell the rest of us?"
 
 "Step away from the desk!"
 
-"Ooh so you _do_ know what's happening to Holrag. Or maybe you know where they took my assistant."
+"Ooh so you _do_ know what's happening in Holrag. Maybe you know why they're planning to destroy Heiko. Should I tell the world what you're doing here?"
 
 He didn't say a word, but held his apprehensive stance. Melna glanced at the space across the table, her hand still at the ready.
 
@@ -158,35 +168,37 @@ He didn't respond.
 
 "Operator, then. Well, operator, what do you know about Heiko?"
 
-"You hoard food and lie to the world. Liffa told the senate."
+"You hoard food and lie to the world. The Holragi told everone."
 
 "Is that what the operators are saying on the conduit these days? Now tell me. What do you talk about in the more secretive channels."
 
 He donned a fake smile and said, "I have no clue what you're talking about."
 
-Melna was quickly becoming impatient with him. She moved from her spot and around the table to lift him up and pin him against the table, his head not far from the button to the microphone.
+Melna was quickly becoming impatient with him. She moved from her spot and pivoted around the table with the microphone in hand, setting it down next to her.
 
 He spoke between breaths with unwavering conviction, "You and your people. You're all criminals. Everybody knows it. You'll never succeed as long as Holrag is in power."
 
-"Holrag, eh? Did their operator tell you about how their sociopath scientist kidnapped my jundmaman?"
+"A Holrag sympathizer, eh? Did they tell you about how their sociopath ex-fidelant kidnapped my jundmaman?"
 
-"Scum like you don't deserve to die as heroes. But the blood of Holrag flows stronger in hae veins."
+"The blood of Holrag flows through Liffa's veins, far stronger than Heikoi blood. Only a true Holragi deserves to be a hero like hae."
 
-She leaned forward and stared close into his eyes on the desk, moving her free hand to the table.
+She leaned forward and stared intensely into his eyes as he smirked back at her. With a quick movement, she lifted a small blade to his neck. He lifted his hands in response, but they were too slow: the blade had already fallen below his head and nestled right into a crevasse in his skin where any movement would surely be deadly.
 
-"You know nothing about Liffa."
+"You know nothing about Liffa," she said.
 
-He laughed menacingly in her face, "I imagine it will be fitting, dying with all hae secrets amongst the remnants of her false home."
+He laughed menacingly in her face, "I imagine it will be a fitting end for a true Holragi, dying a hero after hae mission, a symbol of defiance against the Heikoi who indoctrinated hae."
 
-"Stop it!"
+"And what about you? Do you call yourself a hero? Coordinating the deaths of tens of thousands of people?"
 
-"It's a shame you'll never be able to say goodbye."
+"You are a scourge on the world. You deserve what's coming to you. You'll be crying under the rubble of what's left of Heiko before you can even say goodbye."
 
-She maintained her scowl, her entire frontal lobe holding back from slamming his head against the table repeatedly until she felt better, but she knew this wasn't the time. She committed his words to the parts of her memory that were padded and padlocked and armored against the hardest truths, then simply lifted her hands from the switch of the microphone, making sure the operator saw her.
+She maintained her scowl, her entire frontal lobe holding back from slamming his head against the table repeatedly until she felt better, but she knew this wasn't the time. She committed his words to the parts of her memory that were padded and padlocked and armored against the toughest truths, then simply lifted her foot from the switch of the microphone, making sure the operator saw her.
 
-Her hands released his shirt and he slipped to the floor, still in shock. She spoke quietly, "Heiko is a warm place," she said quietly, "Full of beautiful places and generous people. But I want you to remember this. We know when we have been betrayed. We may suffer but we will rebuild. And those who rejoiced in our suffering will be the first to fall upon our swords."
+"Heiko is a warm place," she said quietly, "Full of beautiful places and generous people. But I want you to remember this. We know when we have been betrayed. We may suffer but we will rebuild. And those who rejoiced in our suffering will be the first to fall upon our blades."
 
-He was still contemplating the microphone; if she had really broadcast so much to the conduit. The silence on the line was unbreaking and told him nothing. She gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step toward the door as he lifted himself from the floor.
+She gathered herself, glancing again quickly at the mess of rails and wires that filled the upper half of the room and took a step toward the door as he lifted himself from the chair.
+
+<!-- left off -->
 
 When he had stood up, she turned her head and said, "You _will_ regret this day."
 
