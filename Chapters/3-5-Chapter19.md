@@ -62,7 +62,9 @@ After the inspectors left, Melna approached the poor maman while the porter gave
 
 "Hey, are you ok?" She asked, reaching her hand out to the maman's shoulder. Thi looked up at her with uncertain eyes, but a smile of gratitude.
 
-"I'll be fine. I'm just a bit shaken."
+"I'll be fine", thi said, "I'm just a bit shaken."
+
+Though it was dark, Melna could see more of the features of hae face. Thi seemed younger than the age hae eyes would suggest, and more clever than many of the fidelants she' worked with.
 
 "What were they on about back there?" she asked, crouching to see hae closer.
 
