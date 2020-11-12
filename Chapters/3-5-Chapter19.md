@@ -1,5 +1,13 @@
 ## Chapter 19
 
+Melna's fervid limbs slipped through the crowds of Rudjani who remained blissfully ignorant and powerless to the greater changes happening around them. They were hungry and they were envious; nothing would stop them from filling the docks of the merchant's quarter with their demands. She felt a false disdain for them but did not let it slow her charge toward the gates to Heiko. She was cautious as she approached the mostly empty gate, but did not see any signs of a trap.
+
+<!-- left off -->
+
+She called to her from the inside, "Bavle...," but there was no response nor sign of anyone.
+
+"Bavle!" she called again, making sure to be heard. But no one was there to hear her. _Neither fear of death nor promise of reward_, she recalled Bavle saying, and a wave of dread washed over her. The entire city had become an elaborate trap and she was in the middle of it all.
+
 "Woop?" cried Laen from the left-most gate.
 
 "Laen-Laen!" Melna responded with joy. She hurried over to him and asked, "Are you ok? Do you know where Bavle is?"
@@ -60,7 +68,7 @@ She sulked in disbelief, staring back at them as the maman she tormented lay kne
 
 After the inspectors left, Melna approached the poor maman while the porter gave nary a glance.
 
-"Hey, are you ok?" She asked, reaching her hand out to the maman's shoulder. Thi looked up at her with uncertain eyes, but a smile of gratitude.
+"Hey, are you ok?" She asked, reaching her hand out to the maman's shoulder. Thi looked up at her with a face that had long internalized the folly of trust. But hae mouth still mustered a smile of gratitude.
 
 "I'll be fine", thi said, "I'm just a bit shaken."
 
@@ -123,6 +131,38 @@ She leaned in close and took hae hands in her own.
 The air contemplated its silence.
 
 "I charge extra for you fancy folk you know." Thi nodded to Melna's senate robes that were visible from a crack in her bag. They shared a smirk and Shinna took her hand to lead her to hae ship.
+
+Melna felt a sudden pang of suspicion.
+
+"What's your angle in all this?" she asked.
+
+"You will learn soon. But for now, it is too dangerous here. We must leave immediately."
+
+"No. This is all too convenient to be coincidence. You tell me why you're helping me and how do you know Linyu?"
+
+Thi sighed and spoke somberly. "I was once a pupil of Linyu's mother, Casra. Thi led a small company back in the early days after the seventh cold. Thi taught me nearly everything I know about how to lead people. Over time, it became clear that the kanosin had taken over and I was forced to take hae place. As chief, I took hae company to new heights and became very wealthy in the process, but I never got to thank hae for all that thi taught me."
+
+Thi laughed softly at haeself. "I guess my gratitude is burning a hole in my heart, and this is my way of paying it."
+
+Melna knew a lie when she saw one. But this one was peppered with truths that she couldn't decipher. She decided to follow this maman to see where thi would lead her, but knew to keep a safe distance.
+
+"Before I go with you," she said, "I need to tend to my saffa. I'll be quick about it. Meet me at the harbor?"
+
+"Melna, we must leave _now_."
+
+"I'll be fine," she said confidently.
+
+"Let me go with you. I know these streets well."
+
+"That won't be necessary. I'll only be a moment."
+
+The maman saw that she wouldn't be convinced so easily. Thi sighed and backed away, realizing how closely thi had leaned in to speak to her.
+
+"My ship is at pier 5," thi said. "We have very little time to save them, Melna. Please be quick."
+
+"I want to save Linyu as much as you do. I won't be long, I promise."
+
+And with a quickness in hae step, the maman faded down the dark alleyway with hae eyes fixed upon Melna. There is no other displeasure quite like being the prey of another's eye. She felt it at Heiko station: How the two looked at her with a hungry gaze, eyeing her bag and her saffa. She felt it in Fajro's presence, his face a thin mask to hide his lustful thoughts. And she knew this wouldn't be the last time.
 
 It was larger than she had imagined, outfitted with two large foldable sails on each side and three pairs of risers for power in a headwind. The forward hull was adorned with brand new plates of steel which set the ship low in the water. But the crew didn't seem to mind it as they played some sort of game on a crate on the dock.
 
