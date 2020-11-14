@@ -1,6 +1,6 @@
 ## Chapter 17
 
-A lone citykeeper stood vigil at a row of three ornate black steel gates mounted in the wall of Rudjan. She was bundled up in thick black cloth underneath a shining steel gorget with a rise to protect her neck and an etching of a ship on the broad front plate. Her broad cheekbones and wrinkled mouth showed that she was of an older age than most keepers would have been but it was clear she could still take out a whole group of bandits with her bare hands.
+A lone citykeeper stood vigil at a row of three ornate black steel gates mounted in the wall of Rudjan. She was bundled up in thick gray cloth underneath a shining steel gorget with a rise to protect her neck and an etching of a ship on the broad front plate. Her broad cheekbones and wrinkled mouth showed that she was of an older age than most keepers would have been but it was clear she could still handle a group of bandits with ease.
 
 "Well look who it is," she scoffed as the group approached her, "The traitor and her band of thieves."
 

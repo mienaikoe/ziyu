@@ -58,7 +58,7 @@ She walked along the perimeter of the area, searching for Pomri and avoiding the
 
 _What happened here?_
 
-From the corner of her eye, she spotted the eyes of an older woman staring back at her. She wore a thin ashen gray coat and hae mouth and nose was covered with a thick black cloth that was almost certainly the same material that Linyu was wearing. On her ear was a listener much like Linyu's. Melna planned her next steps carefully, checking every corner and vantage point in the area, and all the while the woman's gaze did not move.
+From the corner of her eye, she spotted the eyes of an older woman staring back at her from the shadows of an alleyway. She wore a thin ashen gray coat and hae mouth and nose was covered with a thick black cloth that was almost certainly the same material that Linyu was wearing. On her ear was a listener much like Linyu's. Melna planned her next steps carefully, checking every corner and vantage point in the area, and all the while the woman's gaze did not move.
 
 "You are looking for someone?" she asked.
 
@@ -72,17 +72,17 @@ She remained silent, staring at Melna with the eyes of a woman who wasn't used t
 
 Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and Liffa and I don't need to show my most valued traditional heirloom to prove that to some thief. Now please tell me if you know where they've gone or I shall be on my-"
 
-"Come with me," she interrupted, and turned down the alleyway they stood in. Melna was exasperated. If not for her utter lack of any other leads, she would have turned around and left. But there was something about this woman; like the crucial piece of a puzzle, there was no way forward without her.
+"Come with me," she interrupted, and turned down the wooden alley they stood in. Melna was exasperated. If not for her utter lack of any other leads, she would have turned around and left. But there was something about this woman; like the crucial piece of a puzzle, there was no way forward without her.
 
 "First of all, who are you?" Melna asked as she caught up with hae.
 
-"My name is Fanla," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than hae eyes would suggest, and her tone more soothing when unencumbered. "I was sent here to find Linyu and get hae to safety. When I found hae with the woman, they were walking into a trap at the station, but I was able to get to them in time."
+"My name is Fanla," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than hae eyes would suggest, and her tone more soothing when unencumbered. "I was sent here by Linyu's mother to find hae and get hae to safety. When I found hae and the woman, they were walking into a trap at the station, but I was able to get to them in time."
 
 "I want to see them. Where are they now?"
 
-"They've fled the city on a saffa. They're going back to Heiko."
+"They've fled the city on saffas. They're going back to Heiko."
 
-"What? No! Heiko is in grave danger."
+"What? No! Heiko is in danger."
 
 She stopped walking and Melna stepped and turned to stand in front of her.
 
@@ -94,9 +94,9 @@ She stopped walking and Melna stepped and turned to stand in front of her.
 
 "Holragi doesn't need an army," Melna said. Her voice deadened the air.
 
-"We must go after them," said Fanla. "I don't have a ship, but we can find one at the harbor."
+"We must go after them," said Fanla. "But I don't have a ship."
 
-"I've left my saffa at the southern gate. We could both ride with him. But before we go, I have some business at the conduit to attend to."
+"Pomri and Linyu probably took both saffas to keep them safe, but there may be other saffas we could convince. Before we go, I have some business at the conduit to attend to."
 
 "I'll wait for you at the gate then."
 
@@ -104,7 +104,7 @@ She stopped walking and Melna stepped and turned to stand in front of her.
 
 Fanla replied, "Take as much time as you need."
 
-They said their goodbyes and Fanla receded further down the alleyway, toward the south gate and the harbor where towering sea-rail linkages stood proudly in the sky. Melna's feet took her thinking mind back up the alley and stopped at the place where she'd first seen Fanla staring at her. She peered down the wall of the station toward the skies above Heiko, and with her mind she reached out through the dusty path that Pomri and Linyu had traveled. _Pomri knows what she's doing_, she reassured herself. Yet there was a looming dread hanging in her mind where her guilt nucleated and pervaded her thoughts. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her flushed cheek.
+They said their goodbyes and Fanla receded down the alleyway and turned onto a pier that led the south gate and the harbor where towering sea-rail linkages stood proudly in the sky. Melna went in the opposite direction, her feet taking her thinking mind back to the spot where Fanla was staring at her. She peered down the wall of the station toward the skies above Heiko, and with her mind she reached out through the dusty path that Pomri and Linyu had traveled. _Pomri knows what she's doing_, she reassured herself. Yet there was a looming dread hanging in her mind where her guilt nucleated and pervaded her thoughts. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her flushed cheek.
 
 "I will find you when this is over," she swore to them. "You will have a home to come back to. I promise."
 
