@@ -140,11 +140,15 @@ The air was still and filled with tension.
 
 "I'm desparate, Shimba."
 
-"Look, the only way you're getting back to Heiko is through a Holragi ship. Just do as I say, and this will all work out fine."
+"The only way you're getting back to Heiko is through a Holragi ship."
 
-Melna knew that such a task would be suicide, but she had no choice. She took Shimba's hand and the two walked cautiously to hae ship, looking for any keepers that might be hanging around.
+"That would be suicide. The Holragi would never let me off their ship."
 
-Once they were on the pier, Melna felt a peculiar sense of dread and worry, as if she'd left something between them unspoken. "Shimba," Melna began, "I hope you don't mind me asking, but why are you helping me? A Rudjani merchant always negotiates."
+"Look, I'm just telling you what I know. If this is really what you want to do, I can get you to the ship, but the rest will be up to you."
+
+Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone at the conduit had heard her message. Perhaps Fanla would make it to Heiko in time. Or perhaps not. The thought made her sick.
+
+She took Shimba's hand and hae face showed that thi too understood how important this was. Without a word, the two walked cautiously toward the harbor piers, looking around every corner for any keepers that might be lurking about. Melna felt a peculiar sense of dread and worry with each step, as if she'd left something between them unspoken. "Shimba," Melna began, "I hope you don't mind me asking, but why are you helping me? A Rudjani merchant always negotiates, but you haven't."
 
 Thi looked at her with surprise and an expression of earnest importance.
 
@@ -152,7 +156,7 @@ Thi looked at her with surprise and an expression of earnest importance.
 
 Hae eyes were narrowed into a scowl as if remembering something painful.
 
-"Call it atonement, if you will. Rebellious atonement."
+"Call it atonement, if you will. A rebellious atonement."
 
 Melna usually knew a truth from a lie, but this one she couldn't decipher.
 
@@ -172,37 +176,45 @@ Melna was in awe at Shimba's depth of knowledge, chocking it up to one of the ma
 
 "Crew!", Shimba addressed the crowd of around twenty. The volume of hae voice shocked Melna out of her daydream. "This is uh.." Thi leaned toward Melna, trying to remember her name.
 
-"Melka-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
+"Melka-", she hinted to hae, "Be'ka!" thi shouted confidently. "This is Be'ka."
 
 "Oy," They all greeted her. She was too paranoid about her identity to correct Shimba, but also too amused to mind.
 
-"She'll be joining us for a short time on today's voyage."
+"She'll be joining us for a trip to Heiko before Yansha."
 
-"You bring us anything?" a maman from the group shouted at her. Melna flushed red in embarassment, not knowing that she would be expected to bring something.
+"Heiko?" A maman approached the two, doing a once over of Melna with a disgusted look before thi ignored her and addressed Shimba. Thi spoke under hae breath but Melna could still hear hae.
 
-<!-- left off -->
+"Have you gone mad?" thi asked. Melna thought that her cover might have been blown, but Shimba remained unfazed, unwavering.
 
-"We've taken in enough freeloaders, Shimba. When do we start getting a cut for our generosity?"
+"We'll be fine, Panna. We will take her as far as the blockade, and then be on our way."
 
-"That's not how generosity works," thi responded.
+Thi made a strange sound with hae teeth, then looked back at Melna.
 
-A younger woman from the group rebuked hae, "Then what's the point? We all need something to live on."
+"You bring us anything?" thi demanded. Melna's cheeks flushed in embarassment, not knowing that she would be expected to bring something.
 
-Melna glanced at an exapserated Shimba, who was looking for answers as much as she was.
+"Didn't think so. People like you get everything handed to you. Our generosity doesn't come for free."
 
-Melna offered them a deal. "I... have very little with me. But I can ensure an eternal welcome to all of you amongst the people of Heiko."
+"That's not how generosity works," Shimba said.
 
-"A welcome, eh?" the skeptical woman said. "What sort of promise is that?"
+"Then what's the point?" Panna turned back to Shimba. "We all need something to live on."
+
+Melna saw the exapserated look on both of their faces, searched for some answer to quell their needs.
+
+She offered them a deal. "I... have very little with me. But I can ensure an eternal welcome to all of you amongst the people of Heiko."
+
+"A welcome, eh?" said Panna. "That supposed to impress me?"
 
 Her mind raced to find an answer, but none came to mind.
 
-"Sounds empty to me," said the maman.
+"Empty. See? This Heikoi brings nothing but problems."
 
-Shimba spoke up, "Enough. You'll barely notice her. She'll be in stowage."
+Shimba spoke up, "Enough. You'll barely notice her. She'll be in stowage the whole time."
 
-"With the rest of the garbage," said the woman.
+"With the rest of the garbage," said Panna. Thi walked away in silent concession.
 
-Shimba didn't respond but led Melna past the crew. She shared a glance with a man who had been sitting in the back. He didn't recognize her, but she could never forget the face of the man who stormed out of the conduit, and of those blue eyes peering from beneath the satchel. She would maintain her vigilance.
+Melna followed Shimba past the crew, felt the judgments that each person transmitted through their eyes, and knew this was no safe place. She would maintain her vigilance.
+
+<!-- left off -->
 
 ---
 
