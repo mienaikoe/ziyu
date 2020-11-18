@@ -4,7 +4,7 @@ Melna's fervid limbs slipped through the crowds of Rudjani who remained blissful
 
 She was cautious as she approached the gate. There weren't any signs of a trap, but the quiet and the absence of merchants gave her pause.
 
-She called from the inside, "Fanla...", but there was no response nor sign of anyone. From the direction of the bridge, the sound of footsteps and a coy man's voice broke the silence. Melna hid in between gates, sitting casually against the wall so as to avoid suspicion, but listening intently to the voices on the other side.
+She called from the inside, "Fanla...", but there was no response nor sign of anyone. She glanced at a strange wooden object on the ground near the gate and found Fanla's listener, placed gently on the ground, out of the way of passing feet. From the direction of the bridge, the sound of footsteps and a coy man's voice broke the silence. Melna hid in between gates, sitting casually against the wall so as to avoid suspicion, but listening intently to the voices on the other side.
 
 "You're the 'sworn keeper' of the south gate?" he asked.
 
@@ -212,17 +212,19 @@ Shimba spoke up, "Enough. You'll barely notice her. She'll be in stowage the who
 
 "With the rest of the garbage," said Panna. Thi walked away in silent concession.
 
-Melna followed Shimba past the crew, felt the judgments that each person transmitted through their eyes, and knew this was no safe place. She would maintain her vigilance.
-
-<!-- left off -->
+Melna followed Shimba past the crew, felt the glare of judgment from every person there, and knew that this was no safe place. She would maintain her vigilance.
 
 ---
 
-Melna found a clearing to sit in amongst the tarred crates and oiled bags in stowage. The room was dark save for a few round portholes, but she resolved to endure the journey as it would only be for a short time. _A short time_, she repeated to herself to convince her reluctant mind. There were countless muffles of footsteps, shouts, and machinery coming alive above as they began to push off from the dock and toward the rails to Heiko.
+Melna found a clearing amongst the tarred crates and oiled bags in the stowage area below deck. The room was dark save for a few round glass windows, but Shimba had promised there was a lantern somewhere, that she only had to look. _A short time_, she repeated to herself to convince her reluctant mind.
 
-Her mind wandered to Kipnu, remembering how fearless he was through his sentencing and even in the stories that Linyu told her about him. And Liffa who she heard from the furthest reaches of the void, still living breath by breath. She clutched her pendant, and imagined they could share some of their courage through it.
+Through the muffle of a wooden celing came the sound of innumerable footsteps; of people shouting, and machinery clanking; the hidden psyche of a team coming alive as they began to push off from the dock. They cleared the harbor and a subtle scraping sound filled the air outside as the engine below her whirred alive, vibrating the whole ship with its starting. They were on the path toward Heiko.
 
-Through the porthole, she eyed the bridge over the delta and the faint glimmer of the train rail in the distance. Her mind wandered to Laen, Pomri, Linyu, and it sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. She focused on the listener, once again searching for answers in the static, but it was just static, and she was just alone in the darkness. At least, she believed that she was.
+Melna's mind wandered to Kipnu, remembering how fearless he was through his sentencing and even in the stories that Linyu told her about him. And Liffa who she had heard from the furthest reaches of the void, still living breath by breath. She removed Fanla's listener from her satchel and lifted it onto her ear, once again searching for some sign of Liffa, but there was nothing but static. Her fingers moved to her pendant instead, and imagined some otherworldly strength hidden inside that could be conjured from its curves and niches.
+
+She moved to a window and eyed the bridge over the wetland delta, still proudly stretching across the wetland as the idle train rail rested in the distance. Her mind wandered to Fanla and her soothing voice, to Pomri and Linyu and Laen, and she sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. And now she was alone in the darkness. At least, she believed that she was.
+
+<!-- left off -->
 
 "Who are you?" a quiet voice pierced the silence.
 

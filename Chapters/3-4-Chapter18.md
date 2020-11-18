@@ -76,7 +76,7 @@ Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and 
 
 "First of all, who are you?" Melna asked as she caught up with hae.
 
-"My name is Fanla," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than hae eyes would suggest, and her tone more soothing when unencumbered. "I was sent here by Linyu's mother to find hae and get hae to safety. When I found hae and the woman, they were walking into a trap at the station, but I was able to get to them in time."
+"My name is Fanla," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than hae eyes would suggest, and her tone more soothing when unencumbered. "I was sent here by Linyu's mother to find hae and get hae to safety. When I finally spotted hae and the woman, they were walking into a trap at the station, but I was able to get to them in time."
 
 "I want to see them. Where are they now?"
 
@@ -198,7 +198,7 @@ What he didn't know is that she had traced the rails of the conduit and discover
 
 A man's voice came on the line in anger, "Of course she knows! The whole world knows! Why couldn't you keep your damn mouth shut?!"
 
-Tunbe, the operator, was silent.
+Tunbe was silent.
 
 "Where is she now?"
 
@@ -212,7 +212,7 @@ Tunbe, the operator, was silent.
 
 "It shall be done."
 
-"Žah, I've also heard word about a kaln who can hear our radio. Thi escaped from Ulukoma through the chaos."
+"Žah... if I may, I've also heard word about a kaln who can hear our radio. Thi escaped from Ulukoma through the chaos."
 
 _Linyu_
 
