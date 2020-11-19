@@ -94,15 +94,15 @@ She stopped walking and Melna stepped and turned to stand in front of her.
 
 "Holragi doesn't need an army," Melna said. Her voice deadened the air.
 
-"We must go after them," said Fanla. "But I don't have a ship."
+"We must go after them," said Fanla. "They can't have gone far."
 
-"Pomri and Linyu probably took both saffas to keep them safe, but there may be other saffas we could convince. Before we go, I have some business at the conduit to attend to."
+"Pomri and Linyu probably took both of our saffas to keep them safe, but there may be other saffas we could convince. Before we go, I have some business at the conduit to attend to."
 
 "I'll wait for you at the gate then."
 
-"I won't be long."
+"No. Go on without me. You need to catch up with them."
 
-Fanla replied, "Take as much time as you need."
+Fanla replied, "I understand."
 
 They said their goodbyes and Fanla receded down the alleyway and turned onto a pier that led the south gate and the harbor where towering sea-rail linkages stood proudly in the sky. Melna went in the opposite direction, her feet taking her thinking mind back to the spot where Fanla was staring at her. She peered down the wall of the station toward the skies above Heiko, and with her mind she reached out through the dusty path that Pomri and Linyu had traveled. _Pomri knows what she's doing_, she reassured herself. Yet there was a looming dread hanging in her mind where her guilt nucleated and pervaded her thoughts. Perhaps a more clever leader could have seen these dangers earlier; could have persuaded the senate not to give Holrag such power; could have fought for Liffa to stay here. She stopped herself when small droplets leapt out of her flushed cheek.
 

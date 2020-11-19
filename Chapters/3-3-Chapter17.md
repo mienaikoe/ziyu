@@ -24,11 +24,11 @@ A lull in the conversation formed while Melna watched their eyes turn toward her
 
 "A password?"
 
-"Oh yes. Every city has them ever since The Great Shanze infiltrated the gates of Yansha."
+"Oh yes. Every city has them ever since The Band of Thieves infiltrated the gates of Yansha."
 
-Melna paused, trying to understand such a ridiculous requirement. _Since when was there a password to enter Rudjan? And who is The Great Shanze? Why did nobody brief me on it?!_. She thought deeply for a long and awkward moment, pondering what the password could be, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then boisterous laughing from the two.
+Melna paused, trying to understand such a ridiculous requirement. _Since when was there a password to enter Rudjan? And who is The Band of Thieves? Why did nobody brief me on them?!_. She thought deeply for a long and awkward moment, pondering what the password could be, when all of a sudden she heard a chuckle coming from Pomri, and then Bavle, and then boisterous laughing from the two.
 
-Pomri exclaimed, "Oi! A password? The Great Shanze? Really, Melna?"
+Pomri exclaimed, "Oi! A password? The Band of Thieves? Really, Melna?"
 
 Bavle joined her, "Are all your fidelants so dull?"
 

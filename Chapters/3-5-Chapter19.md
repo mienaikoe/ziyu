@@ -12,15 +12,15 @@ Bavle responded with a tone of defiance. "My oath is to the land of Rudjan, not 
 
 "The land," he scoffed an Melna imagined a smirk, "Let's see if the land can save you in prison."
 
-"That woman wasn't hurting anyone, she just wanted to go home."
+"Those women weren't hurting anyone, they just wanted to go home."
 
 "That's not for you to decide. Soldiers, you know what to do."
 
-_Neither fear of death nor promise of reward_, Melna recalled Bavle's pride in that declaration and a wave of dread washed over her. An unsheathing sword punctured the air, followed by two others, and Melna got up to look. Bavle was in a defensive stance with her sword glistening in the reddened Ara light. The way she stood, it was as if she'd fought a thousand battles and sparred with ten thousand more.
+_Neither fear of death nor promise of reward_, Melna recalled Bavle's pride in that declaration and a wave of dread washed over her. The sound of an unsheathing sword punctured the air, followed by two others, and Melna got up to look. Bavle was in a defensive stance with her sword glistening in the reddened Ara light. The way she stood, it was as if she'd fought a thousand battles and practiced ten thousand more.
 
 The man scoffed at her again. "You think you can threaten me with that decorative stick you call a sword? It's duller than that old head of yours."
 
-"I could take you down with my bare hands but a stick would be more fun."
+Bavle smirked. "I could take you down with my bare hands but a stick would be more fun."
 
 The three jumped into their match, and Melna looked for a lever or a rope, hoping there was more than one way to move the gate. She found no switch, but took up a few chunks of brick that had broken off from the wall and waited for an opening. Bavle was unfettered by the soldiers' advances, dodging each of their attacks with a swift and steady bend of her body. It was apparent that her age had no bearing on her acuity.
 
@@ -34,33 +34,41 @@ _A ship will have to do_, she thought.
 
 She rounded a corner of the wall, temporarily putting her out of site of her pursuers, and stumbled onto a small dock that ran parallel to the harbor. A small island with a garden interrupted the dock about ten paces ahead, so she quietly slipped herself into the water and swam toward that shoreline. Through the water, she could see the passing of four feet between the wooden planks. She stopped just short of the island, still hidden by the pier above her, and watched them from afar.
 
-One of the keepers was addressing a maman. "She came right through here. How could you miss her?"
+One had the demeanor of a hard-worker, the portrait of a man whose zealotry for the ideals of justice kept him trapped in his job. He had an angry mumbling tone to match as he addressed a maman who stood in the garden.
 
-"Oh, I wasn't looking," thi told them with a confident tone, neither defensive nor pleading.
+"Speak, maman! Where did she go?"
 
-"A woman in fine Heikoan dress? You don't miss someone like that."
+"Who?"
 
-"All sorts of people come through here, I don't-"
+He was held back by his calmer partner, a taller woman of cleaner look and sharper thought.
 
-"This isn't just anyone. She could be a spy. You better not be a sympathizer."
+"She came right through here. You couldn't have missed her."
 
-"Honestly, you're pushing me to my limit spouting all these accusations."
+"I wasn't looking," thi told them with a confident tone, neither defensive nor pleading.
 
-"Just tell us where she went and you won't have to deal with me anymore."
+"She's a woman in fine Heikoan dress. You don't miss someone like that."
 
-She grasped the maman's hair but her partner pulled her away.
+"All sorts of people come through here, I wouldn't have-"
 
-"This is going nowhere," he said. He had the tone and demeanor of an overworked keeper: a mumbled voice and swollen hydroderm under his eyes.
+The man. "This isn't just anyone. She could be a spy. You better not be a sympathizer!"
 
-"I can't be the only one who saw her come this way," she argued, "And I don't take any of that kanosin shit."
+He charged in and grasped the maman's hair, but the other pulled him away.
 
-"Maybe you did. Maybe you didn't. Either way, it's a dead end."
+"Just tell us where she went," she said, "and you won't have to deal with us anymore."
 
-He started walking back to the gate while she yelled at his back, "Are you quitting? What if she's that fidelant we've been looking for?"
+The maman sighed as if annoyed by these petulant children bothering hae. "Perhaps you'd like to bring these baseless accusations to the Clerk of Trade? Surely he'd help you more than I."
 
-She sulked in disbelief, staring back at him as the maman she tormented stood behind her, holding hae head in pain. With a sneer, she took off toward the harbor, leaving the maman to go back to hae duties.
+The keeper paused and measured the weight of hae challenge.
 
-"It's clear now," thi said, and Melna paused as if to wonder if thi was talking to her. Slowly, she moved away from the dock and approached the maman with caution.
+"This is going nowhere," said the impatient keeper. "I can't be the only one who saw her come this way. And I don't take any of that kanosin shit."
+
+"Maybe you did. Maybe you didn't," she said. "Either way, it's a dead end."
+
+She started walking back to the gate while her partner yelled at her, "Are you quitting? What if she's that fidelant we've been looking for?"
+
+He sulked in disbelief, as the maman he tormented stood behind him, holding hae head in pain. With a sneer, he took off toward the harbor, leaving the maman to the garden.
+
+"It's clear now," thi said to the air, and Melna paused as if to wonder if thi was talking to her. Slowly, she moved away from the dock and approached the maman with caution.
 
 She saw hae holding hae head. "Hey, are you ok?" she asked, reaching her hand out to the maman's shoulder. Thi looked up at her with a face that had long internalized the folly of trust. But hae mouth still mustered a smile of gratitude.
 
@@ -110,41 +118,43 @@ Melna hesitated to introduced herself, but decided it was in her best interest t
 
 "Yes."
 
-"No. It's too dangerous," thi said, seeming uncomfortable for the first time.
+"But we're going to Yansha."
 
-Melna pleaded to hae, "I would be immensely indebted to you."
+"I understand, but I hoped that you might take a desparate fidelant to Heiko on the way."
 
-"And you will die before you can repay it."
-
-She leaned in close and took hae hands in her own.
+"No. It's too dangerous," thi said, seeming uncomfortable for the first time. Melna figured that thi didn't want to let on what she already knew.
 
 "I know the danger that lies ahead. Whatever you think I'm blind to, I assure you, I know."
 
 "Then why do you insist on going back?"
 
-"To save my people."
+"To save my people." She kneeled close and took hae hands in her own, pleading to hae for help. "I would be immensely indebted to you."
 
-Thi looked around, haeself looking for some keeper or spy lying in wait.
+"And you will die before you can repay it."
+
+"I assure you, I can–"
+
+But the maman shushed her and looked around for some keeper or spy lying in wait.
 
 "You're asking me to do something impossible," thi said. "The whole peninsula will be blockaded. No one can leave or enter."
 
-"Just take me halfway then. I can make up the rest on foot."
+"Blockaded?" Melna was incredulous. This was no longer just a simple evacuation. "Just take me halfway then. I can make up the rest on foot."
 
-"Do you understand what a blockade is?"
-
-"I'll find a way throught."
+"Do you understand what a blockade is? A wall of soldiers and ships stands between you and your people, and they would love nothing more than to turn your death into a show of force."
 
 The air was still and filled with tension.
 
-"I have a better idea but you probably won't like it."
+Shimba said, "I have a better idea but you probably won't like it."
 
 "I'm desparate, Shimba."
 
-"The only way you're getting back to Heiko is through a Holragi ship."
+"Don't go to Heiko. Go to Shaki and use your conduit there to speak to Heiko."
 
-"That would be suicide. The Holragi would never let me off their ship."
+  <!-- The only way you're getting back to Heiko is through a Holragi ship." -->
 
-"Look, I'm just telling you what I know. If this is really what you want to do, I can get you to the ship, but the rest will be up to you."
+<!-- "That would be suicide. The Holragi would never let me off their ship." -->
+
+<!-- "Look, I'm just telling you what I know. If this is really what you want to do, I can get you to the ship, but the rest will be up to you." -->
 
 Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone at the conduit had heard her message. Perhaps Fanla would make it to Heiko in time. Or perhaps not. The thought made her sick.
 
@@ -225,6 +235,13 @@ Melna's mind wandered to Kipnu, remembering how fearless he was through his sent
 She moved to a window and eyed the bridge over the wetland delta, still proudly stretching across the wetland as the idle train rail rested in the distance. Her mind wandered to Fanla and her soothing voice, to Pomri and Linyu and Laen, and she sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. And now she was alone in the darkness. At least, she believed that she was.
 
 <!-- left off -->
+
+<!--
+
+Annu is in stowage
+Ramne used to be above deck
+
+ -->
 
 "Who are you?" a quiet voice pierced the silence.
 
