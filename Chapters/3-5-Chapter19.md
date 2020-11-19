@@ -156,7 +156,9 @@ Shimba said, "I have a better idea but you probably won't like it."
 
 <!-- "Look, I'm just telling you what I know. If this is really what you want to do, I can get you to the ship, but the rest will be up to you." -->
 
-Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone at the conduit had heard her message. Perhaps Fanla would make it to Heiko in time. Or perhaps not. The thought made her sick.
+Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone in the Heiko intelligence network knew of the blockade. Perhaps Pomri and Linyu and Fanla would make it to Heiko in time to prepare everyone. Or perhaps not. The thought made her sick.
+
+<!-- left of -->
 
 She took Shimba's hand and hae face showed that thi too understood how important this was. Without a word, the two walked cautiously toward the harbor piers, looking around every corner for any keepers that might be lurking about. Melna felt a peculiar sense of dread and worry with each step, as if she'd left something between them unspoken. "Shimba," Melna began, "I hope you don't mind me asking, but why are you helping me? A Rudjani merchant always negotiates, but you haven't."
 
