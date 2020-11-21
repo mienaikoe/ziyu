@@ -128,13 +128,23 @@ Melna hesitated to introduced herself, but decided it was in her best interest t
 
 "Then why do you insist on going back?"
 
-"To save my people." She kneeled close and took hae hands in her own, pleading to hae for help. "I would be immensely indebted to you."
+"To save my people."
+
+"You can save your people from a safe distance."
+
+"They would dismiss me as a coward before I could say anything."
+
+"That's their problem."
+
+"No, it's mine too. I've dedicated my life to the problems of the Heikoi. They've pledged their fidelity to me, and I to them. If it takes my life to win back their trust and save theirs, then I would gladly make that exchange."
+
+She kneeled close and took hae hands in her own, pleading to hae for help. "Please take me to Heiko. I would be immensely indebted to you."
 
 "And you will die before you can repay it."
 
-"I assure you, I can–"
+"I assure you, you will be paid without regard to my–"
 
-But the maman shushed her and looked around for some keeper or spy lying in wait.
+The maman shushed her and looked around for some keeper or spy lying in wait.
 
 "You're asking me to do something impossible," thi said. "The whole peninsula will be blockaded. No one can leave or enter."
 
@@ -142,25 +152,11 @@ But the maman shushed her and looked around for some keeper or spy lying in wait
 
 "Do you understand what a blockade is? A wall of soldiers and ships stands between you and your people, and they would love nothing more than to turn your death into a show of force."
 
-The air was still and filled with tension.
+The air was still and filled with tension. Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone in the Heiko intelligence network knew of the blockade. Perhaps Pomri and Linyu and Fanla would make it to Heiko in time to prepare everyone. Or perhaps not. The thought turned her stomach.
 
-Shimba said, "I have a better idea but you probably won't like it."
+"Alright I'll take you," said Shimba with some reluctance. Melna's face lit up with excitement. "I'll find some way through the blockade, but for now keep your head down and your wits about you."
 
-"I'm desparate, Shimba."
-
-"Don't go to Heiko. Go to Shaki and use your conduit there to speak to Heiko."
-
-  <!-- The only way you're getting back to Heiko is through a Holragi ship." -->
-
-<!-- "That would be suicide. The Holragi would never let me off their ship." -->
-
-<!-- "Look, I'm just telling you what I know. If this is really what you want to do, I can get you to the ship, but the rest will be up to you." -->
-
-Melna looked through her mind at all of the imaginings of her own end, and, for just a moment, thought of her own self-preservation over the safety of her people. Perhaps someone in the Heiko intelligence network knew of the blockade. Perhaps Pomri and Linyu and Fanla would make it to Heiko in time to prepare everyone. Or perhaps not. The thought made her sick.
-
-<!-- left of -->
-
-She took Shimba's hand and hae face showed that thi too understood how important this was. Without a word, the two walked cautiously toward the harbor piers, looking around every corner for any keepers that might be lurking about. Melna felt a peculiar sense of dread and worry with each step, as if she'd left something between them unspoken. "Shimba," Melna began, "I hope you don't mind me asking, but why are you helping me? A Rudjani merchant always negotiates, but you haven't."
+Melna took Shimba's hand and hae face showed that thi too understood how important this was. Without a word, the two walked cautiously toward the harbor piers, looking around every corner for any keepers that might be lurking about. Melna felt a peculiar sense of dread and worry with each step, as if she'd left something between them unspoken. "Shimba," Melna began, "I hope you don't mind me asking, but why are you helping me? A Rudjani merchant always negotiates, but you haven't."
 
 Thi looked at her with surprise and an expression of earnest importance.
 
@@ -168,7 +164,7 @@ Thi looked at her with surprise and an expression of earnest importance.
 
 Hae eyes were narrowed into a scowl as if remembering something painful.
 
-"Call it atonement, if you will. A rebellious atonement."
+"Call it atonement, if you will. Of a rebellious kind."
 
 Melna usually knew a truth from a lie, but this one she couldn't decipher.
 
@@ -200,7 +196,7 @@ Melna was in awe at Shimba's depth of knowledge, chocking it up to one of the ma
 
 "We'll be fine, Panna. We will take her as far as the blockade, and then be on our way."
 
-Thi made a strange sound with hae teeth, then looked back at Melna.
+Thi made a strange sound with the tips of hae tongue, then looked back at Melna.
 
 "You bring us anything?" thi demanded. Melna's cheeks flushed in embarassment, not knowing that she would be expected to bring something.
 
@@ -226,8 +222,6 @@ Shimba spoke up, "Enough. You'll barely notice her. She'll be in stowage the who
 
 Melna followed Shimba past the crew, felt the glare of judgment from every person there, and knew that this was no safe place. She would maintain her vigilance.
 
----
-
 Melna found a clearing amongst the tarred crates and oiled bags in the stowage area below deck. The room was dark save for a few round glass windows, but Shimba had promised there was a lantern somewhere, that she only had to look. _A short time_, she repeated to herself to convince her reluctant mind.
 
 Through the muffle of a wooden celing came the sound of innumerable footsteps; of people shouting, and machinery clanking; the hidden psyche of a team coming alive as they began to push off from the dock. They cleared the harbor and a subtle scraping sound filled the air outside as the engine below her whirred alive, vibrating the whole ship with its starting. They were on the path toward Heiko.
@@ -236,24 +230,28 @@ Melna's mind wandered to Kipnu, remembering how fearless he was through his sent
 
 She moved to a window and eyed the bridge over the wetland delta, still proudly stretching across the wetland as the idle train rail rested in the distance. Her mind wandered to Fanla and her soothing voice, to Pomri and Linyu and Laen, and she sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. And now she was alone in the darkness. At least, she believed that she was.
 
-<!-- left off -->
+From the corner of her eye, she saw the slightest movement of a satchel that was haphazardly placed in the corner of two crates. It was strangely alive – not the movement you'd expect of something shifting with the ship but in spite of it. She got up and took careful steps to walk toward it.
 
 <!--
 
 Annu is in stowage
-Ramne used to be above deck
+Ramne used to be above deck, Ramne is now in the engine room,
 
- -->
+-->
 
 "Who are you?" a quiet voice pierced the silence.
 
-Melna was startled to her feet at the invisible voice. She looked around but saw neither stirring nor looking.
+Melna was startled by the invisible voice coming from the satchel.
 
-"Who was that?" she asked, still scanning the room.
+"Are you hiding?" she asked, still eyeing the satchel. It began to rustle and a pair of illuminated eyes emerged from the top and stared at her knees.
 
-She saw a satchel rustling in the corner, and from it a pair of light blue eyes emerged staring at her.
+"Linyu?" she said, but the figure didn't respond, and slowly the features of a newly adult maman became more obvious.
 
-"Linyu?" she asked, and the voice let out a gasp, as if knowing the name. Melna realized they were both afraid of saying anything, but she imagined that hiding yourself in a satchel in the dark was a much more vulnerable state of mind, so she went first.
+"Where did you get hae eyes?" Melna asked in a kinder voice, but still thi didn't respond.
+
+<!-- left off -->
+
+Melna realized they were both afraid of saying anything, but she imagined that hiding in a satchel in the dark was a much more vulnerable state of mind, so she went first.
 
 "My name is Melna. I met a kaln named Linyu last evening with eyes quite similar to yours."
 
