@@ -14,11 +14,11 @@ Okay, this is a dream sequence
 -
  -->
 
-_Thump. Thump. Thump._
+_Th-Thump. Th-Thump. Th-Thump._
 
-The sound of her own pulse filled her head. She found herself standing in the dark upon some kind of metallic shell and staring out into the darkness around her, filled with little dots of light. She took a step and the ground pulled its weight toward her as if in anticipation. Ahead of her, rays of light danced where the ground gave way.
+The sound of her own pulses filled her head. She found herself standing in the dark upon some kind of metallic shell and staring out into the darkness around her, filled with little dots of light. She took a step and the ground pulled its weight toward her as if in anticipation. Ahead of her, rays of light danced where the ground gave way.
 
-_Thump. Thump. Thump._
+_Th-Thump. Th-Thump. Th-Thump._
 
 A warm breeze sighed across her face and hair as she peered over the precipice and into the light. It was Ara, only brighter and more magnificent. She clambered over the edge and set her foot on the bottom of that metal shell. A familiar face took her hand to help her back up.
 
@@ -28,35 +28,43 @@ A warm breeze sighed across her face and hair as she peered over the precipice a
 
 "You're in great danger, Melna."
 
+Her mouth and lungs moved through no action of her own. "You don't belong here," she said to herself.
+
+"What is this?" she asked him, panicked, but he took her hand and held her close. He pointed at a shining speck of light drifting at their feet.
+
+Liffa's voice cried out all around her, "Kipnu... Melna..."
+
+She looked up to see hae sitting in the air where Kipnu had been before, but thi couldn't see her. She tried to reach out to hae, but her hand hit an invisible wall that kept them separate.
+
+"I'm here! I'm here!" she cried out to hae, banging on the invisible wall, but Liffa was unreachable.
+
+"I don't know if I'll make it," thi whispered to the air, "I should have listened to you, Melna."
+
+"No, no, you will make it Liffa. Don't talk like that."
+
+"I feel..." thi hesitated as her image began to fade into the light. Melna looked for hae face but it was empty.
+
+"warm."
+
+Then the light around them began to brighten and time began to stutter and skip as everything became to melt away in the white light.
+
+_Th-Thump. Th-Thump. Th-Thump._
+
+She heard her nather's voice, "Get out of there! Out!"
+
+"Just leave her. She can't stay in there forever."
+
+"We're going to be late. Come out of there, Melna."
+
+"You're making your nather angry, now OUT!"
+
+_Th-Thump. Th-Thump. Th-Thump._
+
+"OUT!"
+
+She was jolted awake by a hard tug on her left arm and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch. She searched for her bearings and recognized that downward was behind her, and she kept her back planted against the damp floor. _I have that at least._
+
 <!-- left off -->
-
-_Thump_
-
-somewhere she shouldn't be.
-
-_"Get out of there! Out!"_
-
-_Thump_
-
-_"Melna, you can't hide. I know you're in there."_
-
-There was a mumbling between them. A fight, a bitterness. It showed up in her from time to time when she was in a particularly self-hating mood.
-
-_"Just leave her. She can't stay in there forever."_
-
-_"Did I ask you? Get Out! Melna!"_
-
-_Who are you?_
-
-_"Out!"_
-
-"Who are you?!"
-
-_"OUT!"_
-
-<!-- end weird dream state -->
-
-Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch. She searched for her bearings and recognized that downward was behind her, and she kept her back planted against the damp floor. _I have that at least._
 
 She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. _Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship._
 
