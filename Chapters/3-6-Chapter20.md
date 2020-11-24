@@ -3,18 +3,32 @@
 <!--
 Well uhh.. Melna has a higher price being sold to Fajro so she gets to live for now.
 Rape scene? idk that's a lot.
-this could be where Ramne threatens to rape, but dies
+this could be where Ramne threatens to rape?
+
+Okay, this is a dream sequence
+- Meets Kipnu
+- Liffa stands far away
+- Dialogue
+- "We'll be together soon"
+- "Liffa has something else to do"
+-
  -->
 
-_Thump._
+_Thump. Thump. Thump._
 
-She repeated the same word. _"Out." "Out."_
+The sound of her own pulse filled her head. She found herself standing in the dark upon some kind of metallic shell and staring out into the darkness around her, filled with little dots of light. She took a step and the ground pulled its weight toward her as if in anticipation. Ahead of her, rays of light danced where the ground gave way.
 
-_Thump_
+_Thump. Thump. Thump._
 
-_"Out"_
+A warm breeze sighed across her face and hair as she peered over the precipice and into the light. It was Ara, only brighter and more magnificent. She clambered over the edge and set her foot on the bottom of that metal shell. A familiar face took her hand to help her back up.
 
-A warm breeze brushed her shoulder and exhaled a sigh across her skin. She was
+"Melna. It's been a while."
+
+"Kipnu? Is that really you?"
+
+"You're in great danger, Melna."
+
+<!-- left off -->
 
 _Thump_
 
@@ -39,6 +53,8 @@ _"Out!"_
 "Who are you?!"
 
 _"OUT!"_
+
+<!-- end weird dream state -->
 
 Her consciousness frothed back into the back of her mind, and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch. She searched for her bearings and recognized that downward was behind her, and she kept her back planted against the damp floor. _I have that at least._
 
