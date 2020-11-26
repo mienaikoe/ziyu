@@ -46,39 +46,39 @@ She looked up to see hae sitting in the air where Kipnu had been before, but thi
 
 "warm."
 
-Then the light around them began to brighten and time began to stutter and skip as everything became to melt away in the white light.
+Then the light around them began to brighten and time began to stutter and skip as everything melted away in the white light. She saw herself a child, insignificant in this infinite abyss.
 
 _Th-Thump. Th-Thump. Th-Thump._
 
-She heard her nather's voice, "Get out of there! Out!"
+"Melna, what are you doing? Get out of there."
 
 "Just leave her. She can't stay in there forever."
 
-"We're going to be late. Come out of there, Melna."
+_My parents?_
 
-"You're making your nather angry, now OUT!"
+"We're going to be late. Come out now."
+
+"Melna, you're making your nather angry. OUT!"
 
 _Th-Thump. Th-Thump. Th-Thump._
 
 "OUT!"
 
-She was jolted awake by a hard tug on her left arm and opened her eyes narrowly with nothing to see but darkness. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch. She searched for her bearings and recognized that downward was behind her, and she kept her back planted against the damp floor. _I have that at least._
+She was jolted awake by a hard tug on her left arm. A cold tingling sensation filled her body like billions of tiny electric currents as she slowly regained her sense of touch, of balance, of reality. She searched for her bearings and recognized that downward was behind her, with her back planted against the damp floor. _I'm not dead._
 
-<!-- left off -->
+She perused the abilities that she did still have. Her arms wouldn't respond to her commands, but she could feel them just fine. She hoped that it might be temporary. She could feel some kind of vibration through the floor and two ringing noises in her ears: one was of her own physiology, a reminder that something terrible had happened to her. But the other was much lower: the whir of a tireless machine and the wet of the ocean. _A ship. I'm on a ship._
 
-She perused the senses that she did still have. Her arms didn't move, but she could feel her fingers, promising that her condition might be temporary, and her ears could pick up a consistent low thuds through the floor, though a neverending bell of injury served as a reminder that something terrible had happened to her. _Where is here again? It's dark. And. The floor is moving. Laen and then. Shinna. A ship. I'm on a ship._
+Faintly, she could hear some rustling of another and then she remembered Ramne, the rage on his face so brightly lit by that maman's eyes as he spoked with an inhuman rage. A wave of nauseous fear shook the rest of her body awake and she sprang her head up and observed her surroundings. She found her shirt had been torn from her body and her arms and legs were loosely tied with a strong kelp rope to two wooden pillars on either side of her. With her eyes opened narrowly and her faculties not fully returned, she peered into that hazy darkness and found the faint glimmer of a window through which only a sliver of the sky could be seen.
 
-Faintly, she could hear some rustling of another in the room and then she remembered Ramne, the rage on his face so brightly lit by that maman's eyes, and a wave of nauseous fear shook the rest of her body awake. She sprang her head up, and observed her surroundings. She found her shirt had been torn from her body and her arms and legs were loosely tied with a strong kelp rope to two wooden pillars on either side. Her eyes were open wide but still nothing could be seen in that darkness. Behind her, she saw the faint glimmer of a porthole through which only a sliver of Ara's sky could be seen.
-
-"You're finally awake," Ramne's unmistakeable voice broke the darkness, and she turned around to face its direction.
+"You're finally awake," Ramne's unmistakeable voice broke the darkness, and she looked back to face him.
 
 He continued, "Had me worried there. I need you alive, you know."
 
-"Choke on your own dick."
+"Fuck. You."
 
-He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled fidelant from Heiko. Would have been more gentle when I caught your leg."
+He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled fidelant from Heiko. Would have been a bit more considerate when I stopped you on that stairwell."
 
-"Maybe your consideration can think to leave me the fuck alone next time."
+"Fuck. Your consideration."
 
 "Come now. Traveling alone, stuck in a musty old stow with a dead maman. Girl like you could use some company."
 
@@ -86,45 +86,43 @@ He chuckled, "Still alive, and just as profitable. Nobody told me you were the f
 
 "Oh I know I can be a little rude for people, but where you're going, you'll wish you were back here with me."
 
-She stayed quiet as he made a rustling noise and then his footsteps traveled toward her in slow knocks of his boots against the creaky floor and came to rest to her left side. She glanced around for a pair of blue eyes, but didn't see any sign of the maman. A faint whirring sound of a firestarter being warmed startled her and an oil lamp lit up, showing Ramne's smug face and lustful eyes staring at hers. There is no other displeasure quite like being the prey of another's eye. She felt it at Heiko station: How the two looked at her with a hungry gaze, eyeing her bag and her saffa. She felt it in Fajro's presence, his face a thin mask to hide his lustful thoughts. And now she knew it most here, in the presence of a homocidal lunatic.
+She stayed quiet as he made a rustling noise and his boots knocked against the creaky floor. Step by step, he moved slowly toward her, and came to rest at her side. She glanced around for a pair of blue eyes, but didn't see any sign of the maman. A faint whirring sound of a firestarter being warmed startled her and an oil lamp lit up, showing Ramne's smug face and lustful eyes staring at hers. There is no other displeasure quite like being the prey of another's eye. She felt it at Heiko station: How the two looked at her with a hungry gaze, eyeing her satchel and her saffa. She felt it in Fajro's presence, his face a thin mask to hide his lustful thoughts. And now she knew it most here, in the presence of a homocidal lunatic.
 
-He said, "Holrag is looking for you, you know. And they're promising a hefty reward."
-
-_Why are they looking for me?_
+"Holrag is looking for you, you know," he said. "And they're promising a hefty reward."
 
 "What makes you think they'll actually pay it?"
 
-"They need me. I keep their masses... fed. That launch rail didn't build itself."
+"They need me. I keep their people... fed. A civilization like that doesn't build itself."
 
-"They keep slaves and you are responsible."
+"You keep them enslaved."
 
 "Hey, if kanosin is so bad they should stop begging me for more."
 
-"You know you would be the first to die if they would ever stop."
+"You would be the first to die if they could."
 
 "But they won't," he laughed, "They won't, and that's the beauty of it."
 
-He tilted the lamp over the ground between them and watched the flames crawl down the stream of oil and onto a growing pool on the floor. The flames licked her side with twinges of pain as they inched ever closer, but she tried her best to stay quiet and focus on escaping.
+He tilted the lamp over the ground between them and watched the flames crawl down the stream of oil and onto a growing pool on the floor. The smell of anomin filled the air as flames bit at her side, inching ever closer. She tried her best to think clearly and focus on escaping.
 
-"The senate. It doesn't have any real power, does it?" he spoke softly. "The people give you the power to choose and you use it to enact the will of whichever merchant has the most power over you."
+"The senate. It doesn't have any real power, does it?" he spoke softly. "The people give you the power to choose and you use that power to enact the will of whoever has the most power over you."
 
-He poured out a little more and the flames began to singe her skin a little. She began to let out a whimper but caught herself to avoid giving him the satisfaction.
+He poured out a little more and the flames began to singe her skin a little. She let out an agitated whimper but caught herself to avoid giving him the satisfaction he so desperately craved.
 
-"But you don't have merchants in Heiko. No promise of riches can buy your conscious thoughts, only the people of Heiko have that privilege."
+"But you don't have money in Heiko. No promise of riches can buy your favor, only the people of Heiko have that privilege."
 
 He leaned in closer and pulled Melna's face to look at him in the eye.
 
-"You don't know my power yet. It goes beyond money, beyond politics. Beyond even the obscura. But as your people become desparate and hungry and lifeless, you will turn to me. As will everyone else on this planet."
+"You don't know my power yet. It goes beyond money, beyond politics. Beyond even the obscura. As the last of your people become desparate and hungry and lifeless fleeing from their home, hiding from the Holragi, they _will_ turn to me. As will everyone else on this planet."
 
-He moved the lamp over her chest.
+He moved the lamp over her, taking some perverted satisfaction in watching her suffer.
 
-"You will bow to me."
+"Feel my power."
 
-He poured the hot oil onto her chest and it began to boil the water in her hydroderm and singe the flesh as it slid down her abdomen. The pain was unberable and she let out shrieks of pain that turned to agony as the flames consumed the oil. Her skin hissed as the pressure inside burst and bled water but the water couldn't penetrate the oil and stop the fire. Instead it continued boiling and hissing through the oil while Ramne held a sadistic smile on his face.
+He poured the hot oil onto her chest and it boiled the water in her hydroderm and singed her flesh as it slid down her abdomen. She shrieked in agony as the flames spread across the oil and consumed her body. Her skin hissed with pressure and burst in small pops that bled water onto her. But the water was stuck under the oil, and it continued to boiled while Ramne held a sadistic smile on his face.
 
-Through her gesticulations trying get the oil off of her body, she saw a flash of firelight and then a shuffling of feet. The lantern moved away from her and seemed to cast confusing shadows across the room. Melna was so focused on her burns that she barely noticed when the lantern fell and a fire engulfed a crate on the other side of the room.
+She gesticulated against her bindings, trying desparately to get the oil off of her body. Suddenly she saw a flash at the other end of the room and then a shuffling of feet. The lantern moved away from her and moved about the room in confused jolts. Melna was so focused on her burns that she barely noticed when the lantern fell and a crate was engulfed on the other side of the room.
 
-A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved from not feeling the fire anymore, and saw the massive fire roaring behind two familiar eyes, there were no longer blue.
+A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved, and saw the massive fire roaring behind two familiar eyes. They were no longer blue.
 
 "You can see," Melna said confusedly.
 
@@ -142,7 +140,7 @@ They snuck quietly to the side of the boat and looked down into the dark water b
 
 "I am not afraid to die," thi said with conviction as thi lifted herself onto the railing, "I am afraid to stay."
 
-Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shinna but thi was too to stop them.
+Melna nodded again and lifted herself onto the railing as well, imagining for a second the pain she would feel with salt on her wounds. A shout came from behind them saying "Stop!" It was Shimba but thi was too far to stop them.
 
 Melna turned to the maman and in a moment, passed her pendant to hae and said, "Don't wait for me. Find a silver-furred saffa once you reach land. Laen-Lean."
 
@@ -150,7 +148,9 @@ Melna turned to the maman and in a moment, passed her pendant to hae and said, "
 
 "GO!" said Melna, and she pushed hae off the railing, ensuring thi had safely surfaced before turning to face Shinna.
 
-"There's no escape. We'll only go after you again," Shinna yelled. Thi was standing a step away from her. Melna looked back to the maman, waiting in the water, and she was tempted to jump in after hae. But Melna knew that would only be more troublesome for the both of them. She waited until she saw the maman start to swim off toward land and then let herself down off of the railing and turned to face Shinna, who was visibly horrified to see her scars.
+<!-- left off -->
+
+"There's no escape. We'll only go after you again," Shimba yelled. Thi was standing a step away from her. Melna looked back to the maman, waiting in the water, and she was tempted to jump in after hae. But Melna knew that would only be more troublesome for the both of them. She waited until she saw the maman start to swim off toward land and then let herself down off of the railing and turned to face Shinna, who was visibly horrified to see her scars.
 
 "I thought I could trust you Shinna," Melna said. "You were planning to sell me for ransom all along."
 

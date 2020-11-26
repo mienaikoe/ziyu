@@ -236,7 +236,7 @@ She moved to a window and eyed the bridge over the wetland delta, still proudly 
 
 At least, she believed that she was.
 
-From the corner of her eye, she saw the slightest movement of a satchel that was haphazardly placed in the corner of two crates. It was strangely alive – not the movement you'd expect of something shifting with the ship but in spite of it. She got up and took careful steps to walk toward it.
+From the corner of her eye, she saw the slightest movement of a large woven bag that was haphazardly placed in the corner of two crates. It was strangely alive – not the movement you'd expect of something moving with the ship but in spite of it. She got up and took careful steps to walk toward it.
 
 <!--
 
@@ -249,7 +249,7 @@ Ramne used to being above deck, Ramne is now in the engine room, planning to des
 
 "Who are you?" an invisible voice pierced the silence.
 
-Melna was startled. "Are you hiding?" she asked, still eyeing the satchel. It began to rustle and a pair of illuminated eyes emerged from the top and stared at her knees.
+Melna was startled. "Are you hiding?" she asked, still eyeing the bag. It began to rustle and a pair of illuminated eyes emerged from the top and stared at her knees.
 
 "Linyu?" she said, but the figure didn't respond, and slowly the features of a strange maman became more obvious. Hae hair was knotted and unkempt, and hae face was weary with exhaustion.
 
@@ -273,7 +273,7 @@ Melna cautiously moved her hand closer while thi crawled out of the hiding bag. 
 
 Melna apologized, "I'm sorry. He is my jundman, and I was hoping that you might have..." She paused. Hearing herself say it out loud made her realize how ridiculous her question must have been.
 
-"I have no memories," thi said, beginning to cry, "I only know that I woke up yesterday on this ship, in this satchel. I was blind and had a terrible headache. I met a man named Ramne who was... quite unhappy when I first met him... We went into a town of some sort... at least I think we did? But now I've met you."
+"I have no memories," thi said, beginning to cry, "I only know that I woke up yesterday on this ship, in this itchy bag. I was blind and had a terrible headache. I met a man named Ramne who was... quite unhappy when I first met him... We went into a town of some sort... at least I think we did? But now I've met you."
 
 "Are you injured?" Melna asked, recalling the wound on hae head.
 
@@ -301,7 +301,7 @@ Melna smiled and fought back the deepest sorrow she'd ever felt.
 
 "Escape?"
 
-"Hope I'm not interrupting anything", called a man's voice. The sound struck fear in the maman's heart, and thi hid haeself back in the satchel while Melna walked toward it. He stood at the top of a stairwell that led to the engine room below, his figure traced out by the dim red of Ara through a window.
+"Hope I'm not interrupting anything", called a man's voice. The sound struck fear in the maman's heart, and thi hid haeself under the fabric of hae old home while Melna walked toward it. He stood at the top of a stairwell that led to the engine room below, his figure traced out by the dim red of Ara through a window.
 
 "You look familiar", he said as he got sight of Melna, "Have I run into you before?"
 
@@ -327,16 +327,16 @@ He took two steps toward Melna, coming uncomfortably close to her and stood faci
 
 "Sure it looks just like one of us. But it isn't."
 
-He reached for the satchel where the maman hid, but she pushed him away under his own weight.
+He reached for the bag where the maman hid, but Melna stopped him and pushed him away with his own weight.
 
-"Heh," he laughed off her countermove. "Maybe you're one of them too."
+"Heh," he laughed off her move. "Maybe you're one of them too."
 
 "One of who?"
 
-He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the ribs. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the ground, then grabbed the satchel again and lifted the blue-eyed maman out of it by hae hair, holding hae face over Melna's like a puppet.
+He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the ribs. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the ground, then grabbed the bag again and lifted the blue-eyed maman out of it by hae hair, holding hae face over Melna's like a puppet. The blue light of hae eyes filled hey sight and illuminated his face as he spoke.
 
-"Let me tell you a story. A maman named Ginnu used to own this body, but Ginnu died trying to betray me. He turned all of them against me, so I did what I had to do. This _thing_ is the demon that woke up in hae body, an abomination to life. You try to kill it, but it _just won't die_!"
+"Let me tell you a story. A maman named Ginnu used to own this body, but Ginnu died trying to betray me. That guy turned all of them against me, so I did what I had to do. This _thing_ is the demon that woke up in hae body, an abomination to life. I tried to kill it, but it _just won't die_!"
 
-Melna stared into the maman's eyes, and felt hae pain and her anguish. Thi wasn't dead, thi was alive. She backed away, still lying on the ground, and he dropped the maman on the floor without a care to chase her. She searched in the dark for a weapon, but there was nothing but crates and barrels far too heavy to move. Ramne suddenly lunged for her but she dodged out of the way just in time and ran for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and sent her tumbling down the stairs.
+Melna stared into the maman's eyes, and felt hae pain and her anguish. Thi wasn't dead, thi was alive. She backed away, still lying on the ground, and he dropped the maman hard on the floor. She searched in the dark for a weapon, but there was nothing but barrels and bags far too heavy to move. Ramne suddenly lunged for her but she dodged out of the way just in time and ran for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and sent her tumbling back down.
 
-The weight of a body pinned her down as a damp cloth covered her face. She fought to push him off of her, but too quickly did the last light of consciousness leave her eyes, leaving only that sickening look of a madman's face seared into her memory.
+The weight of a body pinned her down as a damp cloth covered her face. She fought to push him off of her, but it wasn't long before the last light of consciousness left her eyes, leaving only that sickening look of a madman's face seared into her memory.
