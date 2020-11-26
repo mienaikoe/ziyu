@@ -120,7 +120,7 @@ He moved the lamp over her, taking some perverted satisfaction in watching her s
 
 He poured the hot oil onto her chest and it boiled the water in her hydroderm and singed her flesh as it slid down her abdomen. She shrieked in agony as the flames spread across the oil and consumed her body. Her skin hissed with pressure and burst in small pops that bled water onto her. But the water was stuck under the oil, and it continued to boiled while Ramne held a sadistic smile on his face.
 
-She gesticulated against her bindings, trying desparately to get the oil off of her body. Suddenly she saw a flash at the other end of the room and then a shuffling of feet. The lantern moved away from her and moved about the room in confused jolts. Melna was so focused on her burns that she barely noticed when the lantern fell and a crate was engulfed on the other side of the room.
+She gesticulated against her bindings, trying desparately to get the oil off of her body. Suddenly she saw a flash at the other end of the room and then a shuffling of feet. The lantern moved away from her and moved about the room in confused flickers to and fro. Melna was focused on her burns so she barely noticed when the lantern fell and a crate was engulfed on the other side of the room.
 
 A blanket fell on her suddenly and a pair of hands smothered the fire on her body. She cried out again from the sting of the pressure, but the blanket came off quickly after and the fire had been put out. She looked up, relieved, and saw the massive fire roaring behind two familiar eyes. They were no longer blue.
 
