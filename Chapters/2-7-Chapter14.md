@@ -157,7 +157,7 @@ He removed a firestarter from his satchel and turned its knob. A titanium cylind
 
 "You'll be fine," he lied. "Just stay strong."
 
-The other three had finished moving crates and the sound of many footsteps filled the room above, but Kipnu was steeped in concentration, looking for kanosin to use as a pain reducer. He checked the crates that the others had opened, but found no kanosin. Just more of those strange cylinders that Ramne had taken with him.
+The other three had finished moving crates and the sound of many footsteps filled the room above, but Kipnu was steeped in concentration, looking for kanosin to use as a pain reducer. He checked the crates that the others had opened, but found nothing but more of those strange cylinders that Ramne had taken with him.
 
 "Casra?" he called hae name, secretly hoping thi might have gone unconscious again.
 

@@ -236,7 +236,7 @@ She moved to a window and eyed the bridge over the wetland delta, still proudly 
 
 At least, she believed that she was.
 
-From the corner of her eye, she saw the slightest movement of a large woven bag that was haphazardly placed in the corner of two crates. It was strangely alive – not the movement you'd expect of something moving with the ship but in spite of it. She got up and took careful steps to walk toward it.
+From the corner of her eye, she saw the slightest movement of a large woven bag that was haphazardly placed in the corner of two crates. It was strangely alive – not the movement you'd expect of something reacting to the ship's movements but adjust to them. She got up and took careful steps to walk toward it.
 
 <!--
 
@@ -244,7 +244,7 @@ Annu is in stowage
 Ramne used to being above deck, Ramne is now in the engine room, planning to destroy Shinna's ship
 - Ramne is saved by Fajro's submarine
 
-
+show that the crates are full of kanosin to show the reader tha Ramne had already packed them away.
 -->
 
 "Who are you?" an invisible voice pierced the silence.
@@ -281,7 +281,7 @@ Melna apologized, "I'm sorry. He is my jundman, and I was hoping that you might 
 
 "Here, let me see."
 
-Melna gently pulled hae closer to the light through the window and saw a strange circular ridge marking on hae head, but nothing that might suggest there was a wound there. But the rest of hae body told a different story; There were bruises and wounds marring hae arms and torso, as if she'd been in a horrible struggle of some sort.
+Melna gently pulled hae closer to the light through the window and saw a strange circular ridge marking on hae head, but nothing that might suggest there was a wound there. The rest of hae body told a different story; There were bruises and wounds marring hae arms and torso, as if she'd been in a horrible struggle of some sort.
 
 "My goodness. How did you get all of these?" Melna asked as she pressed gently near a few of the newer wounds to feel for any foreign objects. Thi winced uneasily at each one.
 
@@ -318,6 +318,8 @@ She felt a wave of disdain wash over her.
 "Sounds like you're no better off, stowing away in the engine room of some old sailing ship."
 
 He laughed, "Shinna thinks thi runs this ship. But it won't be long before thi understand who's really in charge."
+
+_Shinna?_
 
 He took two steps toward Melna, coming uncomfortably close to her and stood facing her eye-to-eye.
 
