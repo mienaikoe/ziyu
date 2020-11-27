@@ -148,23 +148,29 @@ Melna turned to the maman and in a moment, passed her pendant to hae and said, "
 
 "GO!" said Melna, and she pushed hae off the railing, ensuring thi had safely surfaced before turning to face Shinna.
 
-"Don't jump! All of us can outswim you," Shinna yelled. Thi was standing only a few paces away from her. Melna looked back to the maman who was waiting in the water, and was tempted to jump in after hae. But Melna knew that would only be more troublesome for the both of them. She waited until she saw the maman start to swim off toward land and then let herself down off of the railing. Shinna's face was visibly horrified to see her scars.
+"Don't jump, Melna! All of us can outswim you," Shinna yelled. Thi was standing only a few paces away from her. Melna looked down at the water, at the maman who was waiting for her, and imagined jumping in after hae. But Melna knew that it would only bring more trouble for both of them. She waited until she saw the maman swim off toward land and then let herself down off of the railing. Shinna could see her scars now, and hae face was full of horror.
 
-"I thought I could trust you," Melna said. "But you were planning to sell me for ransom all along."
+"I thought I could trust you," Melna said. "But you locked me in with that dog of a man–"
 
-Thi hesitated with a half a tear stuck in each eye. "We all need something."
+"I swear I didn't know. My crew–."
+
+"You were both planning to sell me for ransom all along!"
+
+Her voice was painted with pain. Her throat, the bristles of a brush long hardened with use.
+
+"We all need something," thi said. Hae face was flush with relentless tension and unquestionable doubt.
 
 Many of the crew had rushed to the doorway to stowage, investigating the source of the smoke, but Shinna wasn't going to let her out of hae sight.
 
-Melna said, "Whatever Fajro promised you, it will not come."
+Melna said, "Whatever Fajro promised you, it isn't coming."
 
-"We will all be part of the Red Circle. The first colony in the desert."
+"We will all be part of the Red Circle," thi said with a broken voice. "The first colony in the desert."
 
 "How many people do you think he's made that promise to?"
 
 Thi stayed silent, more unsure of haeself than thi had ever been before, but too engrossed in the plan to give up now.
 
-"I am responsible for the survival of my crew," thi said with a cracked voice. "You will be sold to Holrag. That is final."
+"I am responsible for the survival of my crew. Nothing else matters. You will be sold to Holrag and that is final."
 
 Shinna took the coat off of hae back, tossed it on the ground in front of Melna, and then turned around to help hae crew. Melna quickly took the coat and laid it over her body as she curled up against the railing, looking on at the busy people before her. Three people rushed into the smoke with buckets of ocean water reserved for fighting fires. They stopped and waited for a woman and a maman carrying Ramne out of the smoke. He was barely aware of what was happening, turning his head left and right, trying to find his bearings.
 
@@ -172,25 +178,25 @@ He yelled, "Ginnu. Melna. Where are they?"
 
 But nobody knew who he was talking about. They laid him down against the railing on the side of the ship opposite Melna. Through shifting legs and feet she could see a giant burn against the right side of his body, as if someone had intentionally splattered the lantern oil had been splattered over his body.
 
-She couldn't help but laugh over her pain.
+She couldn't help but laugh.
 
 Shinna came back to Melna and said, "I don't know what you two did down there but you almost set the whole ship ablaze."
 
 Melna kept her eyes fixed on Ramne, never letting his new disfigured form out of her memory.
 
-"And who is Ginnu?", thi paused for response but Melna was silent, never taking her eyes off of Ramne. "Are you hearing me?"
+"And where is Ginnu?", thi paused for response but Melna was silent, never taking her eyes off of Ramne. "Are you hearing me?"
 
 "A man like that is worth dying to kill", said Melna. "Don't you agree?"
 
 Shinna looked at Ramne and back at Melna, with a look of anguish on hae face.
 
-"I had the chance many times... I'd have done it if my life didn't depend on keeping him alive."
+"I had the chance many times... I'd have done it if my own life didn't depend on keeping him alive."
 
 Thi tossed her hands up in exasperation, voicing a "Shb'paahh!", and walked away to return to hae crew.
 
-Melna kept looking at Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sign of the maman anymore. Just the dark outlines of waves.
+Melna kept her gaze fixed upon Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sign of the maman anymore. Just the dark outlines of waves.
 
-"Live well, new friend. You've earned it."
+"Live well, my friend. You've earned it."
 
 <!--
 - Holrag wants to use Melna and Liffa as bargaining chips against each other when negotiating with Liffa about communicating with the obscura.

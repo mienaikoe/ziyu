@@ -221,7 +221,7 @@ Penyi came upon the listener again. "Fire. There's a fire at the Pavilion!"
 
 An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the pavilion, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
 
-Some people were rushing out of the pavilion carrying limp bodies. Others were carrying crates of kanosin. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
+Some people were rushing out of the pavilion carrying limp bodies. Others were paired together, carrying crates of fish or kelp. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
 
 "Fanla! What's going on?" he asked her. Another woman came out of the burning pavilion, carrying two guardians on her shoulders, and set them gently on the ground next to the others.
 
@@ -285,7 +285,7 @@ Kipnu refocused on his mission. He called out again, "Casra!"
 
 There was a moment of silence. Kipnu sensed that thi was moving, but couldn't see where. He lunged at where he thought thi was but he was met with cold thin air and the sound of hae voice above him. Thi spoke with a tone of smoldering rage.
 
-"You burn our entire home; hundreds of people, dead in moments and still you only care about Casra."
+"Shb'paahh!" hae thunderous voice shook him. "You burned the whole thing down, who knows how many you've killed and still you only care about Casra."
 
 "The fire? I didn't start that–"
 
@@ -309,15 +309,15 @@ The sound of two feet rustling the forest floor interrupted hae. Thi looked asid
 
 He seemed as surprised as thi was.
 
-"Found a traitor among them," he said. "Thi knew about the saltpeter and the antikan and led them straight to it. Thi's the only one who could have started the fire."
+"Found a traitor among them," he said. "Thi knew about the saltpeter and the antikan and led them straight to it."
 
 "Your own partner? Are you sure?"
 
 "Absolutely."
 
-He pushed the maman into Shinna's light and held out hae hands.
+He pushed the maman into Shinna's light and commanded hae to show hae hands.
 
-"See the dust?"
+"See the dust?" he said.
 
 Shinna glanced at hae hands and nodded in assent while Ramne glanced at Kipnu. He had a careless scowl, silhouetted in Shinna's body light, and the skin on his ankles were now exposed from which a bright blue light scattered across the ground around him.
 

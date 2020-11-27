@@ -170,7 +170,7 @@ Melna usually knew a truth from a lie, but this one she couldn't decipher.
 
 "Well, shall we?" asked Shimba.
 
-It was larger than she had imagined, outfitted with four large foldable sails, two to a side, and three pairs of risers for power in a headwind. The forward hull was adorned with brand new plates of steel which set the ship low in the water. But the crew didn't seem bothered by the clearly worrisome display as they played some sort of game on a crate on the dock.
+The "Kutsa um Yansha", as Shimba called it, was larger than she had imagined, outfitted with four large foldable sails, two to a side, and three pairs of risers for power in a headwind. The forward hull was adorned with brand new plates of steel which set the ship low in the water. But the crew didn't seem bothered by the clearly worrisome display as they played some sort of game on a crate on the dock.
 
 "What are those plates for?" She asked Shimba as she got closer.
 
@@ -273,7 +273,7 @@ Melna cautiously moved her hand closer while thi crawled out of the hiding bag. 
 
 Melna apologized, "I'm sorry. He is my jundman, and I was hoping that you might have..." She paused. Hearing herself say it out loud made her realize how ridiculous her question must have been.
 
-"I have no memories," thi said, beginning to cry, "I only know that I woke up yesterday on this ship, in this itchy bag. I was blind and had a terrible headache. I met a man named Ramne who was... quite unhappy when I first met him... We went into a town of some sort... at least I think we did? But now I've met you."
+"I have very few memories," thi said, beginning to cry, "I remember a sea of lights, millions of them dancing in the warm water. I remember waking up, yesterday on this ship, in this itchy bag. I was blind and had a terrible headache. I met a man named Ramne... And then I met him again, and a third time... I remember it hurting more each time I woke up. We went into a town of some sort. At least I think we did? But now I've met you."
 
 "Are you injured?" Melna asked, recalling the wound on hae head.
 
