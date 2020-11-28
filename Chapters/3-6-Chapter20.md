@@ -186,13 +186,17 @@ Melna kept her eyes fixed on Ramne, never letting his new disfigured form out of
 
 "And where is Ginnu?", thi paused for response but Melna was silent, never taking her eyes off of Ramne. "Are you hearing me?"
 
+But Melna could sense something else about Ramne. That he was hiding something else that he'd done behind that smirk of his. He didn't targeted her just because she was a fidelant.
+
 "A man like that is worth dying to kill", said Melna. "Don't you agree?"
 
-Shinna looked at Ramne and back at Melna, with a look of anguish on hae face.
+Shinna looked at Ramne and back at Melna, with a look of anguish on hae face. Perhaps thi knew something to.
 
 "I had the chance many times... I'd have done it if my own life didn't depend on keeping him alive."
 
-Thi tossed her hands up in exasperation, voicing a "Shb'paahh!", and walked away to return to hae crew.
+"Someday, your life will depend on his death, and you'll wish you'd done it already."
+
+Thi turned hae head to shield a tear from Melna. "Shb'paahh! Don't you think I know that already?", thi whispered. And with hae hands on hae head in exasperation, thi receded from the conversation to a dark corner of the ship to be alone.
 
 Melna kept her gaze fixed upon Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sign of the maman anymore. Just the dark outlines of waves.
 
