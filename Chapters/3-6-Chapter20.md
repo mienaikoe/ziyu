@@ -152,15 +152,15 @@ Melna turned to the maman and in a moment, passed her pendant to hae and said, "
 
 "I thought I could trust you," Melna said. "But you locked me in with that dog of a man–"
 
-"I swear I didn't know. My crew–."
+"My crew. They–"
 
-"You were both planning to sell me for ransom all along!"
+"I know you were both planning to sell me for ransom."
 
-Her voice was painted with pain. Her throat, the bristles of a brush long hardened with use.
+Her tones were stiff and incisive, like the bristles of an anomin pine in the desert.
 
-"We all need something," thi said. Hae face was flush with relentless tension and unquestionable doubt.
+"We all need something," said Shinna. Hae face was flush with relentless tension and unquestionable doubt.
 
-Many of the crew had rushed to the doorway to stowage, investigating the source of the smoke, but Shinna wasn't going to let her out of hae sight.
+Many of the crew had rushed to the doorway to stowage to investigate the source of the smoke, but Shinna wasn't going to let her out of hae sight.
 
 Melna said, "Whatever Fajro promised you, it isn't coming."
 
@@ -176,11 +176,13 @@ Shinna took the coat off of hae back, tossed it on the ground in front of Melna,
 
 He yelled, "Ginnu. Melna. Where are they?"
 
-But nobody knew who he was talking about. They laid him down against the railing on the side of the ship opposite Melna. Through shifting legs and feet she could see a giant burn against the right side of his body, as if someone had intentionally splattered the lantern oil had been splattered over his body.
+They laid him down against the railing on the side of the ship opposite Melna. Through shifting legs and feet she could see a giant burn against the right side of his body as if the lantern oil had been intentionally spilled on him.
 
 She couldn't help but laugh.
 
-Shinna came back to Melna and said, "I don't know what you two did down there but you almost set the whole ship ablaze."
+Shinna came back to Melna and said, "You almost set the whole ship ablaze."
+
+"Were it me, I'd have finished the job."
 
 Melna kept her eyes fixed on Ramne, never letting his new disfigured form out of her memory.
 
@@ -196,9 +198,9 @@ Shinna looked at Ramne and back at Melna, with a look of anguish on hae face. Pe
 
 "Someday, your life will depend on his death, and you'll wish you'd done it already."
 
-Thi turned hae head to shield a tear from Melna. "Shb'paahh! Don't you think I know that already?", thi whispered. And with hae hands on hae head in exasperation, thi receded from the conversation to a dark corner of the ship to be alone.
+Thi turned hae head to shield a tear from Melna. "Shb'paahh! Don't you think I know that?", thi whispered. And with hae hands on hae head in exasperation, thi receded from the conversation to a dark corner of the ship to be alone.
 
-Melna kept her gaze fixed upon Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked out on the water again. There was no sign of the maman anymore. Just the dark outlines of waves.
+Melna kept her gaze fixed upon Ramne as he slowly regained his bearings. The crew crowded around him, giving him water and nursing his wounds and it made her sick to watch them pander to him. She stood up slowly, holding the coat tightly to her chest, and looked down at her hand, where an empty glass vial tinted with a green film sat, a keepsake that the maman had given her just before thi left. She looked out on the water again. There was no sign of hae. Just the dark outlines of waves.
 
 "Live well, my friend. You've earned it."
 
