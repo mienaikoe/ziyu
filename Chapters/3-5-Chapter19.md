@@ -184,11 +184,11 @@ Melna was in awe at Shimba's depth of knowledge, chocking it up to one of the ma
 
 "Crew!", Shimba addressed the crowd of around twenty. The volume of hae voice shocked Melna out of her daydream. "This is uh.." Thi leaned toward Melna, trying to remember her name.
 
-"Melka-", she hinted to hae, "Belka!" thi shouted confidently. "This is Belka."
+"Melka-", she hinted to hae, "Belka!" thi shouted confidently. "A traveler from Rudjan."
 
-They all greeted her out of sync with boisterous "Oy!"s and "Ai!"s. She was too paranoid about her identity to correct Shimba, but also too amused to mind.
+They all greeted her out of sync with boisterous "Oy!"s and "Ai!"s. She smiled through the noise, too paranoid to say anything about it, too ashamed to look them in the eye.
 
-"Belka will be joining us for a trip to Heiko before Yansha."
+"Belka will be joining us for a short trip to the blockade before Yansha."
 
 "Heiko?" A maman approached the two, doing a once over of Melna with a disgusted look before thi ignored her and addressed Shimba. Thi spoke under hae breath but Melna could still hear hae.
 
@@ -198,7 +198,7 @@ They all greeted her out of sync with boisterous "Oy!"s and "Ai!"s. She was too 
 
 Thi shot back, "Maybe if you weren't so obsessed with that maman from Rudj–"
 
-"– We'll take Belka just short of the blockade, and then be on our way. You'll hardly notice her."
+"–I'm with Belka," said a man at the back. He had an aloof tone and an air of entitlement. "We'll drop her just short of the blockade, and then be on our way."
 
 Panna made a strange sound with the tips of hae tongue, then turned hae gaze toward Melna.
 
@@ -208,7 +208,7 @@ Panna made a strange sound with the tips of hae tongue, then turned hae gaze tow
 
 "That's not how generosity works," Shimba said.
 
-"Then what's the point?" Panna turned back to Shimba. "We all need something to live on."
+"Then what's the point?" Panna turned back to Shimba. "We all need something."
 
 Melna saw the exapserated look on both of their faces, searched for some answer to quell their needs.
 
@@ -216,17 +216,37 @@ She offered them a deal. "I... have very little with me. But I can ensure an ete
 
 "A welcome, eh?" said Panna. "That supposed to impress us?"
 
-Her mind raced to find an answer, but none came to mind.
+Her mind raced to find an answer, but she had no time to think before the man from before butted in.
 
-"Empty. See? This Heikoi brings nothing but her own problems."
+"Ah, but Panna, never underestimate the power of a welcome. You never know when you'll be running from the only place you've ever called home."
 
-"Enough!" Shimba yelled at her and shoved her back to her old spot. "We're going to the blockade. She'll be in stowage the whole time. That's final!"
+Melna glanced at Panna, saw hae looking around at nothing in particular as if avoiding bringing attention to haeself.
 
-"With the rest of the overpriced garbage," said Panna with a smirk. Thi walked away in silent concession.
+"Renga. Um Shaki," he introduced himself. "Or these days, I might as well say I'm from Ulukoma. So many people are fleeing to the place, I had to see what all the rage was about."
 
-Melna followed Shimba past the crew, felt the glare of judgment from every person there, and knew that this was no safe place. She would maintain her vigilance.
+"Ulukoma!" she bought herself some time to formulate a test question.
 
-Melna found a clearing amongst the tarred crates and oiled bags in the stowage area below deck. The space was dark save for a few round glass windows to the outside, but Shimba had promised there was a lantern somewhere, that she only had to look. _A short time_, she repeated to herself to convince her reluctant mind.
+"Do you know someone named Kipnu?"
+
+"No," he responded with no obvious flaw in his words or manner. "Can't say I've heard of him."
+
+Shimba looked past Renga with a different sort of agitation. Melna knew something wasn't being said, but she thought it best to wait to dig further.
+
+"Well let's get you downstairs," thi said clutching tightly to Melna's arm. "We're about to set sail and you don't want to be in the way."
+
+"Nice to meet you," said Renga. Melna moved her lips to respond in kind but her uneasiness stopped her. Instead, she gave a quick nod and walked off with Shimba. Panna had all but disappeared before she could say anything to hae.
+
+The door to stowage was more of a hole that happened to have a flap of wood sitting on top, and the stairs were no exception to the now apparent rule with its steep incline and the first step missing entirely.
+
+"I'll leave you here with just one piece of advice," said Shimba. "Don't let that man anywhere near you."
+
+"What did he do?"
+
+"Don't worry about it just..." thi hesitated, looking off into the distance as if something might be watching hae. "Just get below deck and we'll talk about it later. There's a lantern down there somewhere; just look."
+
+She barely had time to find the floor when Shimba moved the wooden flap back on top of the hole, and left her to the dark.
+
+Melna found a clearing amongst the tarred crates and oiled bags in the stowage area below deck. The space was dark save for a few round glass windows to the outside, but Shimba had promised a lantern. One tiny lantern in a room the size of the ship. _A short time_, she repeated to herself to convince her reluctant mind.
 
 Through the muffle of a wooden celing came the sound of innumerable footsteps; of people shouting, and machinery clanking; the well-tuned psyche of a team coming alive as they began to push off from the dock. They cleared the harbor and a subtle scraping sound filled the air outside as the engine below her whirred alive, vibrating the whole ship with its starting. They were on the path toward Heiko.
 
@@ -301,9 +321,9 @@ Melna smiled and fought back the deepest sorrow she'd ever felt.
 
 "Escape?"
 
-"Hope I'm not interrupting anything", called a man's voice. The sound struck fear in the maman's heart, and thi hid haeself under the fabric of hae old home while Melna walked toward it. He stood at the top of a stairwell that led to the engine room below, his figure traced out by the dim red of Ara through a window.
+"Hope I'm not interrupting anything", called a man's voice. The sound struck fear in the maman's heart, and thi hid haeself under the fabric of hae old home while Melna walked toward it. Ramne stood on the first full step, his figure traced out by the dim red of Ara through the hole in the floor he was climbing through.
 
-"You look familiar", he said as he got sight of Melna, "Have I run into you before?"
+"You looked familiar up there", he said as he got sight of Melna, "Have I run into you before?"
 
 "So you don't remember me yelling at you?"
 
@@ -315,9 +335,9 @@ Melna smiled and fought back the deepest sorrow she'd ever felt.
 
 She felt a wave of disdain wash over her.
 
-"Sounds like you're no better off, stowing away in the engine room of some old sailing ship."
+"You seem to think better of yourself," she said coyly, "So tell me, Ramne, why aren't you the captain?"
 
-He laughed, "Shinna thinks thi runs this ship. But it won't be long before thi understand who's really in charge."
+He laughed, "Shinna thinks thi runs this ship. But it won't be long before thi understands who's really in charge."
 
 _Shinna?_
 
@@ -337,7 +357,7 @@ He reached for the bag where the maman hid, but Melna stopped him and pushed him
 
 He walked toward her and tried to lift her by the shirt, to which she promptly responded with a punch in the ribs. But his clothing was thicker than she imagined and it cushioned the impact of her hit. He calmly shrugged it off and threw her to the ground, then grabbed the bag again and lifted the blue-eyed maman out of it by hae hair, holding hae face over Melna's like a puppet. The blue light of hae eyes filled hey sight and illuminated his face as he spoke.
 
-"Let me tell you a story. A maman named Ginnu used to own this body, but Ginnu died trying to betray me. That guy turned all of them against me, so I did what I had to do. This _thing_ is the demon that woke up in hae body, an abomination to life. I tried to kill it, but it _just won't die_!"
+"Let me tell you a story. A maman named Ginnu used to own this body, but Ginnu died trying to betray me. That damn idiot, Kipnu, he turned hae against me, so naturally I did what I had to do. But then this demon, this _thing_, woke up in Ginnu's body. It's a monstrosity, an abomination to life. I tried to kill it, but it _just won't die_!"
 
 Melna stared into the maman's eyes, and felt hae pain and her anguish. Thi wasn't dead, thi was alive. She backed away, still lying on the ground, and he dropped the maman hard on the floor. She searched in the dark for a weapon, but there was nothing but barrels and bags far too heavy to move. Ramne suddenly lunged for her but she dodged out of the way just in time and ran for the stairs to the upper deck. But before she could reach the top, a hand grabbed her ankle and sent her tumbling back down.
 

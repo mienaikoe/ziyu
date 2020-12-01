@@ -96,11 +96,11 @@ She laughed at her own naïveté. "Shinna's idea, I suppose. What makes you thin
 
 "You keep them enslaved."
 
-"Hey, if kanosin is so bad they should stop begging me for more."
+"If kanosin is so bad maybe they should stop begging me for more."
 
-"You would be the first to die if they could."
+"You would be the first to die if they could stop."
 
-"But they won't," he laughed, "They won't, and that's the beauty of it."
+"But they can't," he laughed, "They can't stop, and that's the beauty of it."
 
 He tilted the lamp over the ground between them and watched the flames crawl down the stream of oil and onto a growing pool on the floor. The smell of anomin filled the air as flames bit at her side, inching ever closer. She tried her best to think clearly and focus on escaping.
 
@@ -150,15 +150,11 @@ Melna turned to the maman and in a moment, passed her pendant to hae and said, "
 
 "Don't jump, Melna! All of us can outswim you," Shinna yelled. Thi was standing only a few paces away from her. Melna looked down at the water, at the maman who was waiting for her, and imagined jumping in after hae. But Melna knew that it would only bring more trouble for both of them. She waited until she saw the maman swim off toward land and then let herself down off of the railing. Shinna could see her scars now, and hae face was full of horror.
 
-"I thought I could trust you," Melna said. "But you locked me in with that dog of a man–"
-
-"My crew. They–"
-
-"I know you were both planning to sell me for ransom."
+"I trusted you," Melna said. "But I was never more than a ransom to you."
 
 Her tones were stiff and incisive, like the bristles of an anomin pine in the desert.
 
-"We all need something," said Shinna. Hae face was flush with relentless tension and unquestionable doubt.
+"We all need something," said Shinna. Hae expression was an attempt to be stoic, flushed red with relentless tension and unquestionable doubt.
 
 Many of the crew had rushed to the doorway to stowage to investigate the source of the smoke, but Shinna wasn't going to let her out of hae sight.
 

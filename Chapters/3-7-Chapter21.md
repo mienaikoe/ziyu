@@ -21,7 +21,7 @@ _Who was he?_ She took out the coil device he gave her and ran her fingers along
 
 -->
 
-Heiko crept up on the horizon gradually. A great clearing in the trees of Rudjan for as long as the eye can see, but you only know that the trees have fallen away when you've been in it for long enough. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She was conditioned to feel more like herself within the arms of those rolling plains and the shorelines abutting them.
+The lights of Heiko crept up on the horizon. A great clearing in the plains for as long as the eye can see, but you only know that the trees have fallen away when you've been in it for long enough. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She was conditioned to feel more like herself within the arms of those rolling plains and the shorelines abutting them.
 
 A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.
 
