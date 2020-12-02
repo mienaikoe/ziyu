@@ -228,7 +228,7 @@ Melna glanced at Panna, saw hae looking around at nothing in particular as if av
 
 "Do you know someone named Kipnu?"
 
-"No," he responded with no obvious flaw in his words or manner. "Can't say I've heard of him."
+"No," he responded with no sign of deceit or impropriety. "Can't say I've heard of him."
 
 Shimba looked past Renga with a different sort of agitation. Melna knew something wasn't being said, but she thought it best to wait to dig further.
 

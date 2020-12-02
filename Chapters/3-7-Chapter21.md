@@ -23,7 +23,15 @@ _Who was he?_ She took out the coil device he gave her and ran her fingers along
 
 The contours of Heiko center crept up on the horizon, stippled with the yellow-orange beacons of a hundred thousand lanterns burning through the darkness. She hadn't seen such a sight since her first twelfth harvest festival, in the time before the electric rails had come to Heiko. It was a welcome sight, regardless of the circumstances by which Melna was arriving. She knew that it meant they were awake.
 
-A man who was extinguishing the fire had found Melna's bag and clothes and left them neatly beside her as she looked homeward from the railing, warmed by Shinna's coat. It was a small thing, but folding her pants and coat was an unexpected gesture of goodwill. She thanked him and gently moved the folded clothes off of her bag and rummaged through it to find the listener, which she put on right away. Any word from Liffa would certainly be welcome.
+Melna felt the muffled thud of a bag landing next to her, and looked up to find Panna standing above her.
+
+"Your bag, žah-fidelant," thi said mockingly. Melna opened the singed flap of her bag and rummaged through it, finding her fidelant robes and garb still intact and folded neatly. Underneath them was Fanla's listener, a glass bottle of water, and a bundle of flat kelp ribbon.
+
+Thi began to walk away, but Melna reached for hae tunic.
+
+"Panna... sit with me."
+
+<!-- left off -->
 
 She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holrag's sharks had come for dinner.
 

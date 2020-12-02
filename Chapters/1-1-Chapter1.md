@@ -14,7 +14,7 @@ I stayed silent, still listening for the leaves and my mother's voice.
 
 "I'll be there in a bit."
 
-She stared at me for a moment, I assume to size up my strange behavior. 
+She stared at me for a moment, I assume to size up my strange behavior.
 
 "There's a chill in the air," she remarked, then turned to walk back home.
 
@@ -40,7 +40,7 @@ I stirred at the table, and then rose again to go bother Kipnu who had fallen as
 
 Melna walked over to us to check on the food. "Let me make sure it's still like my mother used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
 
-I pulled some water from the dew column at the center of the great room and returned to add it to the mix little by little, waiting for Melna's approval. 
+I pulled some water from the dew column at the center of the great room and returned to add it to the mix little by little, waiting for Melna's approval.
 
 Finally, we sat down to eat.
 
@@ -66,37 +66,35 @@ And I would. I was happy with them wherever we went. He and Melna shook heads an
 
 ---
 
-"Hey... what did you mean this morning?" I asked Melna as she got dressed for the day. "You mentioned you could feel a chill."
+I entered the dressing room as Melna was putting on her fidelant attire so I could help her tie the knots of her complex robes. I spoke not with my tongues but with my the cold of my fingers.
 
-She responded, "Oh nothing. Just an observation."
+She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while she stood just barely in it.
 
-I could hear the lie. Why would she lie?
+She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color of Heiko shined proudly in the daylight. I remembered dying them in Pohua, taking every care to ensure that the dye was consistent and fast to the cloth, but still I saw all of its imperfections whenever I looked at it. Melna didn't seem to mind.
 
-I suggested to her, "If there's something you know-"
+"This morning, you mentioned the cold air," I spoke hesitantly.
 
-"-I wouldn't be able to tell you anyway."
-
-She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while it missed her completely. She proceeded to wrap and tighten the mauve-dyed waist belt of Heiko around her fidelant robes. I remembered dying the belt in Pohua, worrying about the consistency and the fastness. I knew all of its imperfections, but Melna didn't seem to mind.
+She didn't respond.
 
 "The farmers have a responsibility, you know," I tried again to persuade her, "If a temperature drift is coming, we need to know so we aren't caught by an early-"
 
-"Liffa... I've already told you all that I know. If I had evidence of drift, I would tell you."
+"Liffa... we've been over this. If I had evidence of drift, I would tell you."
 
 She was a stone wall of secrets, and I was unsatisfied until I could break through. But it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
-I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your family."
+I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your bounds."
 
-She looked at me through the mirror for a moment, searching for motives in a face of none.
+She looked at me through the mirror for a moment, searching for motives in an innocent face.
 
 "I don't have time for this," she said coldly.
 
-I let out a frustrated sigh and made my way to the doorway of her room. 
+I let out a frustrated sigh and made my way to the doorway of her room.
 
 Before I could leave, she said, "Liffa..."
 
 I stopped without turning.
 
-"Don't tell Kipnu."
+"You know I love you."
 
 I left.
 
@@ -150,6 +148,6 @@ Kipnu walked up to us, and she loosened up enough to hug the both of us before o
 
 "What's going on between you two?" Kipnu asked again.
 
- I held my binding pendant tightly and remembered that marriage was full of difficulties.
+I held my binding pendant tightly and remembered that marriage was full of difficulties.
 
 "Nothing," I said. "Just a chill in the air."
