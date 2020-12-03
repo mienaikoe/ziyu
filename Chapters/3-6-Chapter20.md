@@ -72,7 +72,7 @@ Faintly, she could hear some rustling of another and then she remembered Ramne, 
 
 "You're finally awake," Ramne's unmistakeable voice broke the darkness, and she looked up and back to find his feet upside-down.
 
-He continued, "Had me worried there. I need you alive, you know."
+He continued, "Had me worried. I need you alive, you know."
 
 "Fuck. You."
 
@@ -112,11 +112,11 @@ He poured out a little more and the flames began to singe her skin a little. She
 
 He leaned in closer and pulled Melna's face to look at him in the eye.
 
-"You don't know my power yet. It goes beyond money, beyond politics. Beyond even the obscura. As the last of your people become desparate and hungry and lifeless fleeing from their home, hiding from the Holragi, they _will_ turn to me. As will everyone else on this planet."
+"You don't know my power yet. It goes beyond money, beyond politics. Beyond even the obscura. The last people on this planet will become desparate and hungry, and then they _will_ turn to me."
 
-He moved the lamp over her, taking some perverted satisfaction in watching her suffer.
+He moved the lamp over her, taking some perverted satisfaction in watching her squirm.
 
-"Feel my power."
+"They _will_ know my power."
 
 He poured the hot oil down upon her chest and it boiled the water in her hydroderm and singed her outer flesh. She shrieked in agony and gesticulated against her bindings, trying desparately to get the oil off as the flames spread across the surface and consumed her body. Her skin hissed with pressure and burst in small pops that bled water onto her and let the oil inside. And all while her burns grew in intensity and size, Ramne held a sadistic smile on his face.
 
