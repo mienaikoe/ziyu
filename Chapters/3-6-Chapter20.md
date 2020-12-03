@@ -16,7 +16,7 @@ Okay, this is a dream sequence
 
 _Th-Thump. Th-Thump. Th-Thump._
 
-The sound of her own pulses filled her head. She found herself standing in the dark upon some kind of metallic shell and staring out into the darkness around her, filled with little dots of light. She took a step and the ground pulled its weight toward her as if in anticipation. Ahead of her, rays of light danced where the ground gave way.
+The sound of her own pulses filled her head. She found herself standing in the dark upon some kind of metallic shell, staring at the little dots of light in the space around her. She took a step forward and the ground stepped forward with her, keeping her feet firmly held to the shell. Ahead of her, rays of light danced where the ground gave way.
 
 _Th-Thump. Th-Thump. Th-Thump._
 

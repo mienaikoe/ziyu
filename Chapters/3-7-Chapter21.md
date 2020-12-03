@@ -25,17 +25,34 @@ The contours of Heiko center crept up on the horizon, stippled with the yellow-o
 
 Melna felt the muffled thud of a bag landing next to her, and looked up to find Panna standing above her.
 
-"Your bag, žah-fidelant," thi said mockingly. Melna opened the singed flap of her bag and rummaged through it, finding her fidelant robes and garb still intact and folded neatly. Underneath them was Fanla's listener, a glass bottle of water, and a bundle of flat kelp ribbon.
+"Your bag, žah-fidelant," thi said mockingly. Melna opened the singed flap of her bag and rummaged through it, finding her fidelant robes and garb still intact and folded neatly. Underneath them was Fanla's listener, a warm glass bottle of water, and a bundle of flat kelp ribbon.
 
 Thi began to walk away, but Melna reached for hae tunic.
 
 "Panna... sit with me."
 
+Thi hesitated, looked around for conspicuous lookers-on, then chose a spot some distance away from Melna to avoid giving the wrong impression. Thi averted hae eyes as Melna disrobed from Shinna's coat. Through sharp pains and clenched teeth, she poured the water on her burns and began to wrap the kelp ribbon around her torso.
+
+"Can't you go any faster, woman?" asked Panna.
+
+"It would be a lot quicker with some help."
+
+Panna looked at Melna with a half-lustful half-disgusted gaze that wasn't lost on Melna, and then thi shuffled over and took the bandages into hae own hands as Melna sat up straight with her hands above her head. Panna began quickly and roughly, making sure the kelp was tight and well-mended to each other piece. But Melna's face turned red and dewy; even the hardest of sailors knew when to stop.
+
+"Thank you, Panna," said Melna after thi had finished tying the end. Her face was still flush with pain. Panna didn't respond, but went right back to hae spot a distance away.
+
+When she was ready, Melna opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, in a symbolic stance against whichever of Holrag's sharks were coming for dinner.
+
+Her hands moved gracefully and proficiently, recalling the movements from some unseen invisible part of her memory.
+
+"Would you help me with my cape?" she asked Panna again.
+
+"Fidelants can't even dress themselves, eh?"
+
+"I could, but my bundmaman usually does this, so I'm just no good at it. Besides, if these are my last moments in friendly company I don't want to waste them getting dressed."
+
 <!-- left off -->
-
-She didn't get fully dressed right away, but held her time letting her mind wander. When she was ready, she opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, protecting her homeland in one last stand of words against whichever of Holrag's sharks had come for dinner.
-
-Shinna had stayed near her since the fire, knowing not to trust anyone else of hae crew with the assumption of good nature. Thi had given Melna a flat piece of sticky kelp cut to the size of her torso and suggested that she wear it. "For your wound," thi said, with as much heart as thi could muster from the depth of guilt, and Melna took it with gratitude. She disrobed from Shinna's coat to apply the makeshift bandage and change into her robes while Shinna looked away at hae crew. She moved quickly and proficiently. If these were her last moments in friendly company she didn't want to waste them getting dressed.
+<!-- let's look at how to get Ramne dramatically in trouble and have Fajro save him. -->
 
 "Big project, this... blockade. You think any of your people will make it out?"
 
