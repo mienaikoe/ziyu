@@ -45,56 +45,76 @@ When she was ready, Melna opened her bag again and removed the robes she had bee
 
 Her hands moved gracefully and proficiently, recalling the movements from some unseen invisible part of her memory.
 
-"Would you help me with my cape?" she asked Panna again.
-
-"Fidelants can't even dress themselves, eh?"
-
-"I could, but my bundmaman usually does this, so I'm just no good at it. Besides, if these are my last moments in friendly company I don't want to waste them getting dressed."
-
-<!-- left off -->
-<!-- let's look at how to get Ramne dramatically in trouble and have Fajro save him. -->
-
-"Big project, this... blockade. You think any of your people will make it out?"
-
-"I don't know," she said belaboredly, "I gave them as many messages as I could. I'm still not sure why they're after me."
-
-"They like to keep their reasons hidden."
-
-"Could I ask perhaps... a personal question?"
-
-"Sure."
-
-"Is it really fear that makes you tick? Is everyone really fighting for a chance to live in the desert?"
-
-Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything was simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. You may be young for a fidelant, but you probably know by now that things aren't quite that simple. All your good intentions mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird dark things shutting off your source of warmth and life. If in this moment, you have a choice to let a million strangers die or everyone you love, you will always. Always. Choose the million."
-
-Melna paused her dressing routine and pondered whether Shinna meant she would save the million or kill the million. But she figured it was best if she kept her thoughts on the topic to herself.
-
-"You think anyone in Heiko knows?" thi asked.
-
-Melna resumed her careful enrobing technique.
-
-"We are a clever people," she said. "And I've left enough hints."
-
-"Clever, maybe. But can anyone lead them right now? Someone like you is hard to come by."
-
-"A good leader produces better ones to come."
-
-"Doesn't sound like the leaders I know."
-
-Melna finally got the robe setting nicely around her and called over her shoulder, "Shinna, Could you help me?"
+Melna finally got the robe setting nicely around her and called over her shoulder, "Panna, Could you help me with these waistropes?"
 
 Thi turned to see Melna turned away and her arms holding two soft white ropes behind her back.
 
-She said to the side, "My jundmaman usually helps me with this part, but thi's a bit busy at the moment."
+"My jundmaman usually helps me with this part, but thi's a bit busy at the moment."
 
-Shinna walked over and took up the top rope, eyeing the quality and length.
+"Fidelants can't even dress themselves, eh?"
+
+"These are my last moments in friendly company. I don't want to waste them getting dressed."
+
+Thi made the strange ticking sound with the tip of hae tongue again and walked over slowly, making sure that Melna knew thi was annoyed. Thi took the ropes lazily from her hands, and eyed the quality of the rope and length to work with.
 
 "Gently please," Melna said, "The wound is still fresh."
 
-Thi tied it in a knot that only a sailor could know, both ornate in form and function, refraining from speech. Hae arms moved slowly through the stiff air, shame alone weighing them down. Liffa appeared from Melna's memory, helping her fasten her robes in the windowlight. And Kipnu nuzzling her in the doorway. And in a daydream she wished for it all again. To relive that day and tell them that it was okay and they had nothing to worry about.
+"Big project, this... blockade," thi asked while starting a square knot. "You think any of your people will make it out?"
 
-"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate and prevent a famine. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by half the world's army and navy while we struggle to flee for our lives from certain destruction. I want you to remember whatever happens here today. If what you say of love is truly what you all believe, then you will surely be next."
+"I don't know," she said belaboredly, "Holragi has a far strong military presence. I don't know what we can do."
+
+"Eh, those Holragi dogs don't care about their jobs. Everyone is enslaved to someone else out there."
+
+"It's not the soldiers I fear. It's their children, their siblings, their friends and lovers. A soldier fights harder if there's something to lose." she said.
+
+"I guess it's an even battle then."
+
+Thi tried to tidy up the knot on her waist, but quickly found that nothing could right its skew.
+
+"It's fine," said Melna, but Panna loosened the knot and tied it again to get it right.
+
+"Shinna sees I tied a knot like this, thi'd throw a tantrum."
+
+"What was that?" asked Shinna as thi approached the two.
+
+"Ah, the maman of the hour," Panna said aloud.
+
+"One more time, Panna, I swear."
+
+"That's what you said last time. And the time before that–"
+
+"And I fucking meant it now go clean up the mess from the fire."
+
+"Probably got a few knobs to polish down there," thi said suggestively as thi looked Melna in the eyes and walked away. Melna didn't get it.
+
+"We're almost to the blockade. Are you ready?"
+
+"Could I perhaps... ask a personal question first?"
+
+"No," thi responded, but Melna continued anyway.
+
+"Is it really fear that makes you tick? Is everyone really fighting for a chance to live in the desert?"
+
+Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything was simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. You may be young for a fidelant, but you probably know by now that things aren't quite that simple. All your good intentions mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird sky dots shutting off your source of warmth and life. If you were given a choice to let a million strangers die or watch everyone you love freeze to death, you will always. Always. Choose your own."
+
+Melna sat with what thi said, and vehemently disagreed in her mind. But she figured it was best if she kept her thoughts on the topic to herself.
+
+"You think anyone in Heiko knows?" thi asked.
+
+"We are a clever people," she said.
+
+"Clever, maybe. But can anyone lead them right now? Someone like you is hard to come by."
+
+"Heiko is full of astute planners, strong fighters, and persuasive leaders. But a truly great leader trains even better leaders for their inveitable absence."
+
+"Doesn't sound like any leader I know."
+
+Melna's memory conjured a memory of Liffa helping her fasten her robes in the windowlight. And Kipnu nuzzling her in the doorway. And in a daydream she wished for it all again. To relive that day and tell them that it was okay. That they had nothing to worry about.
+
+"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by a superior force while we try to flee for our lives from certain destruction. I want you to remember whatever happens here today. If what you say is truly what you all believe, then you will surely be next."
+
+<!--left off-->
+<!-- Kipnu off the boat? -->
 
 Thi finished fastening the last knot and Melna turned around to see that hae attention was pulled away by hae thoughts. Thi was considering what she had said, or so she hoped. An unfamiliar voice came in loudly on the listener, "Surfacing," and not a moment after, a woman from the top of the bow called out, "Ship approaching!" From the darkness of Ulu on the left side their ship, a great volume of water was split in two as a huge mass of steel lifted out of the water. From Melna's estimation it was nearly twice as long as Shinna's ship. The crew immediately sprung into action, taking in the sails and keeping a safe distance from the other boat. Three silhouettes appeared from a tower that protruded from the dark steel mass. Shinna shouted to them, "Hoy!" with a voice louder than three of Melna's loudest voices and a higher pitch that carried over the ocean's sounds. The three shouted back, "Hoy!" and the strange boat slowed to a halt at their closest point.
 

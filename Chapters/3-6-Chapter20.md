@@ -76,7 +76,7 @@ He continued, "Had me worried. I need you alive, you know."
 
 "Fuck. You."
 
-He chuckled, "Still alive, and just as profitable. Nobody told me you were the fabled fidelant from Heiko. Would have been a bit more considerate when I stopped you on that stairwell."
+He chuckled, "Still alive, and just as profitable. You should have mentioned you were the fabled fidelant from Heiko. I'd have been a bit more considerate when I stopped you on that stairwell."
 
 "Fuck. Your consideration."
 
