@@ -85,7 +85,7 @@ Thi tried to tidy up the knot on her waist, but quickly found that nothing could
 
 "And I fucking meant it now go clean up the mess from the fire."
 
-"Probably got a few knobs to polish down there," thi said suggestively as thi looked Melna in the eyes and walked away. Melna didn't get it.
+Panna took a few steps back and fixed hae eyes squarely on Melna. "Probably got a few knobs to polish down there," thi said. Melna didn't pick up hae meaning.
 
 "We're almost to the blockade. Are you ready?"
 
@@ -111,12 +111,19 @@ Melna sat with what thi said, and vehemently disagreed in her mind. But she figu
 
 Melna's memory conjured a memory of Liffa helping her fasten her robes in the windowlight. And Kipnu nuzzling her in the doorway. And in a daydream she wished for it all again. To relive that day and tell them that it was okay. That they had nothing to worry about.
 
-"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by a superior force while we try to flee for our lives from certain destruction. I want you to remember whatever happens here today. If what you say is truly what you all believe, then you will surely be next."
+"You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by a superior force while we try to flee for our lives from certain destruction. I want you to remember whatever happens here today. If you truly believe that we are beyond saving, that all the worlds' nations and tribes must fend for themselves, then surely you will be next."
 
-<!--left off-->
-<!-- Kipnu off the boat? -->
+Shinna's attention had been pulled away by hae thoughts, and Melna took the moment to reach into her satchel one last time to retrieve the listener and carefully apply it to her ear.
 
-Thi finished fastening the last knot and Melna turned around to see that hae attention was pulled away by hae thoughts. Thi was considering what she had said, or so she hoped. An unfamiliar voice came in loudly on the listener, "Surfacing," and not a moment after, a woman from the top of the bow called out, "Ship approaching!" From the darkness of Ulu on the left side their ship, a great volume of water was split in two as a huge mass of steel lifted out of the water. From Melna's estimation it was nearly twice as long as Shinna's ship. The crew immediately sprung into action, taking in the sails and keeping a safe distance from the other boat. Three silhouettes appeared from a tower that protruded from the dark steel mass. Shinna shouted to them, "Hoy!" with a voice louder than three of Melna's loudest voices and a higher pitch that carried over the ocean's sounds. The three shouted back, "Hoy!" and the strange boat slowed to a halt at their closest point.
+"Maybe you're right Melna," said Shinna. "Maybe they're leading us on. But the only other option is certain death."
+
+"No. Not death," she said, grasping at hae hand. "A fight is not death."
+
+"All the world against the Holragi? We'd be doing the obscura a favor."
+
+<!-- left off -->
+
+An unfamiliar voice came in loudly on the listener, "20 paces," and not a moment after, a man from the top of the bow called out, "Ship approaching!" From the darkness of Ulu on the left side their ship, a great volume of water was split in two as a huge mass of steel lifted out of the water. From Melna's estimation it was nearly twice as long as Shinna's ship. The crew immediately sprung into action, taking in the sails and keeping a safe distance from the other boat. Three silhouettes appeared from a tower that protruded from the dark steel mass. Shinna shouted to them, "Hoy!" with a voice louder than three of Melna's loudest voices and a higher pitch that carried over the ocean's sounds. The three shouted back, "Hoy!" and the strange boat slowed to a halt at their closest point.
 
 "What.. is that thing?" Melna asked hae.
 

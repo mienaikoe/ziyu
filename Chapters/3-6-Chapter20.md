@@ -176,15 +176,15 @@ They laid him down against the railing on the side of the ship opposite Melna. T
 
 She couldn't help but laugh.
 
-Shinna came back to Melna and said, "You almost set the whole ship ablaze."
+Shinna came back to Melna and said, "You nearly destroyed half our cargo"
 
-"Were it me, I'd have finished the job."
+"And we almost got the sack of shit we were aiming for."
 
 Melna kept her eyes fixed on Ramne, never letting his new disfigured form out of her memory.
 
-"And where is Ginnu?", thi paused for response but Melna was silent, never taking her eyes off of Ramne. "Are you hearing me?"
+"And where is Ginnu? He's convinced thi was here." Thi paused for response but Melna was silent, never taking her eyes off of Ramne. "Are you hearing me?"
 
-But Melna could sense that something more about Ramne. That he was hiding something that he'd done behind that smirk of his.
+But Melna could sense that something more about Ramne. That there was still more he was hiding behind that smirk of his.
 
 "A man like that is worth dying to kill", said Melna. "Don't you agree?"
 
