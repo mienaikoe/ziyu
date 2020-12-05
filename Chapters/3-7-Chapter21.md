@@ -113,7 +113,7 @@ Melna's memory conjured a memory of Liffa helping her fasten her robes in the wi
 
 "You know," she started to formulate why she disagreed with Shinna, "I loved once. Not long ago. I lost them trying to bring peace to the senate. In the end it was worthless. Holrag's insatiable hunger brought us here: blockaded by a superior force while we try to flee for our lives from certain destruction. I want you to remember whatever happens here today. If you truly believe that we are beyond saving, that all the worlds' nations and tribes must fend for themselves, then surely you will be next."
 
-Shinna's attention had been pulled away by hae thoughts, and Melna took the moment to reach into her satchel one last time to retrieve the listener and carefully apply it to her ear.
+Shinna's attention had been pulled away by hae thoughts, and Melna took the moment to toss her satchel onto her shoulders again.
 
 "Maybe you're right Melna," said Shinna. "Maybe they're leading us on. But the only other option is certain death."
 
@@ -121,55 +121,61 @@ Shinna's attention had been pulled away by hae thoughts, and Melna took the mome
 
 "All the world against the Holragi? We'd be doing the obscura a favor."
 
-<!-- left off -->
+A man from the top of the bow called out, "Ship approaching!" From the darkness of Ulu, a great volume of water was split clear in half as a huge mass of black steel breached the water. From Melna's estimation it was nearly twice as long as Shinna's ship, and some unfathomable length underneath. The crew immediately sprung into action, taking in the sails and stabilizing the rudder to avoid a collision.
 
-An unfamiliar voice came in loudly on the listener, "20 paces," and not a moment after, a man from the top of the bow called out, "Ship approaching!" From the darkness of Ulu on the left side their ship, a great volume of water was split in two as a huge mass of steel lifted out of the water. From Melna's estimation it was nearly twice as long as Shinna's ship. The crew immediately sprung into action, taking in the sails and keeping a safe distance from the other boat. Three silhouettes appeared from a tower that protruded from the dark steel mass. Shinna shouted to them, "Hoy!" with a voice louder than three of Melna's loudest voices and a higher pitch that carried over the ocean's sounds. The three shouted back, "Hoy!" and the strange boat slowed to a halt at their closest point.
+Three silhouettes appeared from the towering dark and stood looking down at them. "Hoy!" Shinna shouted to them with a voice louder than any Melna had heard at the senate. But the phantoms didn't respond, they kept looking down and talking amongst each other.
 
-"What.. is that thing?" Melna asked hae.
+"What.. is that thing?" Melna asked.
 
-"A submersible, but I've never seen one this big. The can just float below the surface to stay invisible."
+"A submersible. They float just below the surface to stay invisible. I've seen a few but never one this big."
 
 "What would they need with something like that?"
 
 "It's a deterrent."
 
-"For what? None of the navies of Palinan have an underwater ship."
+"There's no ship in Palinan nearly that size. It's a weapon of conquering, not of defense–"
 
-Thi interrupted her, calling out to the people on the submersible again, "Permission to board!"
+"Permission to board!" Thi interrupted her, calling out to the people on the submersible again. "We have the Heikoi!"
 
-"State your business!" one of the silhouettes spoke. She spoke with authority, "You should be at your posted position by now."
+The people on the tower spoke amongst each other, and Melna saw their relationships. The left and right were soldiers by the stance and their armored look. And the person in the center was someone of status, giving orders and guiding the operation. With a simple gesture, one of the guards clambered down the tower on a ladder and gestured to Shinna to hold steady.
 
-"We have the Heikoi!" Shinna replied.
+"Don't go anywhere," Shinna told her.
 
-The people on the tower were confused, so they sent someone down the tower and gestured to Shinna to hold steady.
+"Really?" she asked rhetorically.
 
-"Don't go anywhere," said Shinna.
+Shinna disappeared into stowage, and Melna saw a new dark figure emerge from the tower. It was cloaked in something heavy that nearly reached the floor, but Melna couldn't make out anything more about it. Suddenly, bright white lights from the giant submersible began to flip on one-by-one, illuminating everyone on the deck in a cold blue-white light.
 
-"Where have I got to go?" she replied.
+"How are they doing that?" Melna asked aloud. She looked up at the rails above her to make sure they hadn't strayed from path, but she knew they would be there. There was nothing but dread in her heart as she stared into the blinding light.
 
-Shinna disappeared into stowage, and Melna saw a dark figure emerge from the tower. It was cloaked in something heavy that nearly reached the floor, but Melna couldn't make out anything more about it. Bright white lights from the giant submersible came on one-by-one, illuminating Shinna's ship. Shinna appeared from stowage and looked up at the lights, trying to find hae bearings, but caught sight of Melna's figure in the light, and ran to her with something in hae hand. Thi stopped very close to her and reached around her back to push something cold against her right arm.
+Shinna appeared from stowage with a hand at hae forehead, trying to find hae bearings. Thi caught sight of Melna's figure in the light and ran back to her with something hidden in hae hand.
 
-"Take it," thi said abruptly.
+"Take it," thi said abruptly, reaching around her back to push something cold against her side.
 
 "What is-"
 
-"It's a knife. You'll need to defend yourself. Take it."
+"You'll need to defend yourself. Take it."
 
-She was confused why thi was suddenly giving her a weapon, but she didn't hesitate to move her other arm to receive the small knife and its scabbard, and place it inside her robe at the top tie near her heart.
+She hesitated, confused.
 
-Shinna came forward and addressed the figure, "I am Shinna, captain of the third kelping ship of Rudjan. We request boarding to negotiate Melna's release."
+"Take it!" thi said under hae breath, and Melna move her left arm to receive the small knife from behind her. It was covered in a waxed cloth, perfect to blend with the cloth she was wrapped in. She discreetly slipped it inside the bottom of her robe at an angle where she could reach it easily, and drew a circle of gratitude on Shinna's back with her finger.
 
-The newest figure consulted with the speaking shadow, and she said, "Only the fidelant will board. There will be no negotiation."
+Shinna came forward and addressed the soldier who had climbed down from the metal tower, "I am Captain Shinna. We request boarding to negotiate the fidelant's release."
 
-"We were promised a placement in the new colony."
+But the people on the tower seemed to hear hae clearly. The cloaked figure spoke silently into an instrument, and the nearer soldier responded soon after.
+
+"Only the fidelant will board. There will be no negotiation," he said.
+
+"We were promised a position in the Red Circle."
 
 "We will confirm you when she boards."
 
-"That's not good enough."
+"That's not good enough," Shinna insisted.
 
-The two shadows spoke again and she responded, "You have one minute to comply or your ship will be laid to rest."
+The cloaked figure spoke again and the soldier responded accordingly. "You have one minute to comply or your ship will be destroyed."
 
-The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Maybe they had a way to fetch Melna after they sunk the ship. Her words were becoming truer with each passing minute and thi was scared of what that might mean.
+The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Melna's convictions were becoming truer with each passing minute and thi was scared of what that might mean.
+
+<!-- left off -->
 
 A member of the crew approached her. "What are you waiting for?" he said, anxiously. "Send her up!"
 
