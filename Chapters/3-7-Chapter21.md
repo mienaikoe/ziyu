@@ -77,7 +77,7 @@ Thi tried to tidy up the knot on her waist, but quickly found that nothing could
 
 "What was that?" asked Shinna as thi approached the two.
 
-"Ah, the maman of the hour," Panna said aloud.
+"I said you'd throw a tantrum," Panna said louder. "You know, like a baby?"
 
 "One more time, Panna, I swear."
 
@@ -85,7 +85,19 @@ Thi tried to tidy up the knot on her waist, but quickly found that nothing could
 
 "And I fucking meant it now go clean up the mess from the fire."
 
-Panna took a few steps back and fixed hae eyes squarely on Melna. "Probably got a few knobs to polish down there," thi said. Melna didn't pick up hae meaning.
+"Fine," said Panna taking a few steps away, "Got a few knobs to polish down there anyway."
+
+"Shbpaaah," Shinna exclaimed under hae breath, and took a long deep breath to forget about hae.
+
+"You look like you're about to save the world," thi said, looking at Melna up and down.
+
+"I am," she said without a beat.
+
+"In any other time, what you're doing would be considered legendary. I fear that no one will be around to tell your side of the story."
+
+"If none of my people survive, then such a title would be undeserving, don't you think?"
+
+Shinna held haeself from saying the multitudes of apologies and praises that thi wanted to say. Thi knew none of it would seem genuine from hae in such a moment.
 
 "We're almost to the blockade. Are you ready?"
 
@@ -93,11 +105,11 @@ Panna took a few steps back and fixed hae eyes squarely on Melna. "Probably got 
 
 "No," thi responded, but Melna continued anyway.
 
-"Is it really fear that makes you tick? Is everyone really fighting for a chance to live in the desert?"
+"Is it fear that makes you tick? Is the whole world really fighting for a chance to live in the desert?"
 
-Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything was simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. You may be young for a fidelant, but you probably know by now that things aren't quite that simple. All your good intentions mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird sky dots shutting off your source of warmth and life. If you were given a choice to let a million strangers die or watch everyone you love freeze to death, you will always. Always. Choose your own."
+Shinna sighed as if to prepare to tell a long story. "When I was a young kaln, everything seemed simple. There were good people and bad people. Law and lawlessness. 'Us' and 'them'. We both may be young for who we are, but we both know by now that all simple things are lies that someone has sold to you. Every good intention, every tenet of philosophy, every teaching from wise people in a time of prosperity. They all mean nothing when death is staring you in the eye. It could be holding you up by neck with a sword to your chest. Or slowly gnawing away at the bones of your starving children. Or it could be some weird dots in the sky shutting off Ara. If you were given a choice to let a million strangers die or watch everyone you love freeze to death, you will always. Always. Save your own."
 
-Melna sat with what thi said, and vehemently disagreed in her mind. But she figured it was best if she kept her thoughts on the topic to herself.
+Melna sat with what thi said, and vehemently disagreed in her mind. But she figured it was best if she kept her thoughts to herself.
 
 "You think anyone in Heiko knows?" thi asked.
 
@@ -137,9 +149,9 @@ Three silhouettes appeared from the towering dark and stood looking down at them
 
 "Permission to board!" Thi interrupted her, calling out to the people on the submersible again. "We have the Heikoi!"
 
-The people on the tower spoke amongst each other, and Melna saw their relationships. The left and right were soldiers by the stance and their armored look. And the person in the center was someone of status, giving orders and guiding the operation. With a simple gesture, one of the guards clambered down the tower on a ladder and gestured to Shinna to hold steady.
+The people on the tower spoke amongst each other, and Melna saw their relationships. The left and right were soldiers by the stance and their armored look. In the center was a man with a lantern, someone of status, giving orders and guiding the operation. He clambered down a ladder with the lantern in his teeth and then gestured to Shinna to hold steady.
 
-"Don't go anywhere," Shinna told her.
+Shinna glanced at Melna. "Don't go anywhere," thi said.
 
 "Really?" she asked rhetorically.
 
@@ -159,9 +171,9 @@ She hesitated, confused.
 
 "Take it!" thi said under hae breath, and Melna move her left arm to receive the small knife from behind her. It was covered in a waxed cloth, perfect to blend with the cloth she was wrapped in. She discreetly slipped it inside the bottom of her robe at an angle where she could reach it easily, and drew a circle of gratitude on Shinna's back with her finger.
 
-Shinna came forward and addressed the soldier who had climbed down from the metal tower, "I am Captain Shinna. We request boarding to negotiate the fidelant's release."
+Shinna came forward and addressed the negotiator, "I am the captain. We request boarding to negotiate the fidelant's release."
 
-But the people on the tower seemed to hear hae clearly. The cloaked figure spoke silently into an instrument, and the nearer soldier responded soon after.
+But the cloaked figure on the tower seemed to hear hae clearly, and spoke silently into an instrument without pause, and the negotiator responded soon after.
 
 "Only the fidelant will board. There will be no negotiation," he said.
 
@@ -171,37 +183,47 @@ But the people on the tower seemed to hear hae clearly. The cloaked figure spoke
 
 "That's not good enough," Shinna insisted.
 
-The cloaked figure spoke again and the soldier responded accordingly. "You have one minute to comply or your ship will be destroyed."
+The cloaked figure spoke again and the soldier responded accordingly. "You have one minute to accept or your ship will be destroyed."
 
 The entire crew looked to Shinna who paused to wonder if they would really do such a thing. Melna's convictions were becoming truer with each passing minute and thi was scared of what that might mean.
 
-<!-- left off -->
+Ramne approached them, limping through the pain, a streak of blue surrounding his wounds.
 
-A member of the crew approached her. "What are you waiting for?" he said, anxiously. "Send her up!"
+"What are you waiting for?" he said, anxiously. "Send her up!"
 
-"Hold on," Shinna said calmly to him, and turned to address the silhouettes once more.
+"Hold on," Shinna said sternly, and turned to address the silhouettes once more.
 
 "I will board with Melna. I come unarmed."
 
-The two spoke once more and said, "No more than you. We will search your person upon arrival."
+"You and the fidelant. No more. We will search your person upon arrival."
 
-Shinna turned to Melna with a smile and whispered, "You see that? That's why they made me captain."
+Shinna turned to Melna with a smile and whispered, "See that? The great negotiator of Yansha just saved your ass." But secretly, thi was terrified that hae bluff was called.
 
-Four of the crew members produced a wooden ladder and cantilevered it up and out to bridge the gap between ships. Shinna secured it and checked hae pockets for any extra weapons thi might have forgotten and proceeded first followed by Melna who was significantly more careful getting down. The lights followed them as they crawled over the ocean on that rickety ladder, and Melna caught a glimpse of slight details of the submersible. It was indeed plates of steel with strong bolts all across the hull, and few if no portholes on the sides. There was no deck to speak of, just two towers that jutted out of the hull like tall trees searching for light. As she neared the top, Shinna had already arrived on the tower and was being searched by the figure in the tower.
+The negotiator yelled "Make way!" and the crew backed up as the soldiers on the tower threw giant metal hooks with cables attached across the water and onto their deck, securing them on the railing. Mechanical pulleys dropped down each of them and came to rest at the edge of the Kutsa.
 
-Thi had activated her scrappy old self. "I'm not leaving her here!" she said.
+"Proceed!" he said, then climbed back up the the ladder he'd come down on.
 
-The larger silhouette spoke "You certainly won't be leaving here then," and Melna knew it was Fajro.
+The bright lights from the submersible followed them as the mechanical pulleys pulled them up and over the water on steel cables. Melna caught a glimpse of the submersible at the edges of hae shaddow. It was indeed made of plates of steel with strong rivets all across the hull, and not a window in sight. There was no deck to speak of, just the one tower that jutted out of the hull like a tall tree searching for light. As she neared the top, Shinna had already arrived on the tower and was being searched by the soldiers.
 
-Shinna said, "What do you mean?"
+"I'm not leaving her here!" thi said.
 
-And all at once, Fajro reached into his jacket for a strange steel weapon and Melna screamed, "Shinna, run!"
+"You certainly won't be leaving here then," said the cloaked figure, and Melna knew his voice like a cruel nightmare come to haunt her again.
 
-Thi ducked and scrambled for Melna and a great blast cracked the air above them. Melna grasped for Shinna's arm as thi fell off the ladder into the tall gap, and it held strong as she used hae momentum to loft hae back onto the ladder behind her. Melna smelled burnt sulfur and soot as Fajro pointed that smoking rod at her head. Melna moved to the tower and knealed to block Shinna from his line of view. Shinna screamed, "No! Don't go! They'll kill you!", as hae crew had already begun reeling the ladder back in with hae on it. Be she knew her fate. She knew that anyone who tried to save her would not be spared.
+"Get away from hae, Fajro!" she said. Shinna ducked behind the steel railing to help Melna up onto the tower when all at once, Fajro reached into his jacket for a strange steel weapon and pointed it at Shinna.
 
-"First time seeing a gun, I take it," he said with an air of arrogance.
+"Go!" Melna said to Shinna, but a great blast cracked the air above them and set their ears ringing. Shinna had jumped out of reflex, loosening hae grip just enough for hae to begin falling. Melna grasped for Shinna's arm as quickly as she could, and it held strong. With hae momentum, she lofted hae high enough to reach the pulley thi had arrived on.
 
-"Come, Melna," he gestured toward the hole he came out of. "We have much to discuss."
+The odor of burnt sulfur and soot filled the air as Fajro pointed the weapon at her head. Melna moved herself onto the tower and stood in front of Shinna to block his line of view.
+
+"No! Don't go! They'll kill you!", Shinna screamed. Be she knew her fate. She knew that anyone who tried to save her would not be spared. She pushed gently on the pulley behind her and sent Shinna back down the cable.
+
+"No!" Shinna screamed, "No!" but hae voice disappeared into the cold air.
+
+"First time seeing a gun, I take it," said Fajro with an air of arrogance.
+
+"Come, Melna," he gestured toward the hole he'd come out of. "We have much to discuss."
+
+<!-- left off -->
 
 She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holrag soldiers before her. Fajro smiled as he looked her up and down the way he might inspect a prize-winning saffa.
 

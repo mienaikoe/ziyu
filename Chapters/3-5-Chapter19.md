@@ -110,7 +110,7 @@ Melna hesitated to introduced herself, but decided it was in her best interest t
 
 "I'm Mel-", she rethought her words, "ka. Melka."
 
-"Me'ka. A wonderful name," said the maman. "I'm Shimba, guardian and captain of the Silver Saffa. We're about the depart to Yansha, but, I think we have room for one more."
+"Me'ka. A wonderful name," said the maman. "I'm Shimba, the great merchant-chemist of Yansha, captain of the Silver Saffa. We're about the depart to Yansha, but, I think we have room for one more."
 
 "Actually," she said graciously, "I _am_ looking for a way back home."
 
