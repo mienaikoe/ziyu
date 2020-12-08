@@ -37,21 +37,19 @@ Thi hesitated, looked around for conspicuous lookers-on, then chose a spot some 
 
 "It would be a lot quicker with some help."
 
-Panna looked at Melna with a half-lustful half-disgusted gaze that wasn't lost on Melna, and then thi shuffled over and took the bandages into hae own hands as Melna sat up straight with her hands above her head. Panna began quickly and roughly, making sure the kelp was tight and well-mended to each other piece. But Melna's face turned red and dewy; even the hardest of sailors knew when to stop.
+Panna looked at Melna with a half-lustful half-disgusted gaze that wasn't lost on Melna.
+
+"I'm not your nurse," thi said, and then thi shuffled over and took the bandages into hae own hands as Melna sat up straight with her hands above her head. Panna began quickly and roughly, making sure the kelp was tight and well-mended to each other piece. But Melna's face turned red and dewy; even the hardest of sailors knew when to stop.
 
 "Thank you, Panna," said Melna after thi had finished tying the end. Her face was still flush with pain. Panna didn't respond, but went right back to hae spot a distance away.
 
 When she was ready, Melna opened her bag again and removed the robes she had been carrying. This would be the last time she could fulfill her role as a fidelant, she figured. She would wear them proudly, in a symbolic stance against whichever of Holrag's sharks were coming for dinner.
 
-Her hands moved gracefully and proficiently, recalling the movements from some unseen invisible part of her memory.
+Her hands moved gracefully and proficiently despite her burns, recalling the movements from some distant but tidy corner of her memory.
 
-Melna finally got the robe setting nicely around her and called over her shoulder, "Panna, Could you help me with these waistropes?"
+"Panna", she called over her shoulder, "Could you help me with these waistropes?"
 
-Thi turned to see Melna turned away and her arms holding two soft white ropes behind her back.
-
-"My jundmaman usually helps me with this part, but thi's a bit busy at the moment."
-
-"Fidelants can't even dress themselves, eh?"
+"Fidelants. Can't even dress themselves."
 
 "These are my last moments in friendly company. I don't want to waste them getting dressed."
 
@@ -61,7 +59,7 @@ Thi made the strange ticking sound with the tip of hae tongue again and walked o
 
 "Big project, this... blockade," thi asked while starting a square knot. "You think any of your people will make it out?"
 
-"I don't know," she said belaboredly, "Holragi has a far strong military presence. I don't know what we can do."
+"I don't know," she said, her voice belabored. "Holragi has a far stronger military presence. I don't know what we can do."
 
 "Eh, those Holragi dogs don't care about their jobs. Everyone is enslaved to someone else out there."
 
@@ -223,17 +221,19 @@ The odor of burnt sulfur and soot filled the air as Fajro pointed the weapon at 
 
 "Come, Melna," he gestured toward the hole he'd come out of. "We have much to discuss."
 
-<!-- left off -->
+She looked back at the ship that brought her here, at Shinna, and the conflict thi held within haeself, who was scrambling to climb back up the rope as Fajro's soldiers cut the lines and Panna held hae back for hae own safety. And the crew who saw her only as a token in exchange for their lives. They would have been fools not to take it from anyone else.
 
-She looked back to make sure Shinna descended back to the safety of hae ship, then stood up and refocused her attention on the Holrag soldiers before her. Fajro smiled as he looked her up and down the way he might inspect a prize-winning saffa.
+Fajro smiled as he looked her up and down the way he might inspect a prize-winning saffa. There is no displeasure quite like the stare of an impudent stranger. But there are some who cast their delusions onto the skin of others and fill them with the rot that lives inside their hearts. Fajro was one of them.
 
 "You look like you turn a few heads in the senate," he said, eyeing her up and down. "It's a shame we never worked together."
 
-"Truly a shame," she replied, "I could have turned your head right off."
+"Truly a shame," she replied, "I could have turned yours right off."
 
-His frown took a moment to form, and then he sighed and changed the subject, "Shall we?" as he gestured with his cane toward a plaform covering the hole in the tower they had come out of. Without protest, she stepped upon it with Fajro soon after and they descended into the belly of that mechanical beast.
+His frown took a moment to form, and then he sighed and changed the subject, "Shall we?" as he gestured with his cane toward a large circular metal door in the floor. With a clank and a squeak, the door swung downward, and a platform rose to fill the gap. Without protest, she stepped upon it with Fajro and his soldiers close behind, and they descended into the belly of that mechanical beast.
 
-The inside was a maze of tunnels with double doors at nearly every twenty paces, and walls lined with stale yellow incandescent bulbs that brought its warmth neither to the greased steel walls nor to the grey worn wood that made up the floor. They were cheap imitations of Ara-light that were nothing like the original. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
+The inside was a maze of tunnels with double doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
+
+<!-- left off -->
 
 The static on her listener had dulled to a whisper as Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction. But after much wandering they arrived at a large room with several people sitting at desks of knobs and buttons with wired listeners fastened to both of their ears and a protrusion on one side for what seemingly looked like a microphone. She wondered at the utility of the knobs and buttons, but knew that they were likely listening to a much more sophisticated permutation of what was around her own ear.
 

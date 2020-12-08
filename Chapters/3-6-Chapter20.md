@@ -86,7 +86,7 @@ He chuckled, "Still alive, and just as profitable. You should have mentioned you
 
 "Oh those are for my protection. I know my ways can be a little crude to some people, but where you're going, you'll wish you were back here with me."
 
-She stayed quiet as he made a rustling noise and his boots knocked against the creaky floor. Step by step, he moved slowly toward her, and came to rest at her side. She glanced around for a pair of blue eyes, but didn't see any sign of the maman. A faint whirring sound of a firestarter being warmed startled her and an oil lamp lit up, showing Ramne's smug face and lustful eyes staring at hers. There is no other displeasure quite like being the prey of another's eye. She felt it at Heiko station: How the two looked at her with a hungry gaze, eyeing her satchel and her saffa. She felt it in Fajro's presence, his face a thin mask to hide his lustful thoughts. And now she knew it most here, in the presence of some narcissistic lunatic.
+She stayed quiet as he made a rustling noise and his boots knocked against the creaky floor. Step by step, he moved slowly toward her, and came to rest at her side. She glanced around for a pair of blue eyes, but didn't see any sign of the maman. A faint whirring sound of a firestarter being warmed startled her and an oil lamp lit up, showing Ramne's smug face and a carnal pair of eyes staring at hers.
 
 "Holrag is looking for you, you know," he said. "And they're promising a hefty reward."
 
