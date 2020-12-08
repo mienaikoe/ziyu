@@ -233,9 +233,9 @@ His frown took a moment to form, and then he sighed and changed the subject, "Sh
 
 The inside was a maze of tunnels with double doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
 
-<!-- left off -->
+Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of knobs and buttons set into metal boxes, and black cable leading to a listener on every ear that sat there. There was one metallic rod at the center with a lever on it that Melna surmised was a microphone of sorts, like the ones at the conduits. She slowly reached into her satchel for the listener, and placed it onto her ear, but there was nothing but static.
 
-The static on her listener had dulled to a whisper as Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction. But after much wandering they arrived at a large room with several people sitting at desks of knobs and buttons with wired listeners fastened to both of their ears and a protrusion on one side for what seemingly looked like a microphone. She wondered at the utility of the knobs and buttons, but knew that they were likely listening to a much more sophisticated permutation of what was around her own ear.
+<!-- left off -->
 
 "Do you know why you're here, Melna?" Fajro asked her rhetorically, "And why now?"
 
