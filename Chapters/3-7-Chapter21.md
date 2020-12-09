@@ -231,33 +231,35 @@ Fajro smiled as he looked her up and down the way he might inspect a prize-winni
 
 His frown took a moment to form, and then he sighed and changed the subject, "Shall we?" as he gestured with his cane toward a large circular metal door in the floor. With a clank and a squeak, the door swung downward, and a platform rose to fill the gap. Without protest, she stepped upon it with Fajro and his soldiers close behind, and they descended into the belly of that mechanical beast.
 
-The inside was a maze of tunnels with double doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
+The inside was a maze of tunnels with opened doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
 
-Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of knobs and buttons set into metal boxes, and black cable leading to a listener on every ear that sat there. There was one metallic rod at the center with a lever on it that Melna surmised was a microphone of sorts, like the ones at the conduits. She slowly reached into her satchel for the listener, and placed it onto her ear, but there was nothing but static.
+Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of knobs and buttons set into metal boxes, and black cable leading to a listener on every ear that sat there. There was one microphone at the center with a lever on it like the ones at the conduits. Melna figured was for speaking over the air. She slowly reached into her satchel for the listener, but stopped. They didn't yet know that she could hear what they could hear.
 
-<!-- left off -->
+"Do you know why you're here, Melna?" Fajro asked her rhetorically
 
-"Do you know why you're here, Melna?" Fajro asked her rhetorically, "And why now?"
+"We are about to make history," he said with open arms to sing the praises for this place. "Liffa is about to meet the obscura and open our eyes to who they are. I wanted you to see this in person; to see first-hand what kind of work we're trying to do."
 
-He didn't wait for an answer.
+He turned to her with a face full of conviction.
 
-"We are about to make history. Your jundsmaman is nearly at the obscurae. I wanted you to see this in person. To see first-hand what kind of work we're trying to do. You see, I dream of a day when we can look back on the obscura as just another problem we all managed to fix by working together. If we continue to do nothing, we submit ourselves to the will of the universe and it will eventually kill us as it is now."
+"I dream of a day when we can look back on this time as nothing but a short blip in history. A cold spell in a time of prosperity. But for this to happen, we need strong leaders. People like you and me. We cannot stand idly by and watch the obscura destroy us. We must take action."
 
-He moved to stare closer to Melna's face. To make sure she was paying attention. But all she could think of was the odor of Heikoi grain glycol on his breath.
+He took her hand and spoke with the odor of Heikoi grain on his breath. She felt her skin crawl, her pores closing.
 
-"Our vision is one in which we are no longer slaves to the chaos that lurks in the dark. We can own that chaos, transform it into something much greater than it is."
+"You and me, we're not so different, you know. We're both visionaries fighting to save this world as it teeters over a dark cliff."
 
-"And you'll ruthlessly murder anyone who stands in your way."
+"We are nothing alike," she said. "Your actions help no one but you."
 
-He laughed through his nose as a father might to his child, "Yes. The survival of everything on this planet depends on the success of this plan. Unfortunately, we don't have the time for debate. We only have the time to act."
+He laughed through his nose as a father might to his child, "The survival of everything on this planet depends on the success of this plan. Unfortunately, this is not a problem that can afford debate. Dissenters must be silenced for the greater good. You understand."
 
-"So, what's the offer?" she asked in her most diplomatic of voices. She wanted to catch him a little bit off guard.
+She was done with his words. "So, what's the offer?" she asked in her most diplomatic of voices. She wanted to catch him a little bit off guard.
 
-"Always in a rush, you younger type."
+"Always in a rush, you younger ones."
 
-"I know stalling when I hear it. Tell me how I fit into this plan of yours and I'll see what I can do."
+"I know stalling when I hear it. Tell me how I fit into this plan of yours."
 
 "That's the spirit."
+
+<!-- left off -->
 
 "Don't get me wrong, I still think you're a conniving bloodbeetle who gets off on watching others suffer. I just want to get this overwith."
 
