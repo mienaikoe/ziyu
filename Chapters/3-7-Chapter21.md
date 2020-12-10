@@ -255,17 +255,21 @@ She was done with his words. "So, what's the offer?" she asked in her most diplo
 
 "Always in a rush, you younger ones."
 
-"I know stalling when I hear it. Tell me how I fit into this plan of yours."
+"I can tell when a man is stalling. Tell me how I fit into this plan of yours."
 
-"That's the spirit."
+He snickered amusedly. "I applaud your enthusiasm," he said.
+
+"Oh don't get me wrong. I still think these deranged ideas of yours are nothing more than the musings of a man so wet with power that he's given up on the social pact he swore to protect. I just want to get this overwith."
+
+"Everything I do is _for_ the pact. It is _for_ the provinces. _You_ have been standing in the way–"
+
+"–No, I get it now. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoi at the same time. You want to think you're in the right, that people truly think well of you. But through all this power, your weapons, your labor camps; you've kept up this illusion that the fear you see around you is protection."
+
+"There is no better protection than the promise of salvation."
 
 <!-- left off -->
 
-"Don't get me wrong, I still think you're a conniving bloodbeetle who gets off on watching others suffer. I just want to get this overwith."
-
-"Now that's unfair."
-
-"No, I get it. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoi at the same time. You think that's how people think of you. But you don't know that they all secretly fear you. Wish you were gone. All you'll be remembered as is the man who destroyed a city for his own self-righteousness," she raised her voice to an increasingly flustered Fajro.
+"Empty promises. will forever be known as the man who destroyed a city for his own self-righteousness."
 
 "You're being ridiculous. I wouldn't destroy a city. My legacy is written in steel."
 
