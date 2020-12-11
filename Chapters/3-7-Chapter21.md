@@ -263,41 +263,41 @@ He snickered amusedly. "I applaud your enthusiasm," he said.
 
 "Everything I do is _for_ the pact. It is _for_ the provinces. _You_ have been standing in the way–"
 
-"–No, I get it now. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoi at the same time. You want to think you're in the right, that people truly think well of you. But through all this power, your weapons, your labor camps; you've kept up this illusion that the fear you see around you is protection."
+"–No, I get it now. You want to be the one everyone remembers as their heroic savior. The man who thwarted the obscura and the evil Heikoi at the same time. You want to think you're in the right, that people truly think well of you. But through all this power, your weapons, your labor camps; you still can't see past the illusion that the fear you see around you is protection."
 
-"There is no better protection than the promise of salvation."
+"They fear the obscura. I am their salvation."
 
-<!-- left off -->
+"They are afraid of you and you are their last resort."
 
-"Empty promises. will forever be known as the man who destroyed a city for his own self-righteousness."
+"My legacy is written in steel, not blood."
 
-"You're being ridiculous. I wouldn't destroy a city. My legacy is written in steel."
-
-"Yea? You think steel is all it takes? What do you think the steel will mean to the ones who are left? The slaves that built your rail, manned your army, did your bidding. What kinds of stories do you think they'll tell aboout you? What kind of shadows will lurk within the monstrosities you built out of the steel you value so dearly?"
+"Steel," she laughed. "And who forged it into your rails, twisted it into your cables, cast it into your weapons? What kinds of stories do you think your slaves tell about you? What do they think when they polish your guns?"
 
 "You're wasting your breath."
 
-"No. I think they'll be too busy ushering in their new master to remember you."
+"Your days will dwindle as you clutch tighter, and by the time you've realized how powerless you've become, a new master will have risen."
 
-"Are you do-?"
+"You will stop at once–"
 
-"You'll be dead to them. Replaced by a child of the revolution. Someone who promises to never again allow your atrocities see the light of day."
+"You'll be dead to them. Replaced by a child of the revolution, someone who promises that your atrocities will not go unpunished."
 
 "You're not listen–"
 
 "You'll beg and grovel for their attention, rotting in an underground pris–"
 
-He took her by the neck and pinned her against the wall of the radio room to silence her, spitting to her, "You have no idea how sorry you'll be once you are forgotten. Your people will worship the stone that I tread, the air that I breathe. You'll wish you had died here."
+He took her by the neck and pinned her against the wall of the radio room to silence her, spitting to her, "You have no idea who you're dealing with. Your people will worship the stone that I tread, the air that I breathe. You'll wish you had died here while everything you love turns to ashes in the blink of an eye!"
 
-Despite the parade of colorful sparks blotting her eyes, and the unproductive gasps for air, She gathered his words into a theme and then an understanding of his true intentions, and she managed to put on a smirk. Fajro looked around through labored breaths as his self-awareness gradually resurfaced, and he took his hand off of her, embarrassed that his crew had seen such a belligerent outburst from him. He was beginning to realize that she was a bit more cunning than he first believed.
+Through the unproductive gasps for air, she managed to put on a smirk. Fajro looked around through labored breaths as his self-awareness gradually resurfaced, and he took his hand off of her, embarrassed that his crew had seen such a belligerent outburst.
 
-A radio operator announced, "Žah-Fajro. Liffa is ready," and with a shake of his head and a furious look on his face, he approached the operator and yanked the longer listener from hae ears, sloppily raising the box up to his head and pressing a button on the outer face when he wanted to talk.
+A radio operator called to him, "Žah-Fajro," and with a furious look on his face, he approached the operator, yanking the long corded listener from hae ears. Sloppily, he raised the microphone device to his face and pressed a button that had been directly fastened to it.
 
-"Liffa. That you?"
+"Liffa," he said, pretending to be settled. "That you?"
 
-Melna gasped for air but listened louder.
+Melna breathed heavily to replace her air, but she listened louder as they continued.
 
-"Right," he said, "We have her here now. I'll put her on real quick."
+"Right," he said, "We have her here now. I'll put her on."
+
+<!-- left off -->
 
 "Bring her here, dammit!" he barked at the soldiers surrounding Melna. "What are you waiting for!"
 
