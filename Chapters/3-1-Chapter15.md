@@ -48,7 +48,7 @@ Melna took a few deep breaths to regain her composure.
 
 "But we've been getting recordings of Liffa's voice every tova'la," said Jesse.
 
-"If they aren't missions, then they must be weapons of some kind. They aren't waiting for Liffa."
+"If they aren't missions, then they must be weapons of some kind. They aren't waiting for Liffa to return."
 
 "Jesse," she turned and approached him. "I want you to record every dot, every time, and find a way to determine their size and trajectory. Pomri will be here tomorrow morning to get your updates before you switch shifts. If anything changes after that, wire your findings to me on the private senate channel. I'm calling for a debate in the evening."
 
@@ -62,7 +62,7 @@ Jesse scurried away to fetch some empty film plates while Pomri rose from her de
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
-"This goes beyond my relationship with Liffa. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they keep us in the dark."
+"This goes beyond my family. This is about Holrag's secrets. All of Palinan is relying on them to lead the way, and still they keep us in the dark."
 
 "Holrag has a plan. We must play by their rules."
 
@@ -218,7 +218,7 @@ She decided to be deliberate. Another prying question might push Linyu to leave,
 
 Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the texture of Liffa's robes clothing Linyu's shoulders.
 
-"You know, my jund... Liffa." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. The other one was always better at it."
+"You know, my jundmaman..." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. The other one was always better at it."
 
 Linyu whispered, "Liffa".
 
@@ -226,9 +226,9 @@ Linyu whispered, "Liffa".
 
 Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi reached into hae shirt and pulled out Kipnu's binding pendant. A golden yellow reflection stared back at Melna through the mirror polish she grew to recognize. It was scratched, but only lightly.
 
-"Melna.na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many scratches and warpings that had battered it, and she sensed that he would not be coming back.
+"Mel...na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many imperfections she'd grown accustomed to, and for the first time, she sensed that her bunds would not be coming back.
 
-Thi wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kipnu. Love. You."
+Linyu wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kipnu. Love. You."
 
 She held onto hae tightly, as if a great force was pulling them apart, and cried for the first time since losing Liffa to Holrag's ambitions. Linyu was pressing hae hands across her face, absorbing the tears while holding on as well. Thi wanted to tell her so many things, but thi knew the pain would be too great for her to swallow.
 
@@ -236,6 +236,6 @@ Melna fell asleep crying, lying on the ground outside the washroom with Linyu's 
 
 Before sleep, thi interlocked hae hands with Melna's and mouthed to her a silent resolution.
 
-"To save Ara. To save you. I swear to follow you until the end."
+"To save Ara. To save you. I swear to follow you beyond the end."
 
 Thi held a moment of mental silence to internalize the promise, and then rolled back over, thinking about tomorrow.

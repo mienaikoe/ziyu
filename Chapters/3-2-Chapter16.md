@@ -24,7 +24,7 @@ There was no answer, but from a distance she spotted the figure of a saffa lying
 
 Thi started to talk but remembered the pain in hae throat as only a whisper emerged. Thi cleared it gently and tried again.
 
-"Tree," thi said with only the scratch of a voice, holding haeself up against the ground.
+"Tree," thi said with only the scratch of a voice, holding haeself up against the ground. "Wind. Speaks."
 
 "I was so worried where you had gone."
 

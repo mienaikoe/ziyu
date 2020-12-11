@@ -293,21 +293,32 @@ A radio operator called to him, "Žah-Fajro," and with a furious look on his fac
 
 "Liffa," he said, pretending to be settled. "That you?"
 
-Melna breathed heavily to replace her air, but she listened louder as they continued.
+Melna breathed heavily to replace her lost air, but steadied her breathing so she could listen closely as they continued.
 
-"Right," he said, "We have her here now. I'll put her on."
-
-<!-- left off -->
+"Right," he said, "She's here now. I'll put her on."
 
 "Bring her here, dammit!" he barked at the soldiers surrounding Melna. "What are you waiting for!"
 
-One of them shoved her toward him, and he came uncomfortably close to her face to talk at her.
+One of them pulled her by the arm, dragging her to Fajro. He came uncomfortably close to where she stood.
 
-"Now, listen. This isn't catch-up time. You get a few conversations, thi acknowledges you're here and then you're done. Got it?"
+"This isn't catch-up time. You get a few conversations, thi acknowledges you're here and then you're done."
 
-She nodded coldly, and Fajro cued to the operator to flip a stiff brass switch. Suddenly a faint static entered the room, intimate clicking sounds painting the air. He gave the larger listener to Melna and waved with a hand for her to press a lever.
+She nodded coldly. Fajro waved his hand in the air and an operator near to Melna gave the strange listener apparatus to her, while another much further away rested hae fingers steadily upon a brass switch.
 
-Melna mustered her mental strength, holding the listener in her left hand and shielding the microphone in the other. The lever sank and through a cracked voice she heard herself, "Liffa? Are you there?"
+Melna gathered every portion of her mental fortitude to protect herself against Fajro's games. With her left hand, she positioned the listeners comfortable on her ears. Across that vast unfathomable expanse, Melna heard the burdened breaths of the maman she swore her life to. The lever sank underneath her thumb and her breath began to fog up the air and mix with Liffa's. She thought of something to say, but every word in her head felt wrong, distant, disingenuous. But breath spoke multitudes more.
+
+"Say something," Fajro interrupted them. But they didn't dare say a word.
+
+There was a long, confused pause as the tension in the room mounted. Fajro reached for the listener, but Melna dodged out of his way and her hand out to fend against him.
+
+"The wind speaks," she said to me.
+
+"Ulukoma listens," I replied.
+
+<!-- left off -->
+
+<!--
+ speak. "Liffa? Are you there?"
 
 A moment passed and then my voice leapt into the room, "Melna. It's really you! Where are you? Why does your voice sound like that?"
 
@@ -326,8 +337,7 @@ I giggled at her joke, then felt a pang of longing for a simpler time.
 I couldn't speak. Reality had sunk into me and sprouted.
 
 "Liffa," she asked, "What about the wind?"
-
-There was a pause on the line as everyone in the room seemed confused. Fajro reached for the listener, but Melna intercepted his hand and I responded, "I've heard it speaking close to home. From beyond the fog of war."
+ -->
 
 Melna tried to ask, "The fog of war?" but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. "Liffa!" A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
 
