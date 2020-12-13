@@ -309,11 +309,19 @@ Melna gathered every portion of her mental fortitude to protect herself against 
 
 "Say something," Fajro interrupted them. But they didn't dare say a word.
 
-There was a long, confused pause as the tension in the room mounted. Fajro reached for the listener, but Melna dodged out of his way and her hand out to fend against him.
+There was a long, confused pause as the tension in the room mounted. Fajro reached for the listener, but Melna turned out of his way and held her hand out to fend against him.
 
-"The wind speaks," she said to me.
+She said that "The wind speaks."
 
-"Ulukoma listens," I replied.
+And I told her that "Ulukoma listens."
+
+The operator pried the listener off her head, her fingers off the microphone lever while Melna fought hae off. She got a finger onto the microphone as it lay on the floor. "Liffa!" she cried, but a soldier had already gotten a hand on her and was pulling her back.
+
+Fajro stood by with a disappointed look on his face, gestured toward another soldier to bind Melna's hands while the operator gathered the microphone and listener from the floor and held them up to Fajro, hae head down in submission.
+
+"You would do well to move faster next time," he told hae. Carefully, Fajro took the listener and microphone from hae hands, not once looking at hae. Hae hands had a barely perceptible tremble to them as thi grasped onto hae seat and sank into it.
+
+"That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
 <!-- left off -->
 
@@ -338,10 +346,6 @@ I couldn't speak. Reality had sunk into me and sprouted.
 
 "Liffa," she asked, "What about the wind?"
  -->
-
-Melna tried to ask, "The fog of war?" but the operator had already pried her hands from the listener and the lever had been lifted before she could finish. "Liffa!" A soldier held her back as another picked up the listener from the floor and gave it to Fajro.
-
-He yelled at Melna, "I don't know what you're up to, but it ends now!" and then immediately turned back to the microphone. "That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
 
 Fajro gestured to a man at the far side of the room, who approached her with a long, thick swatch of razor jute and placed it around her mouth while Fajro held her arms. She fought against him, but every movement against the mask stung her cheeks. The jute sunk into her mouth as he tightened the mask behind her head. Her cheeks flushed with perspiration but she held her tongue from causing further pain.
 
