@@ -321,47 +321,37 @@ Fajro stood by with a disappointed look on his face, gestured toward another sol
 
 "You would do well to move faster next time," he told hae. Carefully, Fajro took the listener and microphone from hae hands, not once looking at hae. Hae hands had a barely perceptible tremble to them as thi grasped onto hae seat and sank into it.
 
-"That's enough talk for now, Liffa. Let's get to work... What's that?... Oh she'll be fine. Let's just focus for now, okay?"
+"That's enough talk for now, Liffa. Let's get to work... What's that?... Oh don't worry about her, let's just focus for now okay?"
+
+Fajro gestured to a man at the far side of the room, and he approached, reaching carefully into a bag for a length of razor vine. Melna fought against her bindings, but she was stopped by a soldier behind her. She felt the itching points of its stinging needles as the man placed it around her throat. Her reflexes told her to move, to gesticulate out of this trap, but consciously, she knew that even speaking would be excruciating.
+
+Fajro spoke to her calmly, "I didn't want to resort to this, but you've disrespected me and everyone in this room. Your destructive thoughts must be kept in check."
+
+She stared at him intently, trying to forget the pain across her chest, the sting upon her throat. _He needs me,_ she thought. _Liffa, the vine. There's a purpose to all this._
+
+He turned toward everyone in the room as they sat looking to him and Melna. "We are about to make history as the first people to make contact with life outside of our own planet. You all play a vital role to the survival of our species. In our mission, a mistake will cost you your own life, your families lives. Everyone you know will cease to exist."
+
+He held a moment of dramatic silence
+
+"For Ara!" he growled.
+
+And the room bellowed in unison, "For Ara!"
+
+He gestured with his hand in a twirling motion and they returned to their work, looking back at Melna to ensure she saw that he was in control.
+
+He lifted the microphone to his mouth again and the operators all frantically prepared their notes. He continued where he'd left off.
+
+"Now Liffa, if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
+
+"Y-Yes sir," I said. "I've been watching the obscura closely now. It... looks a bunch of circles. They're all growing outward from their centers."
+
+"Circles?" he paused to find his words, "How large are these circles?"
+
+"No larger than a train car. But there are so many. More than I can see. More than I can count."
+
+"How far can you see them?," he asked pointedly.
 
 <!-- left off -->
-
-<!--
- speak. "Liffa? Are you there?"
-
-A moment passed and then my voice leapt into the room, "Melna. It's really you! Where are you? Why does your voice sound like that?"
-
-"It's...a long story," she replied, "I'll tell you when you get back."
-
-"Oh. Ok...," I replied, parsing her defeated tone. Another moment passed before Melna heard me, and she started to realize that it had something to do with the vast distance that my ship had traveled.
-
-We paused, looking for something to say, but Melna knew she couldn't let the conversation go slack. She picked up again, "How's the weather where you are?"
-
-I giggled at her joke, then felt a pang of longing for a simpler time.
-
-"Cool and partly obscura-y," I said, covering my pain. "It's rather beautiful up here. I'll paint it for you someday."
-
-"Yea," she said, "I'd like that."
-
-I couldn't speak. Reality had sunk into me and sprouted.
-
-"Liffa," she asked, "What about the wind?"
- -->
-
-Fajro gestured to a man at the far side of the room, who approached her with a long, thick swatch of razor jute and placed it around her mouth while Fajro held her arms. She fought against him, but every movement against the mask stung her cheeks. The jute sunk into her mouth as he tightened the mask behind her head. Her cheeks flushed with perspiration but she held her tongue from causing further pain.
-
-He said to her calmly, "You disrespect me, Melna. I didn't want to resort to this, but this is the only thing that will keep your schemes in check."
-
-She stared at him intently, trying to figure out his angle. _He needs me,_ she thought. _He wouldn't put all this together and muffle me just to toy with me._
-
-Fajro regained his stance, keeping Melna in the corner of his eye, and took up the microphone and listener again.
-
-"Sorry about that, Liffa," he said to me. I was too confused to answer. "Now, if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see around you?"
-
-"Yes sir... I-I can see the obscura in closer detail now. It... looks a bunch of circles floating in space. They're all growing outward from their centers."
-
-"Circles?" he paused to find his words, "How big are they?"
-
-"Small. No larger than my own ship. But there are so many. More than I can count."
 
 "Liffa... how far do they stretch?"
 
