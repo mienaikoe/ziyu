@@ -151,7 +151,7 @@ With graceful and deliberate touches, he assessed the injury, stopping whenever 
 
 "No no that's too soon!" he said to the air.
 
-He removed a firestarter from his satchel and turned its knob. A titanium cylinder spun in a metallic socket, sending small sparks and the odor of magnesium smoke into the air. In one slow motion, he ran the top of the dagger across the tip of the firestarter and its heat turned the blade yellow with oxidation. He turned to the welt and cut open a small hole at the bottom of the welt with a calculated movement of his hand. A mix of blood and fluid formed a tangible rivulet across hae face as the welt emptied, quickly at first but slowing with time. Kipnu dropped the knife and held his fingers fast to hae chest, continuously checking for a pulse as hae consciousness slowly began to return.
+He removed a firestarter from his satchel and turned its knob. A ceramic cylinder spun in a metallic socket, sending small sparks and the odor of magnesium smoke into the air. In one slow motion, he ran the top of the dagger across the tip of the firestarter and its heat turned the blade yellow with oxidation. He turned to the welt and cut open a small hole at the bottom of the welt with a calculated movement of his hand. A mix of blood and fluid formed a tangible rivulet across hae face as the welt emptied, quickly at first but slowing with time. Kipnu dropped the knife and held his fingers fast to hae chest, continuously checking for a pulse as hae consciousness slowly began to return.
 
 "Kipnu," thi said in a daze, "Is that you? Am I dying?"
 

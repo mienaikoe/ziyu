@@ -136,7 +136,7 @@ Melna looked over to Laen-Laen who was too busy licking his legs to know what wa
 
 A voice called from behind them, "Melna. glad I found you."
 
-The pair turned around to find Pomri, on her own saffa, holding a polished blue titanium sword to the man's neck.
+The pair turned round to find Pomri, on her own saffa, holding a titanium spear to the man's neck. It was anodized to a deep mauve, the color of Melna's robes, and it shimmered brightly on his chin.
 
 "Looks like you've made some friends," she addressed Melna.
 

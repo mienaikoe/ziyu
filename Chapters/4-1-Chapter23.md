@@ -174,7 +174,7 @@ She shifted herself without standing, making way for me to crouch beside her. Sh
 
 "Hold hae body like this so I can make the injection. Steady now."
 
-The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized blue. Shaki titanium working. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of kanosin were pushed into hae hydroderm where they glowed and spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
+The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized a pale green. Shaki titanium working. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of kanosin were pushed into hae hydroderm where they glowed and spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
 
 "You've... done this before?"
 
