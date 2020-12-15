@@ -291,13 +291,23 @@ Through the unproductive gasps for air, she managed to put on a smirk. Fajro loo
 
 A radio operator called to him, "Žah-Fajro," and with a furious look on his face, he approached the operator, yanking the long corded listener from hae ears. Sloppily, he raised the microphone device to his face and pressed a button that had been directly fastened to it.
 
-"Liffa," he said, pretending to be settled. "That you?"
+"Liffa," he said, pretending to be settled. "Glad to hear from you."
 
 Melna breathed heavily to replace her lost air, but steadied her breathing so she could listen closely as they continued.
 
-"Right," he said, "She's here now. I'll put her on."
+"Right," he said, "She's here now. But it's time– what's that?..." he walked to a corner of the room, and an operator quickly picked the cord off the ground. It looked as though he was trying to hide something from her, but he had forgotten that fidelants knew how to read lips.
 
-"Bring her here, dammit!" he barked at the soldiers surrounding Melna. "What are you waiting for!"
+"She's fine," he said under his breath. "Liffa, this is not the time. You just have trust me."
+
+He glanced impatiently at Melna and she felt a sensation come upon her that she hadn't felt in a long time. She knew that I felt it too. The rush of feeling in control, even just for a brief moment. Maybe some instinct from the hunters who came before us, buried thick in layers of philosophy. Melna suddenly felt the words she'd wanted to say flow through her mind like a morning breeze.
+
+She interrupted Fajro mid-sentence. "Let me speak to hae," she said.
+
+He continued his fruitless tirade, ignoring her entirely. But she took a step. Just one step; as much as the soldier that held her would allow.
+
+"I said. Let me speak."
+
+He stare at her, contemplating his options for a moment. "Bring her here, dammit!" he barked at the soldiers. "What are you waiting for!"
 
 One of them pulled her by the arm, dragging her to Fajro. He came uncomfortably close to where she stood.
 
@@ -319,13 +329,13 @@ The operator pried the listener off her head, her fingers off the microphone lev
 
 Fajro stood by with a disappointed look on his face, gestured toward another soldier to bind Melna's hands while the operator gathered the microphone and listener from the floor and held them up to Fajro, hae head down in submission.
 
-"You would do well to move faster next time," he told hae. Carefully, Fajro took the listener and microphone from hae hands, not once looking at hae. Hae hands had a barely perceptible tremble to them as thi grasped onto hae seat and sank into it.
+"You would do well to move faster next time," he told hae as he carefully took the listener and microphone, not once looking at hae face. Hae hands had an almost imperceptible tremble to them as thi grasped onto hae seat and sank into it. He lifted the microphone to his mouth again and the other operators all frantically prepared their notes. He continued where he'd left off.
 
 Fajro gestured to a man at the far side of the room, and he approached, reaching carefully into a bag for a length of razor vine. Melna fought against her bindings, but she was stopped by a soldier behind her. She felt the itching points of its stinging needles as the man placed it around her throat. Her reflexes told her to move, to gesticulate out of this trap, but consciously, she knew that even speaking would be excruciating.
 
 Fajro spoke to her calmly, "I didn't want to resort to this, but you've disrespected me and everyone in this room. Your destructive thoughts must be kept in check."
 
-She stared at him intently, trying to forget the pain across her chest, the sting upon her throat. _He needs me,_ she thought. _Liffa, the vine. There's a purpose to all this._
+She stared at him intently, trying to forget the pain across her chest, the sting upon her throat. _He needs me,_ she thought. _Bringing me here. Speaking to Liffa. There's a purpose to all this._
 
 He turned toward everyone in the room as they sat looking to him and Melna. "We are about to make history as the first people to make contact with life outside of our own planet. You all play a vital role to the survival of our species. In our mission, a mistake will cost you your own life, your families lives. Everyone you know will cease to exist."
 
@@ -337,17 +347,9 @@ And the room bellowed in unison, "For Ara!"
 
 He gestured with his hand in a twirling motion and they returned to their work, looking back at Melna to ensure she saw that he was in control.
 
-He lifted the microphone to his mouth again and the operators all frantically prepared their notes. He continued where he'd left off.
+<!-- left off -->
 
-That's enough talk for now, Liffa. Let's get to work...
-
-"Alright Liffa, it's time," he said. "What's that?..." he walked to a corner of the room, and an operator quickly picked the cord off the ground. It looked as though he was trying to hide something, but he had forgotten that fidelants knew how to read lips.
-
-"She's fine," he said under his breath. "Liffa, this is not the time. The entire planet is waiting for us."
-
-Melna suddenly felt the words she'd wanted to say flow through her mind like a morning breeze. And her heart ached to know that she would never get the chance to say them.
-
-" "Great, now if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
+"If I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
 
 "Y-Yes sir," I said. "I've been watching the obscura closely now. It... looks a bunch of circles. They're all growing outward from their centers."
 
@@ -356,8 +358,6 @@ Melna suddenly felt the words she'd wanted to say flow through her mind like a m
 "No larger than a train car. But there are so many. More than I can see. More than I can count."
 
 "How far can you see them?," he asked pointedly.
-
-<!-- left off -->
 
 "Liffa... how far do they stretch?"
 
