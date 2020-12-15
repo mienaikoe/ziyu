@@ -321,8 +321,6 @@ Fajro stood by with a disappointed look on his face, gestured toward another sol
 
 "You would do well to move faster next time," he told hae. Carefully, Fajro took the listener and microphone from hae hands, not once looking at hae. Hae hands had a barely perceptible tremble to them as thi grasped onto hae seat and sank into it.
 
-"That's enough talk for now, Liffa. Let's get to work... What's that?... Oh don't worry about her, let's just focus for now okay?"
-
 Fajro gestured to a man at the far side of the room, and he approached, reaching carefully into a bag for a length of razor vine. Melna fought against her bindings, but she was stopped by a soldier behind her. She felt the itching points of its stinging needles as the man placed it around her throat. Her reflexes told her to move, to gesticulate out of this trap, but consciously, she knew that even speaking would be excruciating.
 
 Fajro spoke to her calmly, "I didn't want to resort to this, but you've disrespected me and everyone in this room. Your destructive thoughts must be kept in check."
@@ -341,7 +339,15 @@ He gestured with his hand in a twirling motion and they returned to their work, 
 
 He lifted the microphone to his mouth again and the operators all frantically prepared their notes. He continued where he'd left off.
 
-"Now Liffa, if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
+That's enough talk for now, Liffa. Let's get to work...
+
+"Alright Liffa, it's time," he said. "What's that?..." he walked to a corner of the room, and an operator quickly picked the cord off the ground. It looked as though he was trying to hide something, but he had forgotten that fidelants knew how to read lips.
+
+"She's fine," he said under his breath. "Liffa, this is not the time. The entire planet is waiting for us."
+
+Melna suddenly felt the words she'd wanted to say flow through her mind like a morning breeze. And her heart ached to know that she would never get the chance to say them.
+
+" "Great, now if I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
 
 "Y-Yes sir," I said. "I've been watching the obscura closely now. It... looks a bunch of circles. They're all growing outward from their centers."
 
