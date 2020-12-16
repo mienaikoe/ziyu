@@ -233,7 +233,7 @@ His frown took a moment to form, and then he sighed and changed the subject, "Sh
 
 The inside was a maze of tunnels with opened doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
 
-Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of knobs and buttons set into metal boxes, and black cable leading to a listener on every ear that sat there. There was one microphone at the center with a lever on it like the ones at the conduits. Melna figured was for speaking over the air. She slowly reached into her satchel for the listener, but stopped. They didn't yet know that she could hear what they could hear.
+Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of countless knobs and buttons and dials set into metal boxes. Among this mess of instrumentation sat three operators with long black cables leading to listeners on their ears and microphones in front of them. She slowly reached into her satchel for the listener, but stopped. They didn't yet know that she could hear what they could hear.
 
 "Do you know why you're here, Melna?" Fajro asked her rhetorically
 
@@ -325,15 +325,13 @@ She said that "The wind speaks."
 
 And I told her that "Ulukoma listens."
 
-The operator pried the listener off her head, her fingers off the microphone lever while Melna fought hae off. She got a finger onto the microphone as it lay on the floor. "Liffa!" she cried, but a soldier had already gotten a hand on her and was pulling her back.
+A soldier that had led her there pried the listener off of Melna's head, her fingers off the microphone lever while she fought to remain on the line. She got a finger onto the microphone as it lay on the floor. "Liffa!" she cried, but the soldier had already gotten a hand on her leg and was pulling her back. An operator gathered the microphone and listener from the floor and held them up to Fajro, hae head down in submission.
 
-Fajro stood by with a disappointed look on his face, gestured toward another soldier to bind Melna's hands while the operator gathered the microphone and listener from the floor and held them up to Fajro, hae head down in submission.
+"Why did you wait to stop her?" he growled at hae. Impatiently, he took the listener and microphone, not once looking hae in the eye. The operator's hands had an almost imperceptible tremble to them as thi grasped onto hae seat and sank into it. Melna could see the anguish in hae posture, the avoidant focus of the other two operators. _How could a team like this accomplish anything?_
 
-"You would do well to move faster next time," he told hae as he carefully took the listener and microphone, not once looking at hae face. Hae hands had an almost imperceptible tremble to them as thi grasped onto hae seat and sank into it. He lifted the microphone to his mouth again and the other operators all frantically prepared their notes. He continued where he'd left off.
+Fajro gestured to a man with thick gloves on at the far side of the room, and he approached, reaching carefully into a bag for a length of razor vine. Melna fought to free herself from the clutches of the soldier, but she was stopped with a foot on her back, pressing her burns against the floor. The man loosely wrapped the vine around her neck while she fought to avoid him. The stinging needles pierced into her skin and filled her neck and arms with their poison. She felt her muscles lock up and her reflexes told her to keep pushing, to break free of this trap. But she knew that any movement, even speaking, would be excruciating and futile.
 
-Fajro gestured to a man at the far side of the room, and he approached, reaching carefully into a bag for a length of razor vine. Melna fought against her bindings, but she was stopped by a soldier behind her. She felt the itching points of its stinging needles as the man placed it around her throat. Her reflexes told her to move, to gesticulate out of this trap, but consciously, she knew that even speaking would be excruciating.
-
-Fajro spoke to her calmly, "I didn't want to resort to this, but you've disrespected me and everyone in this room. Your destructive thoughts must be kept in check."
+Fajro spoke to her calmly, "I didn't want to resort to this, but you've disrespected me and everyone in this room. Your misguided tongue must be kept silent."
 
 She stared at him intently, trying to forget the pain across her chest, the sting upon her throat. _He needs me,_ she thought. _Bringing me here. Speaking to Liffa. There's a purpose to all this._
 
@@ -345,7 +343,9 @@ He held a moment of dramatic silence
 
 And the room bellowed in unison, "For Ara!"
 
-He gestured with his hand in a twirling motion and they returned to their work, looking back at Melna to ensure she saw that he was in control.
+He gestured with his hand in a twirling motion and they returned to their work, glancing back at Melna to ensure she saw that he was in control.
+
+Fajro lifted the microphone to his mouth again and the operators frantically prepared their notes.
 
 <!-- left off -->
 
