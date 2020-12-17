@@ -233,7 +233,7 @@ His frown took a moment to form, and then he sighed and changed the subject, "Sh
 
 The inside was a maze of tunnels with opened doors as thick as her hand every twenty paces, and walls lined with glass bulbs that glowed that same blindingly bright bluish-white color. They sucked the warmth out of both the greased steel walls and the knurled red iron that made up the floor. It disgusted her to imagine living here for several days, as undoubtedly many of those onboard had done.
 
-Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction, but after much wandering they arrived at a large room where rows of desks had been constructed with flat glass bulbs protruding from them. Sitting at each one was a lab-coated Holragi, busy drawing and writing things on paper while they stared at the red light bulbs. The back of the room was lined with a row of countless knobs and buttons and dials set into metal boxes. Among this mess of instrumentation sat three operators with long black cables leading to listeners on their ears and microphones in front of them. She slowly reached into her satchel for the listener, but stopped. They didn't yet know that she could hear what they could hear.
+Fajro led her down a meandering path that she was convinced was meant to scramble her sense of direction. After wandering through what felt like the entire ship they arrived at a large room with rows of desks and pale white lights from the ceiling. At even spacings were flat glass bulbs that protruded from the desks, and a well-dressed person at each one, moving their hands across the multitudes of knobs an buttons on their desk. The back of the room was lined with a row of countless metallic controls set into metal boxes. Among this mess of instrumentation sat three operators with long black cables leading to listeners on their ears and microphones in front of them. She slowly reached into her satchel for the listener, but stopped. They didn't yet know that she could hear what they could hear.
 
 "Do you know why you're here, Melna?" Fajro asked her rhetorically
 
@@ -343,67 +343,53 @@ He held a moment of dramatic silence
 
 And the room bellowed in unison, "For Ara!"
 
-He gestured with his hand in a twirling motion and they returned to their work, glancing back at Melna to ensure she saw that he was in control.
+He gestured with his hand in a twirling motion and they all returned to their bulbs and paper.
 
-Fajro lifted the microphone to his mouth again and the operators frantically prepared their notes.
+"Operator, public," he ordered.
 
-<!-- left off -->
+Thi flipped a switch and the room filled with static and the sound of my breath in the capsule. Fajro lifted the microphone to his mouth again and glanced back at Melna to ensure she saw that he was in control.
 
-"If I'm not mistaken, you're about to pass to the other side of the obscura. Can you describe what you see?"
+"Liffa, you're about to pass to the other side of the obscura. Describe to us what you see."
 
 "Y-Yes sir," I said. "I've been watching the obscura closely now. It... looks a bunch of circles. They're all growing outward from their centers."
 
-"Circles?" he paused to find his words, "How large are these circles?"
+"And how large are these circles?"
 
 "No larger than a train car. But there are so many. More than I can see. More than I can count."
 
-"How far can you see them?," he asked pointedly.
+"How far can you see them?," he asked pointedly, but I took a moment to answer. "Liffa," he persisted, "how far do they stretch?"
 
-"Liffa... how far do they stretch?"
+"I... can't tell."
 
-I paused, knowing the answer, but attempting to comprehend what I was seeing. "I... can't tell."
+"You have to give us more than that."
 
-Fajro turned away fom Melna and spoke to me at a softer volume so Melna couldn't hear.
+"I can't see very far," I told the truth. "My vision... It's blurry."
 
-"Come on, Liffa. Tell me something more. Use your eyes."
-
-"I can't see very far," I told the truth.
-
-"What's the matter with your vision?"
-
-"It's blurry, sir."
-
-He was doubtful, but continued with me.
+He was doubtful, but continued.
 
 "Just tell me what you can see then."
 
-"Well, I'm just a few thousand paces out now... I think I can see through a few of the cracks in the shapes... wait. No!"
+"I'm just a few thousand paces out now... I think I can see through a few of the cracks in the shapes... wait..."
 
-"What's wrong?" He sounded legitimately concerned.
+"What is it?" He spurted with concern.
 
-I peered through a crack and saw what I would never have expected. There were reflections from the other side of Ara. The wall covered the entirety of our star.
+"This wall of shapes. It... It doesn't end. It wraps around to the backside. They're forming a sphere around Ara."
 
-"This wall of shapes. It doesn't end. They're forming a sphere around Ara, and I'm headed straight into it."
+Every eye in the room looked up at once, silently processing what such a thing could mean. For themselves, for their families. They were all convinced that this enemy lived like them, thought like them: hostile and intelligent, surviving within the confines of the natural world.
 
-"What?!" he said loudly. Melna heard the worry in this word along with the rest of the people listening in. He turned around to see everyone staring, and then went quiet again.
+Fajro took his finger off of the microphone lever and yelled across the room, "Kavva, how close is Liffa to the obscura?"
 
-I continued, worried, "What. What do I do?"
+"About 1800 paces, sir," thi said.
 
-"Liffa, could you hold, for one moment."
+"Zilli?"
 
-He took his finger off of the microphone lever and yelled across the room, "Kavva, how close is thi to the obscura"
+A woman standing at the front shook her head slowly, defeatedly.
 
-"About 720 paces, sir," thi said.
+Fajro pressed on the lever of the listener again and said, "Liffa, we have just about all we need. I leave you to the operator who will take you up to radio silence."
 
-He paused to take that in, disregarding my agitated silence. Under my breath, I was cursing as if seeing something genuinely horrifying. Melna had never known me to be in such a state, and it shocked her to hear.
+"Wait! What do I–?"
 
-He pressed on the lever of the listener again and said, "Yea Liffa, you're pretty close. Thing must be pretty big from where you are, but we have just about all we need, so I'm gonna let you go."
-
-"Wait! What do I do?"
-
-"I'll leave you to my engineer who will take you up to obscura, ok?"
-
-"No. Wait, don't–"
+<!-- left off -->
 
 But before I could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of turning it back on. She knew then that they were prepared to sacrifice me and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
 
