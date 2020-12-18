@@ -1,6 +1,5 @@
 ## Chapter 22
 
-<!-- left off -->
 <!--
 
 submersible is a smaller portion of the whole.
@@ -15,7 +14,9 @@ the Heikoi flee to the south, and Holrag can't catch up. Some are lost by musket
 
 _Plink... Plink._
 
-Through the door above Melna, a steady drip of water counted time on her forehead during the short ride to Heiko in a small submersible. Her mind was wandering upon that maman's path. Jumping off of Shinna's boat. Swimming through the kind of cold most Pangum would certainly perish in. She wondered if thi made it to shore or if the water had folded hae spirit into itself. Thi deserved to be a tall one, sweeping fishers and kelpers off their feet when they weren't paying attention. They would know hae well when thi came around. They would listen to hae when thi was speaking.
+A steady drip of water counted time on Melna's forehead during the short ride to Heiko in a small submersible. Her mind wandered to the people she'd stumbled upon in her path, all the secrets she'd been told and technology she'd gained, and that mysterious maman who couldn't die. Jumping off of Shinna's boat, swimming in a cold that most Throngia would perish in. She wondered if the ocean fables were true, that in drowning your spirit is infused with the ocean. She imagined the maman as the tallest waves, sweeping fishers and kelpers off their feet when they aren't paying attention. They would know hae well when thi came around. They would fear hae as thi spoke.
+
+<!-- left off -->
 
 Perhaps thi was there with her, in the drops of ocean from the broken door of that small submersible. Or perhaps thi survived, far away from the water. A whole life waiting for hae in the light. One more fulfilling than the suffering thi knew so well.
 
