@@ -24,21 +24,19 @@ Kipnu was at the stove reheating a sweet mash of pohua with his morning face on.
 
 "Anything new?", I asked her.
 
-"Not particularly. We're still running our typical surplus of root vegetables and fruits. People always request more of them than they actually need."
+"Not particularly. We're still running our typical surplus of fruits. People always request more of them than they actually need."
 
-Kipnu chortled, looking at me. "Liffa here could probably take the entire surplus herself."
+Kipnu chortled, looking at me. "Liffa here could probably eat the entire surplus herself."
 
-"Sweets are my one joy in life," I replied. "Anyway, all the farmers I know preserve what they don't sell."
+"Sweets are my one joy in life," I replied with a smile. "Shame will never keep me from my one true love. Anyway, all the farmers I know dry-preserve what they don't sell."
 
 "I'll pretend I didn't hear that," said Melna.
 
-I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and remove the pot from the focal point.
+I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and removed the pot from the focal point.
 
-"A bowl would be great," I told him as I fetched a spoon.
+"A leaf would be great," I told him as I fetched a spoon.
 
-"Ah yea. A bowl," he fetched one and set it in front of me to pour into.
-
-Melna walked over to us to check on the food. "Let me make sure it's still like my mother used to make," she took out a spoon and dipped it into the bowl. "It's too thick and too hot - add some water"
+Melna walked over to us to check on the food. "Let me make sure it's still like my mother used to make," she took out a spoon and dipped it into the pot. "Too thick - add some water"
 
 I pulled some water from the dew column at the center of the great room and returned to add it to the mix little by little, waiting for Melna's approval.
 
@@ -46,23 +44,23 @@ Finally, we sat down to eat.
 
 A moment of quiet slurping went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
 
-"Thinking about traveling?" I chimed at her.
+"" I chimed at her.
 
 "I am. It's been too long since we've gone anywhere."
 
 Kipnu joined, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
 
-"Hey, we all had fun uh... catching fish," I defended myself.
+I defended my choice, "Hey, we all had fun uh... catching fish."
 
-"You mean sleeping all day," Melna interjected.
+Melna and Kipnu smiled, knowing what I really meant.
 
-I defended my position, "Hey, catching fish was fun too."
+"There was nothing else to do," Kipnu said.
 
-"There was literally nothing else to do," Kipnu reminded me.
+"Yea, but I'd still do it again."
 
-"Yea... but I'd totally do it again!"
+And I would. Because I was happy when they were around.
 
-And I would. I was happy with them wherever we went. He and Melna shook heads and laughed while I broke the smarmiest smile.
+It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when was keenly aware of how wholly incomplete I would always be.
 
 ---
 

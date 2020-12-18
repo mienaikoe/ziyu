@@ -357,9 +357,9 @@ Thi flipped a switch and the room filled with static and the sound of my breath 
 
 "No larger than a train car. But there are so many. More than I can see. More than I can count."
 
-"How far can you see them?," he asked pointedly, but I took a moment to answer. "Liffa," he persisted, "how far do they stretch?"
+"Can you see the beings?," he asked pointedly.
 
-"I... can't tell."
+"I... don't know."
 
 "You have to give us more than that."
 
@@ -375,7 +375,9 @@ He was doubtful, but continued.
 
 "This wall of shapes. It... It doesn't end. It wraps around to the backside. They're forming a sphere around Ara."
 
-Every eye in the room looked up at once, silently processing what such a thing could mean. For themselves, for their families. They were all convinced that this enemy lived like them, thought like them: hostile and intelligent, surviving within the confines of the natural world.
+Every eye in the room looked up at once, silently processing what such a thing could mean. For themselves, for their families. They were all convinced that this enemy lived like them, thought like them: hostile and intelligent, surviving within the confines of some planet where they came from.
+
+I continued, "These shapes, they have barely any thickness at all. They don't appear to be vehicles of any kind. They're more like... sails?"
 
 Fajro took his finger off of the microphone lever and yelled across the room, "Kavva, how close is Liffa to the obscura?"
 
@@ -389,39 +391,55 @@ Fajro pressed on the lever of the listener again and said, "Liffa, we have just 
 
 "Wait! What do I–?"
 
-<!-- left off -->
+But before I could finish, Fajro had switched off the microphone and signalled the operator to switch off the speaker. The room was dead with every eye glued on their dear leader, looking for answers that were not there. He put down the listeners and paused for a moment. Then he walked over to Melna and carefully removed the razor vine from her neck. She breathed deeply for a moment, catching the depth from all her shallow breaths.
 
-But before I could finish, Fajro had switched off the speaker and the room went dead. From the corner of her eye, Melna glanced at the switch and at the people who sat near it, and saw that no one had any intention of turning it back on. She knew then that they were prepared to sacrifice me and her heart sank. That Fajro would kill to keep secret whatever horrors lie behind the veil of the obscura sickened her and she wanted to bring an end to his twisted game. But between the number of people in the room, and the vigilance of the crew, she surmised that she didn't stand a chance flipping it back off.
+"I was prepared to offer you a deal, Melna. The chance to join me in welcoming our hero back home from a glorious victory against the obscura. But this... can never leave this room. Please understand."
 
-He put down the listeners and paused for a moment to think, switching his tone suddenly when he was ready to talk.
+She caught his meaning immediately, and in a moment she knew what to say.
 
-"Now that I have your attention, Melna. It's time to make a deal. I offer you the chance to save Liffa and join me in welcoming our hero back home from a glorious victory against the obscura."
+"How long do you think it will be before your cover is blown?"
 
-"What's in it for you?" She asked coyly.
+"What are you talking about?" He barked at her.
 
-"All I ask is your allegiance. An address to the people of Heiko that the senate has chosen me as its leader."
+"You think people will believe that Heiko was destroyed by a paper lantern in the sky? That you came to our rescue just in time? You're not the only ones with eyes on Ara or ears to the air. The truth doesn't need to leave this room for it to see the light of day."
+
+He chuckled menacingly, "You're more clever than you look. Perhaps you're right. The observer you sent to Holrag was quite astute; a man like him could arrive at the truth on his own. But what good is that truth in the hands of a nobody?"
+
+"You underestimate the power of our principles, Holragi."
+
+He eyed her up and down, measuring the weight of her wager.
+
+"You have a deal in mind," he asked coyly, "let's hear it."
+
+"An address. To my people."
 
 "How stupid do you think I am?"
 
-"You may doubt me when I say this, but that's all I've wanted from the beginning. The only hope for the future of our people is to unify."
+"Deeply – if you thought that Heiko would run to you with open arms."
 
-"We are unified under the senate. We keep peace."
+"The threat of imminent death will be all the motivation they need."
 
-"The senate. Heh," he chuckled under his breath and began pacing back and forth. "The senate has no real power. It is a Milta diguised as a Tilmara. It convinces people to stay in line, to stay comfortable, to stay doomed. Peace is a veil, Melna. It shrouds our eyes to our true potential as a species. War, that's where heroes are made. Where civilization itself is tested."
+"We are a fiercely loyal people; a slaver could ever take that from us. You wish to extract labor from us, then you need someone to ease the transition. You need me."
 
-"War is where civilization goes to die. Innumerable lives are lost and nothing is gained for anyone. The senate maintains peace because the alternative is senseless."
+"Your people hate you."
 
-"The senate maintains peace for its fidelants to keep their jobs. None of them want any real change. They want to appeal to stronger members so the money can continue flowing in. They would never threaten anything. A war would lift the veil; would show the rest of the world how little their fidelants do for them."
+"They hate you even more."
 
-"And you have the real power in Palinan, do you?"
+He paused, turning the deal over in his head, and pacing away and back toward Melna.
+
+"Unification. You may doubt me when I say this, but that's all I ever wanted when I joined the senate, and I was willing to wage a war to do it. But the senate didn't like it when I told them that. They convince people to stay in line, to stay comfortable, to stay feeble. They convince every nation to act in the service of peace. But peace is a veil, Melna. It keeps us from our true potential as a species. Peace is what put us in this situation - cowering in the dark, out of options. War is where heroes are made. Where civilization itself is tested."
+
+"War is where civilization goes to die. Innumerable lives are lost, families are shattered, the principles that keep our society safe from itself are forgotten. The senate maintains peace because the alternative is senseless death."
+
+"Look around you. We are standing here at the gates of the enemy, debating amongst each other while they siphon off every resource we have. Talk is dead. We need the collective force of all of Palinan to work together if we are to survive."
+
+"With you at the helm?"
 
 "Well, frankly," he stopped and lifted his arms as if holding up the universe as evidence. "Yes."
 
-She was unamused.
+The pale white light illuminated the creases of his face as he took one last look at her. She met his gaze, wondering how it all came to this.
 
-Fajro took one step toward her, letting the light illuminate the creases of his face and the grin that folded them. She looked up at his tall figure, contemplating the choice between leading her people into Fajro's twisted desires, and letting them die fighting him. But she knew her answer even before she had left Shinna's ship.
-
-"I'll do it."
+"Shall we?" he asked.
 
 <!-- NOTES -->
 <!--
