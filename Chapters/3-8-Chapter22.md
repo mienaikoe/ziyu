@@ -14,39 +14,39 @@ the Heikoi flee to the south, and Holrag can't catch up. Some are lost by musket
 
 _Plink... Plink._
 
-A steady drip of water counted time on Melna's forehead during the short ride to Heiko in a small submersible. Her mind wandered to the people she'd stumbled upon in her path, all the secrets she'd been told and technology she'd gained, and that mysterious maman who couldn't die. Jumping off of Shinna's boat, swimming in a cold that most Throngia would perish in. She wondered if the ocean fables were true, that in drowning your spirit is infused with the ocean. She imagined the maman as the tallest waves, sweeping fishers and kelpers off their feet when they aren't paying attention. They would know hae well when thi came around. They would fear hae as thi spoke.
+A steady drip of water counted time on Melna's forehead during the short ride to Heiko in a small submersible. Her mind wandered to the people she'd stumbled upon in her path, all the secrets she'd been told and technology she'd gained, and that mysterious maman who couldn't die. Jumping off of Shinna's boat, swimming in a cold that most Throngia would perish in. She wondered if the ocean fables were true, that in drowning your spirit is infused with the ocean. She imagined the maman swimming through the tallest waves, sweeping fishers and kelpers off their feet when they aren't paying attention. They would know hae well when thi came around. They would fear hae as thi spoke.
 
-<!-- left off -->
-
-Perhaps thi was there with her, in the drops of ocean from the broken door of that small submersible. Or perhaps thi survived, far away from the water. A whole life waiting for hae in the light. One more fulfilling than the suffering thi knew so well.
+Perhaps thi was there with her, in the drops of ocean from the broken door of that small submersible. Or perhaps thi survived, hiding in the space between Heiko and Rudjan; a whole life waiting for hae in the last remnants of the light.
 
 "When we land, we head straight to the conduit," said Fajro, repeating himself. "I'll speak first."
 
 "You're nervous," she observed.
 
-"Don't get cheeky," he said without looking at her. "I don't get nervous," he said.
+"Don't get cheeky," he said without looking at her.
 
-She paused to look at him closer. She peered into the deep fissures and splotches of his face, the marks of a man who had worked hard for the privilege of working harder. And she saw something else.
+She paused to look at him closer, peered into the deep fissures and splotches of his face, the marks of a man who had worked hard for the privilege of working harder. And she saw something else.
 
-"When did the Paosin stop working."
+"When did the paosin stop working."
 
 He immediately shot her a scowl and said, "You'll learn to keep your mouth shut, woman."
 
 "An ex-fidelant using illegal narcotics. Now that's quite the scandal."
 
-"You're one to speak. Heiko is practically one giant Paosin den."
+"I know my limits. And that's far better than I can say for Heikoi. One giant Paosin den, the lot of you."
 
-"We take care of every one instead of sweep them under the rug."
+"We take care of every one instead of letting them spend the rest of their lives in a haze."
 
-"Oh yea? And how does that help anything?"
+"And how does pandering to the socially inept help anyone?"
 
-She had no time to come up with a response, so he continued.
+She knew the conversation was a dead end, so she held her tongue.
 
-"Those who cannot control their own minds deserve to perish by them."
+"Those who cannot control their own minds deserve to perish by them," he said as he kept his gaze fixed upon the small window at the front of the craft, where he sat.
 
 "A society that refuses to help its members in need deserves to perish along with them. The sick belong in a hospital."
 
 "The sick belong in the ground. Worms would make better use of their bodies."
+
+<!-- left off -->
 
 The small craft came to against the sand, minor scraping sounds echoing through the thick metal shell. "We're here," said Fajro, and one of the pilots began turning a knob to unblock the door that had been leaking on Melna. She thanked the pilot, to which thi gave a vacant glance and turned back to hae seat in the front of the cabin. The door lifted with some resistance, and she emerged a few paces from the shore on a beach near Heiko harbor.
 

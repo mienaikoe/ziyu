@@ -369,29 +369,41 @@ He was doubtful, but continued.
 
 "Just tell me what you can see then."
 
-"I'm just a few thousand paces out now... I think I can see through a few of the cracks in the shapes... wait..."
+"I'm just a few thousand paces out now; velocity relative to the obscura is low... I think I can see some detail in the shapes."
 
-"What is it?" He spurted with concern.
+"What do you see?" He spurted with an eager breath.
 
-"This wall of shapes. It... It doesn't end. It wraps around to the backside. They're forming a sphere around Ara."
+"These circles, they have barely any thickness at all."
 
-Every eye in the room looked up at once, silently processing what such a thing could mean. For themselves, for their families. They were all convinced that this enemy lived like them, thought like them: hostile and intelligent, surviving within the confines of some planet where they came from.
+"There must be something building them."
 
-I continued, "These shapes, they have barely any thickness at all. They don't appear to be vehicles of any kind. They're more like... sails?"
+"They appear to be... unraveling. Like some sort of fabric."
+
+Every eye in the room looked up at once, silently processing what such a thing could mean. For themselves, for their families. They were all convinced that this enemy lived like them, thought like them: hostile and intelligent, surviving within the confines of whatever planet where they came from. But no one knew what to make of this.
+
+"Liffa, have you tried the signal?"
+
+"I tried it a bit further out. Let me try again."
 
 Fajro took his finger off of the microphone lever and yelled across the room, "Kavva, how close is Liffa to the obscura?"
 
-"About 1800 paces, sir," thi said.
+"About 800 paces, sir," he yelle in response.
 
-"Zilli?"
+He paused a moment then with a hurried voice he said, "Liffa, is it done? What do you see?"
 
-A woman standing at the front shook her head slowly, defeatedly.
+"The fabric... has torn. Right where I'm headed."
 
-Fajro pressed on the lever of the listener again and said, "Liffa, we have just about all we need. I leave you to the operator who will take you up to radio silence."
+"Torn?"
 
-"Wait! What do I–?"
+"I can see Ara now. Oh it's so bright! And the shapes, they don't end... they're -o..."
 
-But before I could finish, Fajro had switched off the microphone and signalled the operator to switch off the speaker. The room was dead with every eye glued on their dear leader, looking for answers that were not there. He put down the listeners and paused for a moment. Then he walked over to Melna and carefully removed the razor vine from her neck. She breathed deeply for a moment, catching the depth from all her shallow breaths.
+"Liffa? Liffa, are you there?"
+
+The line went turbulent with static and shreds of Liffas voice.
+
+Melna wanted to cry out hae name, to embrace hae and tell hae it was okay; that thi didn't have to face the end alone. But the stinging pain around her neck took her words, like Ramne had taken her agency.
+
+Fajro switched off the microphone and signalled the operator to switch off the speaker. The room was dead with every eye glued on their dear leader, looking for answers that were not there. He put down the listeners and paused for a moment. Then he walked over to Melna and carefully removed the razor vine from her neck. She breathed deeply for a moment, catching the depth from all her shallow breaths.
 
 "I was prepared to offer you a deal, Melna. The chance to join me in welcoming our hero back home from a glorious victory against the obscura. But this... can never leave this room. Please understand."
 
