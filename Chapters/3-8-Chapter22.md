@@ -42,9 +42,9 @@ She knew the conversation was a dead end, so she held her tongue.
 
 "Those who cannot control their own minds deserve to perish by them," he said as he kept his gaze fixed upon the small window at the front of the craft, where he sat.
 
-"A society that refuses to help its members in need deserves to perish along with them. The sick belong in a hospital."
+"A society that refuses to help its members in need deserves to perish along with them."
 
-"The sick belong in the ground. Worms would make better use of their bodies."
+"The wicked belong to the soil. The worms would make better use of their bodies."
 
 <!-- left off -->
 
