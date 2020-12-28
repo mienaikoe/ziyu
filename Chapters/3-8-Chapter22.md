@@ -46,43 +46,39 @@ She knew the conversation was a dead end, so she held her tongue.
 
 "The wicked belong to the soil. The worms would make better use of their bodies."
 
-<!-- left off -->
+The hull of their vehicle scraped against the sand as it came to a stop. The crashing of waves and a murmur of the Heikoan accent told her that they'd arrived near the city.
 
-The small craft came to against the sand, minor scraping sounds echoing through the thick metal shell. "We're here," said Fajro, and one of the pilots began turning a knob to unblock the door that had been leaking on Melna. She thanked the pilot, to which thi gave a vacant glance and turned back to hae seat in the front of the cabin. The door lifted with some resistance, and she emerged a few paces from the shore on a beach near Heiko harbor.
+The pilot rose from hae chair and stood in front of Melna, turning a knob to open the leaky door above her. She thanked hae as thi turned back to hae seat, and thi gave a nervous glance of acknowledgement.
 
-She quickly found that she was not alone. Nearly sixty other ships like theirs had landed on the shore and unleashed their Holragi occupants, all of them armed with guns and covered with zaikara porous feather armor. It was thicker than she imagined for a people that preferred the outskirts of the desert. She had heard stories of the usefulness of extra water layers against the heat and radiation. Perhaps they were true.
+"After me," Fajro told her, waving his hand as he stood up and moved just below the opened hatch. A rope with a loop was lowered into the vessel and he placed his good foot into it, using the loop as a sort of stirrup. A soldier pushed Melna toward the hole to get ready for the next rope. She felt such an intense anxiety about showing her face to her people in such a state that she almost didn't want to leave the ship. But her resolve to do what she could pushed her forward. She held tightly to the rope and emerged on the top of a metal vessel, just a step from a pier in Heiko harbor. The harbor were filled with Heikoi ships, asleep at their docks. But all along the sand, nearly sixty other ships like theirs had landed on the shore and emptied their Holragi occupants onto the beach; all of them armed with guns and dressed in thick armor made from the feathers of the zaikara bird.
 
-A mechanical hum added to the commotion as Fajro emerged behind her and quickly joined her. He had a smile on his face as he watched his soldiers storming the city.
+Above her, already on the pier, Fajro had a smile on his face as he watched his soldiers storming the city.
 
-"You've certainly brought some friends with you."
+"You've certainly brought some friends with you," she said to him soberly, unbothered by seeing her home overrun.
 
-"Just cooperate," he said, "and nobody will be hurt."
-
-"You waste your breath with empty promises."
-
-"You really are a stubborn one, Melna. I am a man of my word, and this partnership will be the first of many–"
+"Just cooperate," he said, "and no one will come to harm. This partnership will be the first of many–"
 
 "This is an invasion, not a partnership."
 
-"Well, I suppose that's up to you," he said, turning his head toward the city. He held out his hand, pointing toward the road that led to the station square, signalling for Melna to walk in front of him, but she refused.
+"Well now," he said, turning his head toward the city. "I suppose that's up to you."
 
-"I will not deliver a speech of surrender at the place of my oath-taking."
+He held out his hand, pointing toward the road that led to the station square, signalling for Melna to walk in front of him.
 
-"What better place for them to trust you than to be reminded of your authority."
+"What better place than the place of your oath-taking. They will be reminded of your authority."
 
-"A Heiko fidelant carries duty over authority. My duty today will be to ensure their safety in this process, and they will be looking to me to do that."
+"A fidelant holds duty above authority. They will be looking to me for answers."
 
-"So let them look up while they do."
+"So let them be reminded of your importance while they do."
 
-"No. My people do not look up or down to anyone. I will hear me at the pier."
+"In Heiko, we knew the value of a life is immeasurable. I am no more important than the farmer selling hae harvest nor the doctor minding his patients. They will hear me at the pier."
 
-He tossed up his hands and said, "Suit yourself," then gestured to two soldiers that were standing by. They turned and ran toward the square, seemingly to spread the new orders.
+He tossed up his hands and said, "Fine," then gestured to two soldiers that were standing by. They turned and ran toward the square. "But the order remains," he commanded, "I speak first."
 
-"But the order remains. I speak first," he commanded.
+"Yes. Of course," she said.
 
-"Yes. Of course," she said, doing her best to hide her feelings.
+"You are shaping the lives of your people forever todday. Be sure to choose your words wisely."
 
-"Today, you will change the lives of your people forever. Be sure to choose wisely."
+<!-- left off -->
 
 A soldier from their submersible shoved her forward and she began walking across the beach toward the point where the sand met one side of the grand pier. The sand that had always been kind to tread upon now filled her feet with cold, traveling along the marrow and the empty spaces in her shins and stiffening her joints with each step. She watched with anger as the people of Heiko's city center were summoned from their homes, sometimes forcefully, and gathered at the mouth of the pier. They were visibly malnourished, relying only on new crops that grew under the light of the obscura and what little stockpiles of dried stone fruits had remained of their last shipment from Yansha. Her face flushed with tiny tears from the pores in her hydroderm, but she stopped herself lest Fajro use it against her.
 
