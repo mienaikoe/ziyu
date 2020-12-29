@@ -108,7 +108,7 @@ He moved to a position in front of the table, with the people of Heiko before hi
 
 "Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the Holragi Spacerail. I stand before the people of Heiko today, with your dearest fidelant Melna, to bring great news to both our peoples. We are also broadcasting this over the air to every conduit in the twelve provinces. This announcement will truly be a pivotal moment in the history of our world."
 
-He smiled at the crowd, expecting the sounds of awe and wonder, but there was only one emotion on their minds at that moment: worry. He quickly stopped smiling and continued.
+He smiled at the crowd, expecting the sounds of awe and wonder, but there was only one emotion on their minds at that moment: worry. Melna could still hear the pattern in the static of her listener, but Fajro's voice was absent. _Curious_.
 
 "On behalf of my colleague Melna, I would like to announce that Holrag has uncovered the secrets of the obscura, and we are now planning countermeasures to fight off our mutual enemy."
 
@@ -130,35 +130,35 @@ She began.
 
 Pomri suddenly stood up and permeated the crowd, slowly weaving in and out of people and whispering something to them. On the listener, the pattern in the static was louder, but she paid no mind to it.
 
-<!-- left off -->
+"There's something I've always admired about our spirit," she began. "We don't give up in the face of adversity. We commune with each other to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. For years, we throngia fought each other for land on this precious ring of life. But at some point we realized we would all be much better off if we shared it with each other, and through diplomacy we achieved lasting peace in the senate. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather destroy everything that we have. Survival will require change. To abandon our old lives and embrace the new, however strange and painful it may be. But whatever comes, we will not back down, no matter the circumstances. We will survive this together."
 
-"There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little we have of this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through reasoning and diplomacy, we achieved a lasting peace. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather take everything that we have. But I want you all to remember this. We will not back down. No matter the circumstances. We will survive this together."
-
-Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him and held her arm out to fend him off. By now, the beating hum was much louder and clearer, and she could almost make out the sound "U. Lu".
+Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him, toward the crowd as if to join them. By now, the beating hum in her listener was much louder and clearer, and she could almost make out the sound of a woman's voice calling amongst splashes of water. She caught sight of Fanla, her eyes flowing, a torrent of unspoken words. And it was clear.
 
 "Behind you is Ara. It has long been a symbol of life and vitality, but now it is dying and there is little we can do to stop it."
 
-Fajro whispered loudly to her, "Melna, there is no time for this," But she persisted. She knew the plan now. This was her moment.
+Fajro called loudly behind her, "Melna, there is no time for this," But she persisted. This was her moment.
 
-"As you look to me for guidance, I want you to stand tall and look even further, for I will no longer be with you. Before you, I stand on a pier that harbors ships into the cold, dark sea of Ulu. It has always been a dangerous and unknown place, but I need you to trust me when I tell you that the future of Heiko is waiting for you behind this fog."
+"As you look to me for guidance, I want you to stand tall and look further, for I will no longer be with you. Before you, I stand on a pier that harbors ships into the cold, dark sea of Ulu. It has always been a dangerous and unknown place, but I need you to trust me when I tell you that the future of Heiko is waiting for you behind this fog."
 
-"Cut it!" Fajro yelled to the solider, but he was too late, as Melna had shoved the maman away from hae equipment. Fajro reached for her, but she unsheathed a dagger from her robes and used his momentum to pin him against her with the dagger at his neck.
+"Cut it!" Fajro yelled to the operator, but thi was caught as if in a trance. Fajro reached for her, but she dodged him and lifted the dagger from her robes all in one swift movement. His momentum sent him to the ground and a dozen soldiers ran to his aid, but they were all too late. Melna lifted Fajro by his coat and held him against her with the dagger at his neck.
 
-"Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately rushed into the water as Pomri and the woman subdued soldiers who were trying to hold people back with the aid of a few from the crowd who stayed behind. Three explosions cracked the air and two mamen on the beach fell to the ground, blood and water quickly filling their clothes. A man quickly came to their aid as the rest continued fighting.
+"Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately ran to the beach, fighting and pushing any soldiers that were in the way. A few Heikoi guards were busy holding off the soldiers behind them while Pomri kept the guards closest to Melna busy. The sound of guns and clanging upset the air as Heikoi and Holragi fell, spilling their blood and water across the stone.
 
-Behind her, thunderous horns filled the air as an armada of war boats filled to the brim with glowing blue paddlers appeared from the mist and cut through the water toward the outer line of the blockade. They tossed hooks and ropes onto the boats and poured themselves into the furthest ships of the blockade, taking them with ease. A handful of Holrag soldiers on the coast rushed to their submersibles, returning to protect the bigger ship.
+From the sea, thunderous horns filled the air as an armada of glowing blue lights appeared from the mist of the night: paddlers cutting through the water as if it were air. They poured themselves onto the beach, tossing metal balls into the submersibles that exploded on impact and helping people onto their canoes. A handful of Holragi soldiers rushed to the remaining submersibles, escaping under the water where they couldn't be seen.
 
-"You've doomed them all," Fajro spoke roughly as she pulled him down the pier. "We could have had something great." Fifty soldiers, all with hand muskets, pointed them at Melna, waiting for a clear shot.
+"You've doomed us all," Fajro spoke roughly as she pulled him down the pier. "We could have had something great."
 
-"We still can," she said, finally relieved of her duties. "But not like this."
+"There is nothing greater than being free," she said.
 
-She could feel the burn on her skin turning raw and opening up to the blood that had gathered underneath. She winced with each step backward, pushed it out of her mind.
+She could feel the burn on her hydroderm opening up, the blood that had gathered seeping out. She winced with each step backward, pushed it out of her mind.
 
-"The ones who come after will do what we couldn't. They will learn to temper their differences. They will understand and overcome the obscura. They will be better than we could be."
+"The ones who come after will do what we couldn't. They will learn to temper their differences. They will be better than we could be."
 
-"They will all die," said Fajro. "You heard Liffa... it is... immovable... impenetrable."
+"There will be no after," said Fajro. "You know just as well that the obscura is immovable... impenetrable. Death is all that awaits us."
 
-"If you come to a wall, it is far easier to go around it. The obscura must become a part of who we are."
+<!-- left off -->
+
+"Someday, the obscura will be gone. "
 
 "You know a way?"
 

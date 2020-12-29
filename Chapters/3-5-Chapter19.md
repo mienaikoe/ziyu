@@ -252,7 +252,7 @@ Through the muffle of a wooden celing came the sound of innumerable footsteps; o
 
 Melna's mind wandered to Kipnu, remembering how fearless he was through his sentencing and even in the stories that Linyu told her about him. And Liffa who she had heard from the furthest reaches of the void, still living breath by breath. She removed Fanla's listener from her satchel and lifted it onto her ear, once again searching for some sign of Liffa, but there was nothing but static. Her fingers moved to her pendant instead, and imagined some otherworldly strength hidden inside that could be conjured from its curves and niches.
 
-She moved to a window and eyed the bridge over the wetland delta, still proudly stretching across the horizon as the idle train rail rested in the distance. Her mind wandered to Fanla and her soothing voice, to Pomri and Linyu and Laen, and she sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. And now she was alone in the darkness.
+She moved to a window and eyed the bridge over the wetland delta, still proudly stretching across the horizon as the idle train rail rested in the distance. Her mind wandered to Fanla and her clever voice, to Pomri and Linyu and Laen, and she sunk once more into anguish. She had led them to Rudjan, and Rudjan had divided them all. And now she was alone in the darkness.
 
 At least, she believed that she was.
 

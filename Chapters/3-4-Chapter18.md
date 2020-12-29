@@ -74,7 +74,7 @@ Melna stood confidently and said, "I am Melna um Heiko. I am bound to Kipnu and 
 
 "Come with me," she interrupted, and turned down the wooden alley they stood in. Melna was exasperated. If not for her utter lack of any other leads, she would have turned around and left. But there was something about this woman; like the crucial piece of a puzzle, there was no way forward without her.
 
-"First of all, who are you?" Melna asked as she caught up with hae.
+"Wait, who are you?" Melna asked as she caught up with hae.
 
 "My name is Fanla," she said, removing her mask. Though it was dark, Melna could see more of the features of her face. She seemed younger than hae eyes would suggest, and her tone more soothing when unencumbered. "I was sent here by Linyu's mother to find hae and get hae to safety. When I finally spotted hae and the woman, they were walking into a trap at the station, but I was able to get to them in time."
 
