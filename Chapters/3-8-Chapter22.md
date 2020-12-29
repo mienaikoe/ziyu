@@ -50,7 +50,7 @@ The hull of their vehicle scraped against the sand as it came to a stop. The cra
 
 The pilot rose from hae chair and stood in front of Melna, turning a knob to open the leaky door above her. She thanked hae as thi turned back to hae seat, and thi gave a nervous glance of acknowledgement.
 
-"After me," Fajro told her, waving his hand as he stood up and moved just below the opened hatch. A rope with a loop was lowered into the vessel and he placed his good foot into it, using the loop as a sort of stirrup. A soldier pushed Melna toward the hole to get ready for the next rope. She felt such an intense anxiety about showing her face to her people in such a state that she almost didn't want to leave the ship. But her resolve to do what she could pushed her forward. She held tightly to the rope and emerged on the top of a metal vessel, just a step from a pier in Heiko harbor. The harbor were filled with Heikoi ships, asleep at their docks. But all along the sand, nearly sixty other ships like theirs had landed on the shore and emptied their Holragi occupants onto the beach; all of them armed with guns and dressed in thick armor made from the feathers of the zaikara bird.
+"After me," Fajro told her, waving his hand as he stood up and moved just below the opened hatch. A rope with a loop was lowered into the vessel and he placed his good foot into it, using the loop as a sort of stirrup. A soldier pushed Melna toward the hole to get ready for the next rope. She felt such an intense anxiety about showing her face to her people in such a state that she almost didn't want to leave the ship. But her resolve to do what she could pushed her forward. She held tightly to the rope and emerged on the top of a metal vessel, just a step from a pier in the harbor where hundreds of Heikoi ships lay sleeping at their docks. But all along the sand, nearly sixty other ships like theirs had landed on the shore and emptied their Holragi occupants onto the beach; all of them armed with guns and dressed in thick armor made from the feathers of the zaikara bird.
 
 Above her, already on the pier, Fajro had a smile on his face as he watched his soldiers storming the city.
 
@@ -76,7 +76,7 @@ He tossed up his hands and said, "Fine," then gestured to two soldiers that were
 
 "Yes. Of course," she said.
 
-"You are shaping the lives of your people forever todday. Be sure to choose your words wisely."
+"Remember: you are shaping the lives of your people forever. Be sure to choose your words wisely."
 
 <!-- left off -->
 
