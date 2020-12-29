@@ -50,7 +50,9 @@ The hull of their vehicle scraped against the sand as it came to a stop. The cra
 
 The pilot rose from hae chair and stood in front of Melna, turning a knob to open the leaky door above her. She thanked hae as thi turned back to hae seat, and thi gave a nervous glance of acknowledgement.
 
-"After me," Fajro told her, waving his hand as he stood up and moved just below the opened hatch. A rope with a loop was lowered into the vessel and he placed his good foot into it, using the loop as a sort of stirrup. A soldier pushed Melna toward the hole to get ready for the next rope. She felt such an intense anxiety about showing her face to her people in such a state that she almost didn't want to leave the ship. But her resolve to do what she could pushed her forward. She held tightly to the rope and emerged on the top of a metal vessel, just a step from a pier in the harbor where hundreds of Heikoi ships lay sleeping at their docks. But all along the sand, nearly sixty other ships like theirs had landed on the shore and emptied their Holragi occupants onto the beach; all of them armed with guns and dressed in thick armor made from the feathers of the zaikara bird.
+"After me," Fajro told her, waving his hand as he stood up and moved just below the opened hatch. A rope with a loop was lowered into the vessel and he placed his good foot into it, using the loop as a sort of stirrup. A soldier pushed Melna toward the hole to get ready for the next rope. She felt an intense wave of anxiety when she thought of showing up with such news and under such circumstances.
+
+She held tightly to the rope and emerged on the top of a metal vessel, just a step from a small pier in the harbor where hundreds of Heikoi ships lay sleeping at their docks. But all along the sand, nearly sixty other ships like theirs had landed on the shore and emptied their Holragi occupants onto the beach; all of them armed with guns and dressed in thick armor made from the feathers of the zaikara bird. The night air was still with the aroma of anomin smoke, telling of the lights she'd seen from afar.
 
 Above her, already on the pier, Fajro had a smile on his face as he watched his soldiers storming the city.
 
@@ -70,77 +72,55 @@ He held out his hand, pointing toward the road that led to the station square, s
 
 "So let them be reminded of your importance while they do."
 
-"In Heiko, we knew the value of a life is immeasurable. I am no more important than the farmer selling hae harvest nor the doctor minding his patients. They will hear me at the pier."
+"žah-Fajro, you should like to remember that the Heikoi do not measure the value of a life. I am no more important than the farmer selling hae harvest nor the doctor minding his patients."
 
-He tossed up his hands and said, "Fine," then gestured to two soldiers that were standing by. They turned and ran toward the square. "But the order remains," he commanded, "I speak first."
+He tossed up his hands and said, "Fine. Where is good for you then?"
+
+She smiled as if conjuring some plan in her head. "Here. Where the ocean weathers the sand. I'll speak upon the pier there." She pointed toward a wide, wooden deck that towered over the water below. A broad sloped clearing of stone was set into the sand where several piers adjoined the land, with room for thousands in a crowd.
+
+Fajro gestured to two soldiers and they ran toward the station square.
+
+"But the order remains," he commanded, "I speak first."
 
 "Yes. Of course," she said.
 
-"Remember: you are shaping the lives of your people forever. Be sure to choose your words wisely."
+"Remember your place in all this, Melna. The wrong words could cost you everything."
 
-<!-- left off -->
+"And the same goes for you," she responded with a tone of confidence. Without looking, she knew that a scowl rested upon his face. She wondered if he knew.
 
-A soldier from their submersible shoved her forward and she began walking across the beach toward the point where the sand met one side of the grand pier. The sand that had always been kind to tread upon now filled her feet with cold, traveling along the marrow and the empty spaces in her shins and stiffening her joints with each step. She watched with anger as the people of Heiko's city center were summoned from their homes, sometimes forcefully, and gathered at the mouth of the pier. They were visibly malnourished, relying only on new crops that grew under the light of the obscura and what little stockpiles of dried stone fruits had remained of their last shipment from Yansha. Her face flushed with tiny tears from the pores in her hydroderm, but she stopped herself lest Fajro use it against her.
+The sand on the beach had always been kind to tread upon but now it filled her feet with the sort of cold that travels along the empty spaces in bones and freezes in the joints. As they approached the larger pier, disparate groups of throngia and saffa began to gather. She watched with anger as the soldiers corralled them with loud orders and cracks in the air. Many were in the first stages of malnourishment, with their eyes sunken and their limbs trembling in the cold.
 
-As she approached the pier, the people were aghast at seeing Melna dressed in robes amongst hostile company. Some of them heckled her, calling her "traitor!" and "coward!". But others could see through to what was really happening, and they cried for her. From the crowd she spotted Jesse, the astronomer, and Thimlu, the messenger who put their hands on their chests in solidarity with her. She quickly warmed her face and gave them a nod as if to communicate a secret. They did not know the secret she was speaking of, but had a feeling that things were not as simple as they seemed.
+When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, knowing that she would sooner die than betray them. Her own face flushed with small droplets from the pores in her hydroderm, but she quickly stopped herself; they needed to see her strength to know their own.
 
-Upon the first few staves of the fog-worn pier, a small group of soldiers had gathered around a table to set up some strange electrical equipment that had wires running to their small submersible docked to the pier.
+From the crowd she spotted Jesse and Thimlu who put their hands on their chests in solidarity with her. She wanted so badly to run to them, to hold their hands in communion and tell them everything she'd learned. But a nod would have to do, she thought. A nod would be enough.
+
+Upon the first few staves of the pier, a small group of soldiers had gathered around a table to set up some strange electrical equipment that had wires running to their small submersible back on the beach. Through the crowd, the soldiers were handing out small devices that resembled listeners.
 
 "The whole world will want to hear what we have to say," said Fajro.
 
-Melna's stare was focused on her people. "I want them all to have radios."
-
-"You what?"
-
-"If you want the whole world to hear us then let's start with the people we are addressing."
-
-He hesitated, balking at the idea.
-
-"You've got a loud voice, haven't you?"
-
-"Not in the wind."
-
-He let out a grunt of frustration, "This is why I wanted to do this in the square."
-
-"We do it here. With radios," she commanded.
-
-"Even if I wanted to, we don't have that many-"
-
-"The radios, Fajro."
-
-He stared at her for a moment and then gave an order to a group of soldiers standing near the electrical equipment.
-
-"Any other demands?"
-
-"Yes. Quit whining."
-
-"Excuse me?"
-
-"This was your idea. Start acting like it."
+Melna's stare was focused on her people. From her satchel, she produced the wooden listener that Fanla had dropped for her at the gates of Rudjan, and surreptitiously placed it on the ear furthest from Fajro. There was a pattern in the static that she hadn't heard before.
 
 A soldier came up to Fajro and said, "Sir, we are ready for the broadcast."
 
 "Yes," he said, adjusting his coat impatiently. "Yes, let's begin."
 
-He moved to a position in front of the table, with the people of Heiko before him and took a microphone listener from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable, and Melna smiled for the first time in a while. She settled into a pocket of the crowd near the center, never taking her eyes off of Melna even as Fajro began.
+He moved to a position in front of the table, with the people of Heiko before him and took a microphone from a table near the equipment. He waited with a patronizing smile as all of the crowd anxiously put the listeners to their ears for the first time. At the back of the crowd, Melna spotted a familiar face meandering through the people to get closer to Melna. She thought she was seeing things, but once she had come close enough, Pomri's smile became unmistakeable. A wide, broken smile beamed across Melna's face for the first time in what felt like an eternity. Without taking her eyes off of Melna, Pomri settled into a pocket of the crowd near the front.
 
-"Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the space rail project. I stand before the people of Heiko today, with former Heiko fidelant Melna with great news." _Former?_ "We are also broadcasting this over the air to every conduit in the world. This announcement will truly be a pivotal moment in the history of our world."
+"Good evening. I am Fajro um Holrag. Former fidelant for Holrag and primary benefactor of the Holragi Spacerail. I stand before the people of Heiko today, with your dearest fidelant Melna, to bring great news to both our peoples. We are also broadcasting this over the air to every conduit in the twelve provinces. This announcement will truly be a pivotal moment in the history of our world."
 
-He smiled at the crowd, expecting looks of awe and wonder, but only receiving the blank stares of worry. He quickly stopped smiling and continued.
+He smiled at the crowd, expecting the sounds of awe and wonder, but there was only one emotion on their minds at that moment: worry. He quickly stopped smiling and continued.
 
-"On behalf of my colleague Melna, I would like to announce that Holrag has uncovered the secrets of the obscura, and we are now planning countermeasures."
+"On behalf of my colleague Melna, I would like to announce that Holrag has uncovered the secrets of the obscura, and we are now planning countermeasures to fight off our mutual enemy."
 
-Some in the crowd had become joyful at this news, but most remained skeptical, waiting for Melna to comment before judging its trustworthiness.
+Some in the crowd grew excited at this news, but most remained skeptical, waiting for Melna to comment before judging its trustworthiness.
 
-"As part of this effort, the world must unite. To pool our resources into a project larger than anything this planet has ever seen. In an act of unity, Heiko has pledged its service to Holrag," _He wants to enslave all of us_ "forging a strong alliance to help us all accomplish this herculean effort in time. Together, we will build a fortress in the sand. It will be a shelter for all the world's inhabitants where we can wait comfortable until the obscura subsides. I'd like to invite Melna who will now speak about this historic alliance."
+"As you know, this enemy is like nothing we've ever seen before. And to fight it requires us to cooperate in radical ways; to pool our resources into a project larger than anything our planet has ever seen. Now, Holrag and Heiko have had our differences, but we knew that we had to work through them, that there was no time to quarrel over details. In a bold act of unity, Melna has pledged the services of Heiko to the Holrag, forging a strong alliance to help us all accomplish this herculean effort in time."
 
-He passed the microphone listener to Melna who manufactured the best smile of acceptance she could muster.
+He waited for some sort of excited sound, but the crowd remained silent, trying to fully understand what he was telling them.
 
-"You might have told me this earlier," she said to him under her breath.
+"Together, we will build a fortress in the sand: a shelter for all the world's inhabitants where we can wait comfortably until the obscura subsides. There is no greater cause than the survival of our species, and I am immensely proud of all of Heiko for answering the call. I'd now like to invite Melna who will speak about this historic alliance."
 
-He replied, "You never would have said yes."
-
-He walked behind her and stood very close in case she tried anything again. Beside him stood one of the soldiers from their submersible who he turned to and whispered into hae ear, "Be ready to cut on my signal."
+He passed the microphone listener to Melna who manufactured the best smile of acceptance she could muster. He walked behind her, standing very close in case she tried anything again. To his right was the operator who he'd berated for acting slowly. He whispered to hae, "Be ready to cut on my signal."
 
 Melna rose the microphone to her mouth and looked at her people. _This will be my last address_, she thought. _Best not to hesitate_.
 
@@ -148,7 +128,9 @@ She began.
 
 "Friends. Heikoi. Pangum of Palinan."
 
-She watched as Pomri permeated the crowd, slowly passing through with no apparent destination. She was up to something. On the line, a faint beating hum could be heard. She paid no mind to it.
+Pomri suddenly stood up and permeated the crowd, slowly weaving in and out of people and whispering something to them. On the listener, the pattern in the static was louder, but she paid no mind to it.
+
+<!-- left off -->
 
 "There's something I've always admired about our spirit. We don't give up in the face of adversity. We cooperate to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. I was asked just a few moments ago to deliver a speech about how we are coming together to create the greatest weapon ever made against our greatest foe. But I want to first talk a bit about why we need this weapon. For years our peoples fought over territory on what little we have of this precious ring of green. Until finally we realized we would all be much better off if we shared our goods with each other and through reasoning and diplomacy, we achieved a lasting peace. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather take everything that we have. But I want you all to remember this. We will not back down. No matter the circumstances. We will survive this together."
 
