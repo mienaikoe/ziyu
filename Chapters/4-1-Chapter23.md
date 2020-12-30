@@ -2,9 +2,9 @@
 
 "So that's how it happened?"
 
-"I did what I had to"
+"I did what I had to."
 
-My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. This was the place where she said she found me, unconscious, smoke covering my face.
+My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. This was the place where she last saw Kipnu; where a woman named Fanla had kept her alive.
 
 "And mom?"
 
@@ -12,7 +12,7 @@ Setre sighed and looked down.
 
 "You promised to save hae. Where were you?"
 
-"I had to save you first, Lin. It was–"
+"Everything was on fire, Lin. It was–"
 
 "You. Promised." I glared at her, my face much closer to hers than I remember from standing under her before Shinna.
 
@@ -20,17 +20,17 @@ She tried to put a hand on my shoulder, but I was stubborn, shrugged her hand of
 
 "Linyu, I did what I could. The fire... surprised everyone. We were already engaged by the time-"
 
-"Fuck the fire," I growled and stood up. "My mother was willing to die to restore justice to Ulukoma. But you promised me you would never let it come to that. A promise means 'no matter what'."
+"Fuck the fire," I growled and stood up. "My mother was willing to die to restore justice to Ulukoma. When we left, you promised me you would never let it come to that."
 
 "Linyu," she called to me as I stormed behind the ziyu, "stop this nonsense."
 
-I turned and screamed at her, "Everyone I love has died! How can you call my feelings nonsense? Have some fucking empathy!"
+I turned and screamed at her, "Everyone I love has died! How dare you call my feelings nonsense?"
 
 She looked at me, speechless, in a sort of way she reserved for no one else. As if to remind me that she was still my nather, that a good kaln would not take her patience for granted. But we both knew the truth. She was my nather, but my mother raised me alone.
 
 I raised the microphone on the ziyu and spoke.
 
-"Liffa. I don't know if you can hear this. I want you to know, that everything is quickly turning to chaos down here. But you are not forgotten. I'm trying to figure out where you'll land so I can get to you. If you can hear this... please send some sort of signal."
+"Liffa. I don't know if you can hear this. I want you to know, that you are not forgotten. I'm trying to figure out where you'll land so I can get to you. If you can hear this... please send some sort of signal."
 
 The silence and static in my listener grew but my finger lingered on the speaking lever, waiting for a moment of hope. It didn't come.
 
@@ -64,7 +64,7 @@ Her voice had calmed to a cajole, "By talking to the people around you. We'll ne
 
 She raised her voice again, "I can't afford to grieve!" It was broken, and it was hurt, and I regretted what I had just said.
 
-With a loud thud of her spear against the ground, she lifted herself and stormed off toward the crowd, leaving me to my own thoughts. I looked out into the crowd of Heikoi and Ulukomai. They were huddled around small fires dotting wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
+With a loud thud of her spear against the ground, she lifted herself and stormed off toward the crowd, leaving me to my own thoughts. I looked out into the active crowd, mostly of Heikoi refugees. They were huddled around small fires dotting a wide stone basin where the eternal flame used to dance. A few adults were treating the wounded near a larger fire, making use of its bright light and sanitizing heat. Their spirit reminded me of Kipnu. When I woke from death that night on the beach of Ulukoma and the first thing I saw was his face and the unwavering concern for life. These were truly strangers in this place. They were displaced and came to us out of necessity. And yet the looks on their faces told me that they still felt uncomfortable around a people they were taught to distrust.
 
 "Setre, we need to talk," said Pomri, approaching her. I kept my position by the tree and listened closely.
 
@@ -144,13 +144,13 @@ My nather's hand led me along toward the snow-covered pillars that would soon be
 
 "Yes ma'am," said a maman. Thi had shell-shocked eyes and was shivering slightly in the cold. "The engineers are bound to protect the city. We are just apprentices."
 
-Melna looked frustrated. _What a ridiculous law_, she could have thought.
+Melna looked frustrated. _What a ridiculous law_, she thought.
 
 "Very well. What do you know how to do?"
 
 "We can quarter saw. Salt seal."
 
-"Trussing? Joints? Crane Pulleys?"
+"That's it? What about Trussing? Joints? Cranes?"
 
 All in the group hesitated, and Melna grew more frustrated. This was basic work in Holrag, they should know this by now.
 
@@ -158,27 +158,25 @@ All in the group hesitated, and Melna grew more frustrated. This was basic work 
 
 She led them for a few steps to two trusses that had been placed before they had heard news of Heiko, and I saw them off before joining the doctors around the large fire. I know my nather saw me. She always saw me.
 
-Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older Ulukomai woman assured her that the drug would work.
-
-"You know what you're doing," I said to the older woman, observing her movements.
+Pomri was crouched over an unconscious maman laying on a makeshift bed of salted kelp and preparing to inject kanosin into hae neck near the spinal column. She was visibly hesitant but an older woman assured her that the drug would work.
 
 "Kipnu taught me for only a moment, but I've had a lot of practice over the past few days."
 
-Her eyes looked closer at me for some sort of answer, and saw my eager face.
+The old woman's eyes looked closer at me for some sort of answer, and saw my eager face.
 
 "Would you like to help?"
 
 I nodded.
 
-She shifted herself without standing, making way for me to crouch beside her. She took my hand and held it steady against the back of the maman.
+She shifted herself without standing, waving at a nervous Pomri to stop, then took my hand and held it steady against the maman's back.
 
 "Hold hae body like this so I can make the injection. Steady now."
 
-The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized a pale green. Shaki titanium working. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of kanosin were pushed into hae hydroderm where they glowed and spread across it like a flow tattoo. Instinctively, I spat onto my thumb and pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
+The needle was as thick as the wires I used for listeners, but the tip was precisely machined and oxidized a pale green. Shaki titanium. She placed it at the base of the maman's neck, angling it to inject toward hae head, and I watched as the blue liquid disappeared into the body of the maman. With a final push, her hand finished and then gently extracted the needle. Some small remnants of kanosin were pushed into hae hydroderm where they glowed and spread across it like a flow tattoo. Instinctively, I took small coal from the fire and quickly pressed it hard against the wound to stop the bleeding. Pomri stared in disbelief.
 
-"You've... done this before?"
+"You've... done this before?" she asked.
 
-"Yes," I said coldly. Pomri understood my tone.
+"Yes," I said coldly.
 
 I gently laid the maman back down and took up the syringe for rinsing and sanitation near the fire. Pomri followed me as I moved.
 
@@ -186,11 +184,17 @@ I gently laid the maman back down and took up the syringe for rinsing and sanita
 
 "Kanosin," I said, slowly rinsing the syringe in a basin of ocean water. I pulled the plunger out to fill it and pushed it again to empty.
 
-"The narcotic? Why are you using Kanosin on injuries and hypoxia?"
+"What? That's a drug! Why are you using it on the injured?!"
 
 "Because it works."
 
 She gaped, both astonished and deeply horrified. I stopped the rinsing and walked a few paces to fetch a long monobodied forcep, placing the syringe into the end and immersing it into the fire. I didn't speak. My mother had taught me to be discerning about who I told about Kanosin; only those those who would use the knowledge well and accept its truth deserved to know. Pomri would barely accept what she saw herself.
+
+"Where I'm from, you would be banished for doing that."
+
+"Where I'm from, A person's life is worth more than a day off from consciousness."
+
+Pomri was taken aback, unsure of what to say, but still immensely curious.
 
 "How does it work?" she implored.
 

@@ -18,9 +18,9 @@ Holragi is digging shelter in Heiko, because they need shelter from the coming n
 They are driven into the desert
  -->
 
-Pomri was late, naturally, but she came prepared with a lantern in hand, and a large durable bag on her back. When she arrived, she set down her lantern and produced a rope from the bag, tying it first around herself, then around me.
+Pomri was late, naturally, but she came prepared with a small anomin lantern in hand, and a large durable bag on her back. When she arrived, she produced a rope from the bag, tying it first around herself, then around me.
 
-"In case you fall in," she said. I remembered what it felt like to drown in the ocean, and I wasn't keen on doing it again.
+"In case you fall in," she said. I remembered what it felt like to drown, and wasn't keen on doing it again.
 
 "Are you worried?" I asked as we pushed off.
 

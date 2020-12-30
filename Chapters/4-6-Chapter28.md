@@ -80,9 +80,7 @@ The oars cut back to a silence, but no response came.
 
 "There's a reason Ramne had to steal a boat."
 
-I smiled and couldn't wait to meet our new friends.
-
-"Shinna! It's Ginnu!" thi yelled again.
+"Shinna!" thi yelled again. "It's Ginnu!"
 
 The water remained silent for a moment more, then began with quiet disquiet, rummaging through the water. The sound followed a path toward the shore some fifty paces toward Rudjan. I looked to Annu who looked back at me with hae hand extended in a gesture of fellowship. I took it in mine, and together we walked along the shoreline toward the place where they were about to land.
 
@@ -136,9 +134,9 @@ Shinna scoffed at the idea. "Why would you want to go there at a time like this?
 
 "It's... complicated. And I don't completely understand it either. But I can assure you that it's the only place left in the world for us."
 
-"Bit dramatic, eh?" thi said. "My crew is already pretty demoralized. We just lost our ship and half our people to the blast. We've been rowing back home ever since. I couldn't very well convince them to row two strangers and their saffas out into colder waters on just a promise. Why don't you join us to Rudjan and then we'll get you sorted."
+"Bit dramatic, eh?" thi said. "My crew is already pretty demoralized. We just lost our ship to the Holragi and we've been rowing back home ever since. I couldn't very well convince them to ferry two strangers and their saffas out into colder waters on just a promise. Why don't you join us to Rudjan and then we'll get you sorted."
 
-"The saffas can paddle," said Annu, pleading to Shinna with the last of hae bargaining chips.
+"The saffas can paddle," said Annu, pleading to Shinna with the last of hae leverage.
 
 I let go of Annu's hand and stepped forward, channeling my mother's bravery, trying on my gravest voice. "You saw that arc in the sky, cutting just above Heiko City?"
 

@@ -50,7 +50,7 @@ I kneeled down to get a closer look, and before I noticed, she entered the cove.
 
 My eyes tried to focus on the blue glow as a dozen bright amber spotlights suddenly came alive from a place in the water. _Slavers!_
 
-"Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. The blue glow was blotted out by the amber lights, and I could see her in full light now, holdinig her spear defensively. A crew of five spotlights emerged from the source of the spotlights, holding their lights to her, and the minute they set foot on land, she sprung into action, taking out one of the slavers. But the other four quickly bound her with weighted nets and wrested away her spear with a rope anchor. "Pomri!" I called out to her, and immediately two of the amber lights turned my way, impaling the dark with their beams. Somehow, the distance between us had become immeasurable, as if some illusion had been cast onto by the intense beams of theiir lanterns. Without a pause, they ran after me but I just stood there, my mind faltering and petrified in their light.
+"Pomri!" I said, quickly rising to my feet. But my muscles refused to work enough to muster a run, much less a sprint. The blue glow was blotted out by the amber lights, and I could see her in full light now, holding her spear defensively. A crew of five spotlights emerged from the one, holding their lights to her, and the minute they set foot on land, she sprung into action, taking the first one head-on. But the other four quickly bound her with weighted nets and wrested her spear away with a rope anchor. She grappled with another, but her hand was met with a dagger and ankles were tied in the blink of an eye. "Pomri!" I called out to her, and immediately two of the amber lights turned my way, impaling the dark with their beams. Somehow, the distance between us had become immeasurable in an instant, as if some illusion had been cast on my eyes. Without a pause, they ran after me but I just stood there, my mind faltering and petrified in their light.
 
 From behind me, a voice called "Aye!" and a small army of feet pattered against the rock. I huddled in anticipation, but the steps passed by me and charged ahead toward the lights. Through the lantern lights, I saw their silhouettes: a maman dressed in a dark and tattered robe with a paddle in hae hand; two saffas were further ahead, galloping their quickest toward the lights emerging from the water.
 
@@ -128,9 +128,9 @@ Thi asked me, "What's your name, young maman?"
 
 Thi introduced herself, "The one that came before me was named Ginnu."
 
-"Ginnu!" I interjected excitedly. "You disappeared after the battle. What happened to you?"
+"Ginnu..." I said, hiding that I'd known hae before.
 
-"Battle? Whatever battles Ginnu fought, thi died and is forgotten. I am _Annu_, one without a name."
+"To me, Ginnu died and is forgotten. I am _Annu_, one without a name."
 
 "Annu..." I repeated but did not understand. A pendant around hae neck caught my eye and unraveled my curiosity. I took a closer look to make sure it was the genuine article.
 

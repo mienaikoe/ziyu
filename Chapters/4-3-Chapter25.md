@@ -7,9 +7,9 @@
 
 ## Chapter 25
 
-Rocks. Everywhere. I would never have believed that something so simple could haunt me as much as the rocks did on the path to Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see them but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and a small anomin oil lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
+The rubble was everywhere. I would never have believed that something so simple could haunt me as much as that path toward Ara. Everywhere we walked, our journey was punctuated with sharp edges and unstable footing. We could barely see our feet but for the faintly ambient glow of Ara bouncing through the neverending cloud of dust, and the small lantern that Pomri had to continuously wipe clean. I was glad of her foresight.
 
-"All these tracks are headed toward Rudjan," she said, observing carefully. "The children who couldn't swim that distance. They would have been captured by now – never had a chance."
+"These tracks are headed toward Rudjan," she said, observing carefully. "The children who couldn't swim that distance. They would have been captured by the blockade – never had a chance."
 
 I imagined myself part of that swarm of children, running for our lives as rocks and ash came tumbling down from the sky and the ground, and then a regiment of Rudjani soldiers comes to scoop us up. Would we be sold into slavery to work in the desert?
 
@@ -87,13 +87,13 @@ This place seemed so alien to me, even though I had been there just a day before
 
 "She's in there somewhere. I have to find her."
 
-I snapped my eyes up and saw Pomri's lantern-lit face. The sound of waves and an odd rushing of water filled the air behind her, and I saw the crater bowing its proud lip into the ocean, having erased any memory of the harbor that came before it. save for a few jagged, broken posts. The dust was thinner here, as I assumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
+I snapped my eyes up and saw Pomri's lantern-lit eyes. The sound of waves and an odd rushing of water filled the air behind her, and I saw the crater bowing its proud lip into the ocean, having erased any memory of the harbor that came before it. save for a few jagged, broken posts. The dust was thinner here, as I assumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
 
-She had stopped halfway through a stride, holding her lantern up to her face.
+She had stopped halfway through a stride, holding her lantern up to see.
 
 "Ay. Damn this thing." The flame began to flicker and fade. "Never enough fuel."
 
-I moved closer to her, suddenly aware of my dependence on her light. She glanced back at me as if she was surprised, expressionless. I barely saw her face before the lantern fizzled out and we were stuck in the muddy twilight, unable to see where the path ended and where it began.
+I moved closer to her, suddenly aware of my dependence on her light. She glanced back at me as if she was surprised, expressionless, before the lantern fizzled out and we were stuck in the muddy twilight, unable to see where the path ended and where it began.
 
 "I am not wasting my life because of a damn lantern," she said, setting it down harshly. I could tell she wanted to toss it into the crater, but she settled for staring at it in angry deliberation. My own deliberations were fixated on a few glass ampules and a syringe in a small writers bag in my satchel. I wasn't sure if this was the best use for them or what Pomri would think, but somehow I found the bag in my hands anyway holding them out for Pomri to feel for.
 
@@ -107,7 +107,7 @@ I moved closer to her, suddenly aware of my dependence on her light. She glanced
 
 "What are you on about now?"
 
-She watched patiently as I pulled the ampules out and neatly injected one into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's face in the illumination, wide-eyed and unbelieving.
+She watched patiently as I pulled the ampules out and neatly injected one into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's eyes in the illumination, wide-eyed and unbelieving.
 
 "W... What is this?"
 
@@ -123,7 +123,7 @@ She watched patiently as I pulled the ampules out and neatly injected one into t
 
 "He didn't need to."
 
-She eyed one of the ampules in my hand. I held it in my hand with much deliberation, gesturing for her to take it – an offer to which she obliged, holding it up to her eye to look at closer. The outline of her face was widened through the translucent inactivated liquid, and I giggled internally.
+She eyed one of the ampules in my hand. I held it in my hand with much deliberation, gesturing for her to take it – an offer to which she obliged, holding it up to her eye to look at closer. Her nose was widened through the liquid, and I laughed to myself.
 
 "What is Kanosin?" she asked me.
 
@@ -189,8 +189,8 @@ Curiosity turned my eyes backward, where I saw her stumbling in the dark down th
 
 "There's nothing left," I said to myself. But I had to follow her to make sure she was safe.
 
-She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate, painfully blind. But with great patience, she made it down to the waterline all the same, me observing from above.
+She made a turn toward the water, bounding down the outside of the crater as if to notice something specific. Her steps were deliberate and painfully blind. But with great patience, she navigated through the rubble of steel and rock and made it to the waterline.
 
-Pomri stepped into the frigid water and waded out until covered her legs and wetted her waist. Ahead of her, the stub of a wooden column pointed toward the sky where the pier used to be, its proud top severed and washed away. Alone it stood as the last of its kind. She let her hands and head rest softly against its side, and spoke to an old friend she'd lost too soon.
+Into the frigid water she stepped and waded out until it covered her legs and wetted her waist. Ahead of her, the stub of a wooden column pointed toward the sky where the pier used to be, its proud top severed and washed away. Alone it stood as the last of its kind. She let her hands and head rest softly against its side, and spoke to an old friend she'd lost too soon.
 
 <!-- DO NOT CHANGE THIS LAST PARAGRAPH. IT'S TEAR-INDUCING. -->

@@ -172,15 +172,15 @@ With the same gentleness she had shown him before, she took Jesse upon her back 
 
 The observatory was not as I expected it. There were no windows to be broken or walls to be split. It had been built into the ground, or perhaps the ground had been built around it. A set of three large metallic hatches protruded from the ground on the side facing Ara, closed to the elements. On the Ulu-side was a simple-looking wooden entryway with a wooden bell hung from a thick rope. Whether out of habit or the desire for some normalcy, Pomri jostled the wooden bell three times. Eager to rest, I lifted the latch and opened the door before she could finish her announcement of arrival.
 
-I found a warm area in middle of the room and laid on the floor, removing my face covering.
+I found a warm area in middle of the room, where a carpet had been laid between two chairs, and sprawled out on the floor, removing my shawl and bag after.
 
-"I'm sooo tiiiired," I said, stretching and sprawling my limbs across the floor. My heavy breathing was more noticeable in the quiet of the place.
+"I'm sooo tiiiired," I said, stretching my limbs. My heavy breathing was more noticeable in the quiet of the place.
 
 Pomri knealt down beside me and gently rested Jesse on the ground. She ventured to some dark corner of the room, as if distinctly familiar with this place, and returned with a pillow in her hands. Slowly, her hands raised Jesse's cold glowing body and gently rested it upon the pillow.
 
 "You can sleep later," she glanced at me with her voice. "Come, we need to look for the message."
 
-Her dark lantern rocked about with a subtle metallic creak as she rummaged through the place, moving quickly in the dark but never missing a step.
+Her dark lantern rocked about with a subtle metallic creak as she rummaged through the place, moving quickly in the dark but never missing a step. To the left was a modest hearth with an empty pot, but strangely, no dew column. To the right was the rest of the building, mostly instruments and tools and shelves full of records.
 
 "Ah!" she exclaimed, moving to a workbench. From a cabinet underneath, she pulled a large, thick, glass canister and popped a cork with her fingers. As she poured its contents into the lantern's upper tank, a distinctively floral aroma filled the room.
 

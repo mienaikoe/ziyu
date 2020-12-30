@@ -48,4 +48,4 @@ A high-pitched twinkling sound entered hae sound field. The binding pendant arou
 
 "It's getting rather hot up here. Think I'll spare you the details."
 
-"Linyu, if you can hear me, Thank y–" _click_
+"Setre, if you can hear me, Thank y–" _click_
