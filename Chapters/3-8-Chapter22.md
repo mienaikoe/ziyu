@@ -90,7 +90,7 @@ Fajro gestured to two soldiers and they ran toward the station square.
 
 The sand on the beach had always been kind to tread upon but now it filled her feet with the sort of cold that travels along the empty spaces in bones and freezes in the joints. As they approached the larger pier, disparate groups of throngia and saffa began to gather. She watched with anger as the soldiers corralled them with loud orders and cracks in the air. Many were in the first stages of malnourishment, with their eyes sunken and their limbs trembling in the cold.
 
-When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, knowing that she would sooner die than betray them. Her own face flushed with small droplets from the pores in her hydroderm, but she quickly stopped herself; they needed to see her strength to know their own.
+When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, still holding on to the hope that Melna could help them. Her own face flushed with small droplets from the pores in her hydroderm, but she quickly stopped herself; they needed to see her strength to know their own.
 
 From the crowd she spotted Jesse and Thimlu who put their hands on their chests in solidarity with her. She wanted so badly to run to them, to hold their hands in communion and tell them everything she'd learned. But a nod would have to do, she thought. A nod would be enough.
 
@@ -132,7 +132,7 @@ Pomri suddenly stood up and permeated the crowd, slowly weaving in and out of pe
 
 "There's something I've always admired about our spirit," she began. "We don't give up in the face of adversity. We commune with each other to accomplish a greater good. And most importantly, we sacrifice everything to do what is right. For years, we throngia fought each other for land on this precious ring of life. But at some point we realized we would all be much better off if we shared it with each other, and through diplomacy we achieved lasting peace in the senate. This new enemy believes themselves superior to us. We cannot reason with them, for they refuse to communicate. We cannot trade because they would rather destroy everything that we have. Survival will require change. To abandon our old lives and embrace the new, however strange and painful it may be. But whatever comes, we will not back down, no matter the circumstances. We will survive this together."
 
-Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him, toward the crowd as if to join them. By now, the beating hum in her listener was much louder and clearer, and she could almost make out the sound of a woman's voice calling amongst splashes of water. She caught sight of Fanla, her eyes flowing, a torrent of unspoken words. And it was clear.
+Some in the crowd cheered, and Fajro went to pull the listener away, but Melna stepped away from him, toward the crowd as if to join them. By now, the beating hum in her listener was much louder and clearer, and she could almost make out the sound of a woman's voice calling amongst splashes of water. "Steady! Hold formation!". She spoke with fire and conviction, and filled Melna's heart. Melna caught sight of Fanla, her eyes flowing, a torrent of unspoken words. And suddenly, she understood what she had to say.
 
 "Behind you is Ara. It has long been a symbol of life and vitality, but now it is dying and there is little we can do to stop it."
 
@@ -142,7 +142,7 @@ Fajro called loudly behind her, "Melna, there is no time for this," But she pers
 
 "Cut it!" Fajro yelled to the operator, but thi was caught as if in a trance. Fajro reached for her, but she dodged him and lifted the dagger from her robes all in one swift movement. His momentum sent him to the ground and a dozen soldiers ran to his aid, but they were all too late. Melna lifted Fajro by his coat and held him against her with the dagger at his neck.
 
-"Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately ran to the beach, fighting and pushing any soldiers that were in the way. A few Heikoi guards were busy holding off the soldiers behind them while Pomri kept the guards closest to Melna busy. The sound of guns and clanging upset the air as Heikoi and Holragi fell, spilling their blood and water across the stone.
+"Run! Run! Run!" Melna yelled into the listener as she slowly backed away down the pier with Fajro in her arms. As if on cue, the crowd immediately ran to the beach, fighting and pushing any soldiers that were in the way. A few Heikoi guards were busy holding off the soldiers behind them while Pomri kept the soldiers closest to Melna busy. The sound of guns and clanging upset the air as Heikoi and Holragi fell, spilling their blood and water across the stone.
 
 From the sea, thunderous horns filled the air as an armada of glowing blue lights appeared from the mist of the night: paddlers cutting through the water as if it were air. They poured themselves onto the beach, tossing metal balls into the submersibles that exploded on impact and helping people onto their canoes. A handful of Holragi soldiers rushed to the remaining submersibles, escaping under the water where they couldn't be seen.
 
@@ -150,32 +150,24 @@ From the sea, thunderous horns filled the air as an armada of glowing blue light
 
 "There is nothing greater than being free," she said.
 
-She could feel the burn on her hydroderm opening up, the blood that had gathered seeping out. She winced with each step backward, pushed it out of her mind.
+She could feel the burn on her hydroderm opening up, and all of the blood that had gathered there began to seeping. She winced with each step backward, trying to focus on getting Fajro to the edge of the pier. In the distance, Pomri was being pushed back toward the others, and a pair of soldiers had turned their focus back on Melna.
 
 "The ones who come after will do what we couldn't. They will learn to temper their differences. They will be better than we could be."
 
 "There will be no after," said Fajro. "You know just as well that the obscura is immovable... impenetrable. Death is all that awaits us."
 
-<!-- left off -->
+"If death is to come for us all, then let us show our courage, and not our cowardice. Let us stare into heaven and dive into the sea. Until we know that death is all there is."
 
-"Someday, the obscura will be gone. "
+He smirked, "You sound just like Liffa," he said. "Believing in the cause. Becoming a hero. The truth is, it didn't matter what thi saw up there. The rail was always a weapon, and Heiko its testing ground. The obscura was a convenient excuse to that end. I only wish it had been a little smaller.
 
-"You know a way?"
+"You have forsaken your confidence, and sullied the name of the Fidelity. Your secrets end here."
 
-"My, how the tables have turned," she smiled, acknowledging how bittersweet this end had become.
+With a sudden jab of his elbow he pushed her knife away and twisted out of her chokehold, narrowly missing the blade, and tumbled toward the edge of the pier, narrowly falling off but for a hand on the deck. Melna saw that she was vulnerable and ran after him amidst a flurry of gunfire and jumped off the pier, catching his leg on the way down to pull him off with her. The salt stung against her newly-opened burns and she screamed out in pain as they fell deeper, but still she held tightly to Fajro's leg, fighting his kicks to reach the surface. There was a sudden tightness in her side, and then a searing hot sensation and a radiating warmth in the water. She let go of him to cover the wound, but there was no time to look – she had to finish what she'd begun. She spotted Fajro surfacing above her and tugged hard on his leg, sending him under again. Her grip released and took his arm instead, holding it true and letting her other hand lay the blade to rest upon his neck. It was done.
 
-"Tell me!" he begged, "I'll bring Liffa back! I'll disperse the blockade! W-Whatever you want."
-
-"No," She responded without pause, "You have forsaken your confidence, and sullied the name of the Fidelity. Your secrets end here."
-
-"Wait!"
-
-With a sudden jab of his elbow he pushed her knife away and twisted out of her chokehold, narrowly missing the blade, and tumbled toward the edge of the pier. Melna saw she had become vulnerable, so she ran toward Fajro amidst the gunfire and jumped off the pier, catching his leg on the way down to pull him under the water with her. The water froze and the salt stung against her newly-opened burns and she screamed out in pain as they fell deeper, but still she held on to Fajro's leg as he kicked against her to surface. She felt a tightness in her side, and then a pain that leaked the warmth out of her body into the water. It didn't matter anymore. She had to finish what she had surrendered herself for. She looked around for Fajro above her and tugged hard on his leg, sending him flailing downard and her up to meet him. Her grip released from his leg and took his arm instead, holding it true and letting her other hand lay the blade to rest upon his neck. It was done.
-
-The soldiers were recovering his body when she last saw his lifeless face staring back at her between the volley of light rays wedging their way between the rafters. In the shallows beneath the pier, not fifty paces away, she lay beneath the sand, clinging to the bullet wound in her side and looking out toward the water. Upon the waves, not too far off, the blue lights of the Guardians of Ulukoma darted with urgency in their new found vessels, fetching children and elders and adults, one after the other, from the icy clutches of the ocean. Ahead of them, the forward ram of Shinna's ship shone brightly as it held a blockade of its own against the Holragi behemoth.
+The soldiers were recovering his body when she last saw his lifeless face staring back at her. In the shallows beneath the pier, not fifty paces away, she lay upon the sand, clinging to the wound in her side and looking out toward the water. The morning light had begun to form filaments between the rafters as the wind picked up and the fog dissapated. Cutting through the shallow waves were the canoes, filled to the brim with terrified Heikoi whom Pomri was amongst, she was certain. In the distance, the forward ram of Shinna's ship played with the light as it channeled the wind to dodge the movements of the Holragi behemoth.
 
 She smiled.
 
-Just before drifting off, she whispered a silent benediction to the people she had never met who shed their fears and risked their lives to save a people they did not know. In her fading consciousness, she felt Kipnu's warm presence wrap around her and through her as the last thought in her mind transpired into the wind.
+Just before drifting off, she whispered a silent benediction to the people she had never met who risked their lives to save her people. All around her, she felt Kipnu's warm embrace in the waves as the last words from her mouth transpired into the wind.
 
-"Good morning. Liffa."
+"Lovely morning, Liffa."

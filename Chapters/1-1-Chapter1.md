@@ -1,6 +1,6 @@
 ## Chapter 1
 
-"Good morning, Liffa."
+"Lovely morning, Liffa."
 
 Startled, I sat up to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
 
