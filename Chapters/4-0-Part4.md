@@ -1,6 +1,11 @@
 # Part IV: Linyu
 
-_Children are unique in their passion to make things right._
-_I've never met an adult who, when asked what they would change about the world, hadn't constructed an answer to avoid thinking about the question._
+_All are welcome in the house of knowledge._
+_So far as their consciousness is sustained._
 
-- Philosopher Lanre um Shaki, Day 15,403 after the Fifth Cold
+_One must only observe_
+_And in observing, observe._
+
+_Truth shall be theirs forever._
+
+- Philosopher Lanre um Shaki, Day 15,988 after the Fifth Cold
