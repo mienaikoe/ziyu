@@ -12,4 +12,4 @@ _To manipulate it is to act contrary to the spirit._
 _To squander it is to defy the will of the universe._
 _To destroy it is to destroy oneself._
 
-- The Code of Consciousness, Philosopher Lanre um Shaki, 17,528th Day after the Fifth Cold
+- The Code of Consciousness, Philosopher Lanre um Shaki, Day 17,528 after the Fifth Cold
