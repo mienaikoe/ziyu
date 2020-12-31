@@ -180,7 +180,7 @@ Pomri knealt down beside me and gently rested Jesse on the ground. She ventured 
 
 "You can sleep later," she glanced at me with her voice. "Come, we need to look for the message."
 
-Her dark lantern rocked about with a subtle metallic creak as she rummaged through the place, moving quickly in the dark but never missing a step. To the left was a modest hearth with an empty pot, but strangely, no dew column. To the right was the rest of the building, mostly instruments and tools and shelves full of records.
+Her dark lantern rocked about with a subtle metallic creak as she rummaged through the place, moving quickly in the dark but never missing a step. A modest hearth with an empty pot took up the back side of the one room building. To the left and right was the rest of it, mostly instruments and tools and shelves full of records.
 
 "Ah!" she exclaimed, moving to a workbench. From a cabinet underneath, she pulled a large, thick, glass canister and popped a cork with her fingers. As she poured its contents into the lantern's upper tank, a distinctively floral aroma filled the room.
 
@@ -284,7 +284,7 @@ Pomri read the messages out loud:
 Obscura Observation + 2to 5la 6na
 Jesse,
 
-I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city.
+I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city. Hopefully the Holragi haven't gotten to it first.
 
 This may be the last time we speak. It's been–
 ```
@@ -313,7 +313,7 @@ She took a deep breath and flipped the page.
 Obscura Observation + 2to 3la 8na
 Thimlu,
 
-I've double-checked my calculations and assumptions, and they must be correct. I still struggle to wrap my head around the immensity of the time scales we're dealing with.
+I've double-checked my calculations and assumptions, and they must be correct. I still struggle to wrap my head around the immensity of the scales we're dealing with.
 
 The obscura must be aware of what they're doing. We must get this information out as quickly as possible, so I'm leaving to find you.
 
@@ -332,9 +332,9 @@ Lab Note
 
 Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
 
-I took your advice and devised a projection of what would happen to Ara if the obscura is actually a sphere instead of the disc that the Holragi observers seem to report. Your hypothesis was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough to push against the obscura. I am just an apprentice observer, not an engineer, but if I were to make a hypothesis, there will be a sharp runoff of stellar wind pressure until it reaches a breaking point at which no material of that temperature could withstand the tension, and the obscura will break. The exact timing of this depends on how the obscura is constructed: if it has trussing, the thickness of the panels. Regardless, once this happens, it will send the obscura hurtling away from Ara at an unimaginable speed. And doubtless, this would send a flurry of radiation to Palinan.
+I took your advice and devised a projection of what would happen to Ara if the obscura is actually a sphere instead of the disc that the Holragi observers seem to report. Your hypothesis that the stellar wind pressure would rise exponentially was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough. I am just an apprentice observer, and certainly am no engineer, but I believ that there is a point at which the obscura can no longer hold itself together and it will break. The exact timing of this depends on how the obscura is constructed, but once this happens, it will send the obscura hurtling away from Ara at an unimaginable speed. And without a doubt, this would send a flurry of radiation to Palinan.
 
-Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara. It's inconceivable.
+Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara.
 
 -Jesse
 

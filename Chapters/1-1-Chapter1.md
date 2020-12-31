@@ -1,5 +1,23 @@
 ## Chapter 1
 
+_It's quiet. Something is wrong._
+
+_No. It's fine. Just a little late._
+
+_It's never this late._
+
+The wind picked up and Ara was warming the land, but still the ziyu tree remained silent. I took a deep breath and examined it, but nothing looked different: it was still the same tree I remembered my mother taking me to.
+
+_It must be the wind. The wind is too dry right now._
+
+Patiently, I waited for an answer that would settle my mind, but none came. There would be no song today.
+
+I stood up and dusted off my trousers, catching a last glimpse of the twilight-pink sky through the quiet leaves. I felt the presence of some malicious spirit, brooding within the very breeze I drew my breaths from.
+
+"The wind speaks," my mother would say, "The ziyu tells us what it's saying."
+
+"What is it saying?" I must have asked hae a thousand times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that the silence was an answer, but the trouble was in the question.
+
 "Lovely morning, Liffa."
 
 Startled, I sat up to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
@@ -16,7 +34,7 @@ I stayed silent, still listening for the leaves and my mother's voice.
 
 She stared at me for a moment, I assume to size up my strange behavior.
 
-"There's a chill in the air," she remarked, then turned to walk back home.
+"There's a chill in the air," she remarked, "Don't stay out too long."
 
 ---
 
