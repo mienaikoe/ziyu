@@ -1,6 +1,6 @@
-const fs = require("fs");
-const path = require("path");
-const wordcount = require("wordcount");
+import fs from "fs";
+import path from "path";
+import wordcount from "wordcount";
 
 const COMMENT_REGEX = /<!--[\S\s]*?-->/g;
 
@@ -32,5 +32,11 @@ fs.readdir(path.join(".", "Chapters"), function (err, items) {
   // let campnano = total - 41870;
   // console.log(`\n\nCamp Nano Words:\t\t\t${campnano} words`);
 
-  fs.appendFileSync("wordcount.log", `${now}\t\t${total} words\r\n`);
+  fs.appendFileSync("wordcount.log", `${now}\t\t${total} words\r\n`, err => {
+    if(err){
+      console.error(err);
+    } else {
+      console.log("done!");
+    }
+  });
 });
