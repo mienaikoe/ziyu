@@ -32,7 +32,7 @@ I took one bite and tasted the juicy sweetness. She wasn't wrong. They had gotte
 
 He didn't respond, but I knew he'd heard me. I left him in at the corner, humming with his stolen cake and a handful of water from my canteen, and made my way to the platform.
 
-My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Melna would ask Tiggu to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jesse said, then those crops don't matter in the scheme of things. Heiko would understand.
+My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Melna would ask Tiggu to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jathi said, then those crops don't matter in the scheme of things. Heiko would understand.
 
 The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
 
@@ -132,7 +132,7 @@ I am following up on our conversations about colder temperatures in Heiko and ot
 
 If left alone, we calculate that the obscura will cause colder temperatures, weaker winds, and decreased precipitation, which will lead to most seasonal crops to become dormant in six days. In ten days, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
 
-- Jesse
+- Jathi
 ```
 
 "What is this??" I murmured out loud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting wet and cold in anxiety. _Kipnu... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all of Palinan and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.

@@ -10,7 +10,7 @@ But thi remained in a deep slumber that I thought it best not to disturb. I gent
 
 I held closely to the listener on my ear, trying to find a pattern in the noise. But there was nothing but static and the howl of wind upon my skin. The bright arc grew steadily fainter and fainter, then faded again into the night.
 
-"8 Tova'la left," I said to myself, recalling the times Jesse had confirmed.
+"8 Tova'la left," I said to myself, recalling the times Jathi had confirmed.
 
 "You are not forgotten."
 

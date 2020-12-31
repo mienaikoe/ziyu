@@ -78,7 +78,7 @@ Melna and Kipnu smiled, knowing what I really meant.
 
 And I would. Because I was happy when they were around.
 
-It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when was keenly aware of how wholly incomplete I would always be.
+It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when I was keenly aware of how wholly incomplete I would always be.
 
 ---
 

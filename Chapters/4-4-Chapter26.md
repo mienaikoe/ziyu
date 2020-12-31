@@ -16,7 +16,7 @@ This time it was Pomri, grasping my wrist just in time. She barely exerted herse
 
 "I have nothing to give you, Holragi scum," he said staring at her feet. "Take my life or leave me to my suffering," he said.
 
-"Jesse?" she asked, bewildered at seeing his face again, "Is that you?"
+"Jathi?" she asked, bewildered at seeing his face again, "Is that you?"
 
 He remained there, motionless, fighting back a cough and holding his right hand to the back of his head.
 
@@ -30,7 +30,7 @@ Pomri glanced back at me, apprehensive. Instead of fighting with her, I approach
 
 "I know Pomri. She warned us early. Got most of us out."
 
-"Jesse... how did?" Pomri said. She was moved to tears.
+"Jathi... how did?" Pomri said. She was moved to tears.
 
 It occured to me that he may not yet have realized that he had gone deaf and partially blind.
 
@@ -40,7 +40,7 @@ _W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
 
 "I was at the observatory–," he winced at some pain in his body. "...Holrag. Had a m-m-message t-to send; a m-m-m of great importance. I didn't make it, did I?... That's-s okay though. Now you're h-h-here."
 
-"That's great, Jesse," said Pomri, "What was the message?"
+"That's great, Jathi," said Pomri, "What was the message?"
 
 _W-H-A-T-W-A-S-M-E-S_
 
@@ -72,7 +72,7 @@ He turned and shuffled away from us with his hand still holding the back of his 
 
 Pomri was insistent. She approached him, trying to reassure him that she was not there for malice. But he refused her, curling up into himself. With each refusal, she broke down a little bit more until she finally knealt before him and wept. At a safe distance, he resumed his nodding and gesticulating, a hand still behind his head.
 
-I knealt near Pomri a while with my hand on her back, imagining the kind of man he might have been, who he might have loved. I didn't know Jesse, but Pomri seemed to hold him in high regard.
+I knealt near Pomri a while with my hand on her back, imagining the kind of man he might have been, who he might have loved. I didn't know Jathi, but Pomri seemed to hold him in high regard.
 
 "There is no justice to deliver," she said under her breath. "No greater good that could ever make this right."
 
@@ -96,7 +96,7 @@ I dug into my satchel, ensuring that there was only one left and I produced it w
 
 "The left heart, five fingers from the center," I said, reassuringly. "Directly in."
 
-She nodded, measuring with her fingers, priming the syringe, and plunging the needle into his heart. Jesse's eyes began to dilate as a faint blue glow, obscured by skin, filled his body and all of his muscles settled into the land.
+She nodded, measuring with her fingers, priming the syringe, and plunging the needle into his heart. Jathi's eyes began to dilate as a faint blue glow, obscured by skin, filled his body and all of his muscles settled into the land.
 
 "What happens now?"
 
@@ -108,7 +108,7 @@ It was best not to tell her the truth.
 
 "And then he rises."
 
-Pomri unbound his wrists and wrapped the cloth around Jesse's head to cushion against the wound. With a quick lift, she lofted him up and let him rest gently over her shoulder.
+Pomri unbound his wrists and wrapped the cloth around Jathi's head to cushion against the wound. With a quick lift, she lofted him up and let him rest gently over her shoulder.
 
 "Let's take him home."
 
@@ -136,7 +136,7 @@ The mountain was dead save for a few blots of shrubbery that grew in the crevass
 
 At a wide area of the cliff, we paused for Pomri to take a break and change her carry.
 
-"The mountain was shorter a day ago," she said, as she laid Jesse down with the gentlest of movements.
+"The mountain was shorter a day ago," she said, as she laid Jathi down with the gentlest of movements.
 
 I was confused. "Shorter? How?"
 
@@ -164,7 +164,7 @@ She looked for it for a moment and understood what I was pointing toward.
 
 "Thing's been singing and growing for at least three generations. Looks to be even older than that. Sort of a legend in town – Glad it survived."
 
-With the same gentleness she had shown him before, she took Jesse upon her back while I stared at the tree.
+With the same gentleness she had shown him before, she took Jathi upon her back while I stared at the tree.
 
 "Oi. Come on," she beckoned.
 
@@ -176,7 +176,7 @@ I found a warm area in middle of the room, where a carpet had been laid between 
 
 "I'm sooo tiiiired," I said, stretching my limbs. My heavy breathing was more noticeable in the quiet of the place.
 
-Pomri knealt down beside me and gently rested Jesse on the ground. She ventured to some dark corner of the room, as if distinctly familiar with this place, and returned with a pillow in her hands. Slowly, her hands raised Jesse's cold glowing body and gently rested it upon the pillow.
+Pomri knealt down beside me and gently rested Jathi on the ground. She ventured to some dark corner of the room, as if distinctly familiar with this place, and returned with a pillow in her hands. Slowly, her hands raised Jathi's cold glowing body and gently rested it upon the pillow.
 
 "You can sleep later," she glanced at me with her voice. "Come, we need to look for the message."
 
@@ -200,7 +200,7 @@ She walked to the back of the room, where the strange protrusions from the outsi
 
 "This is a telescopic projector for Ara. I haven't the slightest clue how it works, but maybe you'll find something if you just play around with it."
 
-She turned to move away, but stopped herself and said, "Oh, and don't put your fingers on anything glass. Jesse would be furious."
+She turned to move away, but stopped herself and said, "Oh, and don't put your fingers on anything glass. Jathi would be furious."
 
 The knobs and levers had been polished with use and gleamed in the faint light on the table, and I looked up to her in awe. She snickered and left me to my devices while she moved to a different desk with a mess of papers that seemed to have been left in a hurry.
 
@@ -232,7 +232,7 @@ Confused, I looked up to watch her staring deeply into the light, her finger poi
 
 "Liffa," I said in response. "Liffa is coming home!"
 
-"Jesse," Pomri had a smirk on her face, "That bastard always had an eye for hae."
+"Jathi," Pomri had a smirk on her face, "That bastard always had an eye for hae."
 
 "You don't suppose that was the message, do you?" I asked.
 
@@ -248,7 +248,7 @@ I went over to the box again and pulled out the lens. It was in a darker kelp en
 
 Her eyes moved to the last known values in the table. They were circled and seemed to be increasing.
 
-"Something happened recently," she said, "Linyu, put this into the chamber. Let's see what Jesse and the others saw."
+"Something happened recently," she said, "Linyu, put this into the chamber. Let's see what Jathi and the others saw."
 
 I took the lens, consciously feeling its weight to ensure I didn't drop it, and noticed that it was lighter than the others. Raising my hands, I prepared to take the big lens out but before I pulled the lever I noticed another one, blue and apparently new, hidden in the darkness further up the cylinder. I stared at it, confused.
 
@@ -256,7 +256,7 @@ I took the lens, consciously feeling its weight to ensure I didn't drop it, and 
 
 "It's a strange lens, this black one. Don't you think?"
 
-"Very strange. Never seen it before. Must be a custom piece that Jesse had made recently."
+"Very strange. Never seen it before. Must be a custom piece that Jathi had made recently."
 
 On a gut feeling, I held the black lens up to the light shining on the table, and all of the light disappeared, as expected.
 
@@ -282,7 +282,7 @@ Pomri read the messages out loud:
 
 ```
 Obscura Observation + 2to 5la 6na
-Jesse,
+Jathi,
 
 I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city. Hopefully the Holragi haven't gotten to it first.
 
@@ -296,7 +296,7 @@ She paused to let a wave of sorrow come and go, then continued with the last par
 "
 
 ```
-It's been an honor, Jesse.
+It's been an honor, Jathi.
 
 - Thimlu
 
@@ -317,7 +317,7 @@ I've double-checked my calculations and assumptions, and they must be correct. I
 
 The obscura must be aware of what they're doing. We must get this information out as quickly as possible, so I'm leaving to find you.
 
--Jesse
+-Jathi
 
 (No time to clean the lenses)
 ```
@@ -336,7 +336,7 @@ I took your advice and devised a projection of what would happen to Ara if the o
 
 Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara.
 
--Jesse
+-Jathi
 
 (I will clean the lenses after my shift, as you asked)
 ```
@@ -349,7 +349,7 @@ But Pomri seemed agitated, angry almost. She stuffed the notes back into the env
 
 "We found the message. Let's go back to Ulukoma."
 
-"Shouldn't we take him with us?" I used my nose to point at Jesse.
+"Shouldn't we take him with us?" I used my nose to point at Jathi.
 
 "He'll be fine here."
 
@@ -361,7 +361,7 @@ She lowered herself to me and looked intently into my eyes.
 
 While Pomri packed away a few useful supplies she found around the room, I gently set the filter on the table and found a nearly unused swatch of soft fabric I had found at another desk. Before putting it away, I noticed that a black dot had emerged in one of the circles, drifting from one side of the circle to another, small enough to be easily missed.
 
-"Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. I turned the envelope over in my hands, thinking this would be the lens Jesse used to track Liffa, and sure enough I saw a note scribbled at the bottom in regular black ink - barely visible except at an angle of reflection.
+"Liffa," I said under my breath, and I imagined embracing this stranger that I felt I'd known my whole life. I turned the envelope over in my hands, thinking this would be the lens Jathi used to track Liffa, and sure enough I saw a note scribbled at the bottom in regular black ink - barely visible except at an angle of reflection.
 
 ```
 Liffa Return Trajectory
@@ -372,13 +372,13 @@ First Bleed Entry: Over Heiko Center, Obscura + tova 4.3.7
 Second Bleed Entry: Over Holragi-Spacerail, Obscura + tova 4.7.12
 Final Approach: Ulukoma - Ulu Lao 2-ka, Obscura + tova 4.11.6
 
-- Jesse
+- Jathi
 
 (Godspeed, Liffa)
 ```
 
 "4.11.6. Ulukoma - Ulu Lao 2-ka" I said aloud as I wrote on my arm. "You are not forgotten, Liffa. I'm coming for you."
 
-I packed my things while Pomri wrote a note for Jesse, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
+I packed my things while Pomri wrote a note for Jathi, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 
 The door ushered us back out into the dark and the cold, but in my mind I was still there, lingering on the image of the motionless man, helplessly grasping at a thousand failures to help in his darkest moments. Before the dust swallowed the observatory, I went back to the moment I recognized his nodding silhouette, recalled his phantom pains and ashen face. I internalized the broken man. And I promised myself never to forget.

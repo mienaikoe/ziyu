@@ -423,7 +423,7 @@ Ch29
 - Pomri is stabbed through her hand, which injects kanosin into her heart.
 
 Prologue
-- Jesse rises!!!!!
+- Jathi rises!!!!!
   - And fetches Liffa
 
  -->

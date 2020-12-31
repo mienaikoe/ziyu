@@ -92,7 +92,7 @@ The sand on the beach had always been kind to tread upon but now it filled her f
 
 When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, still holding on to the hope that Melna could help them. Her own face flushed with small droplets from the pores in her hydroderm, but she quickly stopped herself; they needed to see her strength to know their own.
 
-From the crowd she spotted Jesse and Thimlu who put their hands on their chests in solidarity with her. She wanted so badly to run to them, to hold their hands in communion and tell them everything she'd learned. But a nod would have to do, she thought. A nod would be enough.
+From the crowd she spotted Jathi and Thimlu who put their hands on their chests in solidarity with her. She wanted so badly to run to them, to hold their hands in communion and tell them everything she'd learned. But a nod would have to do, she thought. A nod would be enough.
 
 Upon the first few staves of the pier, a small group of soldiers had gathered around a table to set up some strange electrical equipment that had wires running to their small submersible back on the beach. Through the crowd, the soldiers were handing out small devices that resembled listeners.
 

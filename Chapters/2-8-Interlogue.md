@@ -38,7 +38,7 @@ I instinctively responded, "Thank you," with my mask still on. But no one could 
 
 My whole body tensed up again. The anxiety came in waves with the countdown. I clenched my right hand around the steel knife-bracelet they had given me in the case of my death. _There's a reason I have this. I might die._
 
-_"It's only dangerous if you deviate from your mission."_ Jesse's reassurance calmed me, but in the back of my mind I knew that none of them could be certain.
+_"It's only dangerous if you deviate from your mission."_ Jathi's reassurance calmed me, but in the back of my mind I knew that none of them could be certain.
 
 "Seven"
 
@@ -102,7 +102,7 @@ _five thousand six hundred_, I read on the altimeter as it began counting up. I 
 
 The voice came on the line again, "Altitude 12,600 and climbing. Speed 27,000. Rotation stable."
 
-And then Jesse interjected, "Liffa, can you hear us?"
+And then Jathi interjected, "Liffa, can you hear us?"
 
 His voice snapped me out of my daze and I quickly checked the pressure gauge to make sure the vehicle seal was good. The radio was left on.
 
@@ -120,7 +120,7 @@ I moved the outer marker dial to 20 down, just as I was taught and trained my ey
 
 The lines finally met. I inhaled the most painful breath and in the most broken voice said "Attitude 20 down"
 
-"Liffa, Prepare for ignition," said Jesse.
+"Liffa, Prepare for ignition," said Jathi.
 
 The rockets kicked on and threw me back against the seat along with the water droplets. Again, my binding pendant pressed against my chest, and reminded me of my family, of my mother. Of every connection to home that longed to keep me there.
 

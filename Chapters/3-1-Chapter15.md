@@ -16,7 +16,7 @@
 
 Melna stopped her work abruptly and left the incandescent lamp breathing light onto her makeshift desk to approach a man sitting in the dark. His eyes were fixed on a smoothly polished plate before him while his hands gently fumbled with the damper controls of a large telescopic projector pointed toward the horizon. She appeared behind him, unseen but heard, and he made room for her without looking away.
 
-"Okay Jesse, lead the way," Melna asked.
+"Okay Jathi, lead the way," Melna asked.
 
 "Look for a line of small dots rising up from the horizon."
 
@@ -26,7 +26,7 @@ Melna stared into the image plate, searching for any sign of a light in the dark
 
 "Close your eyes for a moment, and then open them slowly."
 
-She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny string of five dots as bright as Ara punctuated the thin yellow-orange of the horizon sky. Jesse swapped out lenses to the highest magnification he had and adjusted the dials ever so delicately to find the dots again. They were still faint, being so close to the horizon, but they had some speed to them and they were rising quickly.
+She did as the observer instructed, closing her eyes for longer than she had the patience for, then opened them again. A tiny string of five dots as bright as Ara punctuated the thin yellow-orange of the horizon sky. Jathi swapped out lenses to the highest magnification he had and adjusted the dials ever so delicately to find the dots again. They were still faint, being so close to the horizon, but they had some speed to them and they were rising quickly.
 
 "What are they?" she asked with new urgency.
 
@@ -46,19 +46,19 @@ Melna took a few deep breaths to regain her composure.
 
 "Holragi wouldn't need any more missions than the one Liffa is on unless something has gone terribly wrong."
 
-"But we've been getting recordings of Liffa's voice every tova'la," said Jesse.
+"But we've been getting recordings of Liffa's voice every tova'la," said Jathi.
 
 "If they aren't missions, then they must be weapons of some kind. They aren't waiting for Liffa to return."
 
-"Jesse," she turned and approached him. "I want you to record every dot, every time, and find a way to determine their size and trajectory. Pomri will be here tomorrow morning to get your updates before you switch shifts. If anything changes after that, wire your findings to me on the private senate channel. I'm calling for a debate in the evening."
+"Jathi," she turned and approached him. "I want you to record every dot, every time, and find a way to determine their size and trajectory. Pomri will be here tomorrow morning to get your updates before you switch shifts. If anything changes after that, wire your findings to me on the private senate channel. I'm calling for a debate in the evening."
 
 "We shall keep a constant eye."
 
-"And Jesse," she recalled, "Keep your lines open. Communication is the only way we'll get through this."
+"And Jathi," she recalled, "Keep your lines open. Communication is the only way we'll get through this."
 
 "You have my word, žah."
 
-Jesse scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
+Jathi scurried away to fetch some empty film plates while Pomri rose from her desk and approached Melna.
 
 "If I could interject. The senate still believes that Liffa's mission is the only way out of this mess. They won't listen to an appeal."
 
@@ -88,7 +88,7 @@ Melna sighed, letting her internal frustration simmer and settle.
 
 Pomri threw her hands up in disappointment as Melna reached for a thick felted black shawl and opened the door of the observatory to leave. A chilly breeze clambered through the door and into Pomri's robes, forcing her to clasp her arms.
 
-Melna turned back to her and said, "Meet me tomorrow at the train station. Bring observer Jesse's findings."
+Melna turned back to her and said, "Meet me tomorrow at the train station. Bring observer Jathi's findings."
 
 "But the trains aren't running to Heiko."
 

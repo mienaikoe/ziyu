@@ -120,6 +120,6 @@ I cracked the door to talk to him, but before I could say anything he unleashed 
 
 He was still catching his breath, “We - we need to find a way to get it to her as soon as possible.”
 
-“Slow down, Jesse. What’s this about?”
+“Slow down, Jathi. What’s this about?”
 
 “It's about Ara.“

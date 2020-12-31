@@ -15,35 +15,35 @@ But today, it was silent. -->
 
 <!--
 
-Scene: Thimlu has come to relieve Jesse of his observer duties
+Scene: Thimlu has come to relieve Jathi of his observer duties
 
-- Jesse has found something
+- Jathi has found something
 - Thimlu sees it, is disheartened
 -
 
 
 -->
 
-"Oi, Jesse," He greeted his apprentice.
+"Oi, Jathi," He greeted his apprentice.
 
 "You're awake. Well that's odd. Usually you're under a blanket at the hearth by now."
 
-"Observer Thimlu!" Jesse exclaimed, abruptly standing up to greet him. His eyes were sharp with adrenaline, darkened by swelling under his eyes.
+"Observer Thimlu!" Jathi exclaimed, abruptly standing up to greet him. His eyes were sharp with adrenaline, darkened by swelling under his eyes.
 
 "Don't tell me," said Thimlu. He paused to take a deep breath, then walked calmly to his desk and began to write a note.
 
 "How much?" he asked him.
 
-Jesse replied, hesitant, "10% coverage, sir. Last night it was–"
+Jathi replied, hesitant, "10% coverage, sir. Last night it was–"
 
 "Four, yes I know," he said in a hurried tone.
 
 "Take this note to Melna before she leaves for the senate," said Thimlu.
 
-"Yes, sir," said Jesse. He took the note and turned to tidy the table he was at.
+"Yes, sir," said Jathi. He took the note and turned to tidy the table he was at.
 
 "Leave the lenses," said Thimlu, "Go!"
 
-"Sorry," said Jesse. "Instinct."
+"Sorry," said Jathi. "Instinct."
 
 He tossed his coat on his back and opened the door to the summit of the observatory mountain. The morning breeze was on its first breath, making streaks in the fog below, and the water in his hydroderm swell. With a drink from the last of his water, he hurried down the mountain to the city below, carrying the weight of the world in his pocket.

@@ -220,7 +220,7 @@ He was looking straight at me now, with a sincerity that was unmistakeable.
 
 "I've seen your eyes. The blood of Holrag is within you. It's been calling since you were born. You must have studied with the observers just to imagine your own _nul sa'am_ to the stars. This journey was meant for you."
 
-I thought of Jesse, surmised they would need his help to get a vehicle up there and back down again, but I wondered what would convince him. Then I remembered what Melna said about Fajro: his words were a cover for his actions.
+I thought of Jathi, surmised they would need his help to get a vehicle up there and back down again, but I wondered what would convince him. Then I remembered what Melna said about Fajro: his words were a cover for his actions.
 
 "I don't trust you. You could do anything with me," I said.
 
@@ -282,11 +282,11 @@ The truth of his deception had finally come to me, but by now it was far too lat
 
 "So he set all of this up? How did he know to find you?"
 
-"I don't know... Maybe Jesse? No..."
+"I don't know... Maybe Jathi? No..."
 
 "I'll talk to him. Get to the bottom of this."
 
-"No... Don't bring Jesse into this. I don't think it was him."
+"No... Don't bring Jathi into this. I don't think it was him."
 
 "What's his angle?" he asked.
 

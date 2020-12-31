@@ -463,7 +463,7 @@ If Liffa lies instead, and says it's just a big rock in the way, Fajro will be s
 - knows there are bombs on her Trajectory
 - could have calculated or heard from Setre that Heiko would be where they land.
   - Setre would have to know trajectories, which her army isn't trained to do.
-  - Thimlu, Jesse, or Melna would have to tell hae somehow.
+  - Thimlu, Jathi, or Melna would have to tell hae somehow.
 
 Tenets
 - Liffa does not have knowledge of Linyu, Setre.

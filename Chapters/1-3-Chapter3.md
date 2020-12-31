@@ -14,7 +14,7 @@ _She's keeping a secret_
 
 "I need to know more; I won't slow you down" I plead to him while I ran off to fetch a new pair of trousers as quickly as I could.
 
-The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jesse and me.
+The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jathi and me.
 
 "Laen-Laen, good morning!"
 
@@ -34,9 +34,9 @@ He snorted his disapproval with his fuzzy ears turned backward.
 
 "There we go. Now lets get you ready."
 
-I took a soft linen blanket from the wall and paused a moment to remember when Jesse and I used to walk with a younger Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+I took a soft linen blanket from the wall and paused a moment to remember when Jathi and I used to walk with a younger Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
 
-_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Jesse was waiting for me.
+_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Jathi was waiting for me.
 
 "Didn't think we would be doing this again, " he said.
 
@@ -54,7 +54,7 @@ I wondered if the stars could die like we did, or if they had always been there,
 
 At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small woop of acknowledgement.
 
-When I entered, an old man who seemed to know Jesse was already inside, standing by the doorway.
+When I entered, an old man who seemed to know Jathi was already inside, standing by the doorway.
 
 "Aey, lad," he said, "You forgot to clean the lenses. And weren't you supposed to be looking for Melna?"
 
@@ -66,9 +66,9 @@ When I entered, an old man who seemed to know Jesse was already inside, standing
 
 "The only other two are in Holrag. And they're both unresponsive. Kantha really should be picking up. He knows about this."
 
-"No worries," Jesse said with a chipper voice. "I'll try Melna's personal line."
+"No worries," Jathi said with a chipper voice. "I'll try Melna's personal line."
 
-Jesse set himself at the phone desk and attempted to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+Jathi set himself at the phone desk and attempted to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
 
 "Shaki Conduit, This is Heiko Conduit."
 
@@ -96,11 +96,11 @@ He paused and sighed.
 
 "Transferring you to Heiko Senate. Please wait a moment."
 
-I took the moment of silence to shift to a chair and sit down close to Jesse. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
+I took the moment of silence to shift to a chair and sit down close to Jathi. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-Thimlu interrupted me, "I remember you from orbital. Couldn't teach Jesse a damn thing until you left. Why couldn't you two find a nice woman and settle down?"
+Thimlu interrupted me, "I remember you from orbital. Couldn't teach Jathi a damn thing until you left. Why couldn't you two find a nice woman and settle down?"
 
-Jesse's cheeks went red, and he protested, "Thimlu! You can't say something lke that."
+Jathi's cheeks went red, and he protested, "Thimlu! You can't say something lke that."
 
 "Bah. Observers are sworn to observe, and this one's pretty clear."
 
@@ -108,7 +108,7 @@ The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Ass
 
 "Pomri, I have an urgent message for Melna."
 
-"Jesse? By Ara, don't you ever sleep? It's the middle of first nap."
+"Jathi? By Ara, don't you ever sleep? It's the middle of first nap."
 
 "What we've found at the observatory was too important to nap on."
 
@@ -160,9 +160,9 @@ I built some resolve and double checked that the microphone was off.
 
 Thimlu butted in. "This is of utmost importance," he said with a smirk on his face. "A magistrate would surely look the other way at sentencing."
 
-Jesse shouted back at him, "Whose side are you on here?!"
+Jathi shouted back at him, "Whose side are you on here?!"
 
-I was astonished. Jesse was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I rose from the desk and paced the floor across from him, pausing to admire the old wood floor that countless messengers before him had walked upon.
+I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I rose from the desk and paced the floor across from him, pausing to admire the old wood floor that countless messengers before him had walked upon.
 
 I tried to convince him again, "I can't think of any better way to do it."
 
@@ -172,7 +172,7 @@ I tried to convince him again, "I can't think of any better way to do it."
 
 I explained my thoughts. "One of us has to do it. If this is as important as you say, then there will be a lot of chatter for the next few days. One of you has to keep the communication lines open amidst all that chaos, and one of you has to keep watching the sky for more data. Besides, I have some strings I can pull at the senate. I stand a much better chance."
 
-Jesse seemed defeated but he looked up into my eyes and we locked gazes for a while.
+Jathi seemed defeated but he looked up into my eyes and we locked gazes for a while.
 
 "If you pull this off, I'll petition the magistrate for a lighter sentence."
 
@@ -182,7 +182,7 @@ I gathered my bag onto my shoulders, and stood near the doorway as they looked o
 
 "Gentlemen. I've an errand to run and then I'll be on my way to Shaki. Thank you for entrusting me with this mission. I won't let you down."
 
-"Good luck, Liffa," said Jesse, somberly.
+"Good luck, Liffa," said Jathi, somberly.
 
 "Don't get yourself killed," said Thimlu.
 
