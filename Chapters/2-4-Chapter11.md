@@ -1,4 +1,4 @@
-## Ch11
+## Chapter 11
 
 A rustling sound awoke him from his slumber.
 

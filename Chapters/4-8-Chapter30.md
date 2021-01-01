@@ -1,4 +1,4 @@
-# Chapter 30
+## Chapter 30
 
 He picked a ziyu far enough way that climbing wouldn't alert anyone, but close enough that moving across the canopy wouldn't be difficult. From his sleeves, he produced two short kelp straps and signalled for me to climb first. I obliged. I went at my usual quick pace up the tree, and upon reaching the canopy, I plotted a path along the thick branches to reach an area above the pavilion. If I moved quickly, I could alert someone about Ramne.
 

@@ -6,10 +6,16 @@
 
 _The foundation of society is Truth._
 
+&nbsp;
+
 _No other law comes before this._
+
+&nbsp;
 
 _In the absence of truth, everything is consumed._
 _Every chain in the armor of knowledge falls away_
 _until nothing is left but ruin and doubt._
 
-- Philosopher Lanre um Shaki, Day 15,403 after the Fifth Cold
+&nbsp;
+
+— Philosopher Lanre um Shaki, Day 15,403 after the Fifth Cold

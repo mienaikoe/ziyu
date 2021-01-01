@@ -18,6 +18,7 @@
   },
   "homepage": "https://github.com/mienaikoe/ziyu#readme",
   "dependencies": {
+    "showdown": "^1.9.1",
     "snarkdown": "^2.0.0",
     "wordcount": "^1.1.1"
   }
