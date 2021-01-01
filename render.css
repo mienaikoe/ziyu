@@ -1,0 +1,33 @@
+@font-face {
+  font-family: "Spectral";
+  font-weight: normal;
+  src: url("./Spectral-Regular.ttf") format("truetype"); /* Safari, Android, iOS */
+}
+
+@font-face {
+  font-family: "Spectral";
+  font-weight: bold;
+  src: url("./Spectral-Bold.ttf") format("truetype"); /* Safari, Android, iOS */
+}
+
+html {
+  font-family: "Spectral";
+  line-height: 1.5;
+  font-size: 12pt;
+}
+
+.title {
+  text-align: center;
+}
+
+.title h1 {
+  margin: 5em 0 15em;
+}
+
+.chapter p {
+  text-indent: 2em;
+}
+
+.part h1 {
+  margin-bottom: 2em;
+}

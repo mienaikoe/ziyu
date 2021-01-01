@@ -1,0 +1,25 @@
+{
+  "name": "ziyu",
+  "version": "1.0.0",
+  "description": "",
+  "main": "wordcount.js",
+  "type": "module",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/mienaikoe/ziyu.git"
+  },
+  "author": "Jesse Lee",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/mienaikoe/ziyu/issues"
+  },
+  "homepage": "https://github.com/mienaikoe/ziyu#readme",
+  "dependencies": {
+    "showdown": "^1.9.1",
+    "snarkdown": "^2.0.0",
+    "wordcount": "^1.1.1"
+  }
+}
