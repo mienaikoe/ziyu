@@ -52,13 +52,13 @@ Her answer was unsatisfying, but I went back to working. Perhaps I was overreact
 
 "I'll be just fine."
 
-"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me can harvest a whole plot in the morning and make a kid in the evening."
+"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me would harvest a whole plot in the morning and birth a kid in the evening."
 
 _I doubt that._
 
 "Like I said, I'll be fine."
 
-The things thi said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
+The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
 
 "How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
 
