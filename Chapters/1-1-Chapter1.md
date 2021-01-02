@@ -60,13 +60,11 @@ I pulled some water from the dew column at the center of the great room and retu
 
 Finally, we sat down to eat.
 
-A moment of quiet slurping went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out into the sunrise. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
+A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
 
-"" I chimed at her.
+"It's been too long," she said with a longing tone.
 
-"I am. It's been too long since we've gone anywhere."
-
-Kipnu joined, "Last time was when we went to the North coast to live with the Hunnin for a week. I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
+Kipnu knew what she was thinking too. "Last time was when we went to the North coast to live with the Hunnin for a week," he said. "I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
 
 I defended my choice, "Hey, we all had fun uh... catching fish."
 

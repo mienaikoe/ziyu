@@ -52,13 +52,13 @@ Her answer was unsatisfying, but I went back to working. Perhaps I was overreact
 
 "I'll be just fine."
 
-"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me can harvest a whole plot in the morning and make a kid in the evening."
+"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me would harvest a whole plot in the morning and birth a kid in the evening."
 
 _I doubt that._
 
 "Like I said, I'll be fine."
 
-The things thi said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
+The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
 
 "How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
 
@@ -84,7 +84,7 @@ _That's enough for now_.
 
 ---
 
-There was a sense of humility or perhaps a feeling of unimportance as I returned home. I didn't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do somethiinig else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it. Perhaps she was making sure that I wouldn't make her mistakes.
+There was a sense of humility or perhaps a feeling of unimportance as I returned home. I didn't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do something else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it. Perhaps she was making sure that I wouldn't make her mistakes.
 
 I took my boots and trousers off and left them next to the door, where the clay from countless planting days had painted a spot on the mossy pathway, and fled immediately to the dew column at the center of our home. My scent glands picked up the aroma of the anomin plants I had been cultivating in my room. They led me in, as if expecting me to return. With a sigh, I took it all in as if seeing it for the first time: my small cup collection, the hang drying pohua, my mother's dusty old lanterns, and the anomin filling the air with its resins and oils. But still I was unsettled. As with all things in my life, it felt temporary. Like some fantastic dream that I would one day be awoken from, abruptly and without warning.
 
@@ -110,7 +110,7 @@ There was a knock at the front door to snap me awake. _Is it that Tiggu again co
 
 I sat up on my bed and quietly snuck toward the door to see who it was.
 
-_Jesse? Delivering a message now? What could he possibly want?_
+_Jathi? Delivering a message now? What could he possibly want?_
 
 I cracked the door to talk to him, but before I could say anything he unleashed a flurry of desperate words.
 
