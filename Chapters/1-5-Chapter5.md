@@ -106,7 +106,7 @@ A pang of anger welled up in me but I kept my eyes faced forward, "What sort of 
 
 "Noble. But annoying."
 
-I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed impossible but for my shorter stature. There are some perks to being a Maman.
+I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed impossible but for my shorter stature. There are some perks to being a maman.
 
 "What shall I do if they notice me?" I asked.
 

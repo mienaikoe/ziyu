@@ -4,7 +4,7 @@ Working in the field never felt lonely to me, though I knew some who resented it
 
 Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother. I would descend to the cellar to dress for the long day of sowing or harvesting or maintenance. The smell of damp on the stone walls pervaded the air and reminded me that my mother was with me. I would hook a lightglass to the overhead electrical rails, and little by little the flow of electricity grew and warmed the metal ribbon inside to a bright white. Drying on a length of twine were a pair of canvas trousers, a thickly-woven tunic, and gloves stained with clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all for thousands of days. I was certain that my mother knew how to make the most durable clothes of anyone in Heiko.
 
-We used to grow Pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. It's been sixty-five crop rotations since thi passed, but thi lives as vividly in my memories as thi did in life.
+We used to grow pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. It's been sixty-five crop rotations since thi passed, but thi lives as vividly in my memories as thi did in life.
 
 "I bet you'll plant 1000 today, Liffa," thi said once.
 
@@ -68,7 +68,7 @@ The things she said were nothing new, though they always bothered me more than t
 
 I snapped, "What do want from me, woman?"
 
-"Mind yourself, Liffa. What sort of Maman raises hae voice to an elder?"
+"Mind yourself, Liffa. What sort of maman raises hae voice to an elder?"
 
 I was at the edge of my frustration.
 
@@ -76,7 +76,7 @@ I was at the edge of my frustration.
 
 She sughed, went quiet, and resumed her work while I stared at her indignantly.
 
-"A jealous Maman never rests," she said out of nowhere.
+"A jealous maman never rests," she said out of nowhere.
 
 I jabbed my shovel into the clay and stopped myself from yelling something I would regret later.
 
@@ -92,7 +92,7 @@ _Do I deserve to be here? I'm not saving lives or making big decisions._
 
 _But I still contribute pohua to the village. I make sure we have food and water and a functional home._
 
-_"A jealous Maman never rests"_
+_"A jealous maman never rests"_
 
 _Tiggu... What did Mamen ever do to offend you?_
 
