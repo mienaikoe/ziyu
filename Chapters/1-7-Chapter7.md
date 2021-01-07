@@ -6,7 +6,7 @@ I paused, listening intently for the sound.
 
 _"The tree... do you hear it?"_
 
-I looked up at my mother's chin, illuminated by the low sun of morning, and then out to the leaves on the tree swaying in the dim light.
+I looked up at my mother's chin, illuminated by the low Ara-light of morning, and then out to the leaves on the tree swaying in the dim light.
 
 _"The ziyu speaks"_
 

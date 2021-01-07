@@ -54,7 +54,7 @@ I laughed, "I haven't been called a kaln in ages."
 
 _I suppose that's true._
 
-The seats were mostly empty but I took one across the carriage from the man - far enough not to creep him out - and put my bag down in the next seat. The sun and wind had grown to its mid-day peak, but the reinforced curtains made them both much more pleasant for a long ride. The man was finding a good spot for his legs as the seats weren't exactly spacious enough for an extended leg, but he eventually settled on a position.
+The seats were mostly empty but I took one across the carriage from the man - far enough not to creep him out - and put my bag down in the next seat. The light of Ara and the wind it brings had grown to its mid-day peak, but the reinforced curtains made them both much more pleasant for a long ride. The man was finding a good spot for his legs as the seats weren't exactly spacious enough for an extended leg, but he eventually settled on a position.
 
 "In all my years of riding trains, they've never built at least one spacious seat for people of my condition."
 
