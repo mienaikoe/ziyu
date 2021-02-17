@@ -1,10 +1,9 @@
 ## Palinan
 
-- A planet about 1.3x larger than Earth.
+- A planet about 0.8x the diameter of Earth.
 - Palinan's orbital period is about 5 Earth days.
 - There is one continental land mass and one big ocean. The planet is 65% ocean.
 - There is a big desert at the middle of the land mass. It faces the star. Most Palinians live on the Coastal Ring.
-- There is a ring of iron shell colonies and asteroids orbiting Palinan called the Black Crown.
 - There is tectonic action and a magnetic field due to tidal forces. This also gives rise to large mountains on the bright side and splotched islands amidst a vast sea on the dark side.
 - Winds at the surface flow from the cold side to the warm side
 
@@ -82,10 +81,10 @@ Shaki is the capital, and the province of the same name is the "Greater" area ar
 
 It is the seat of the Senate of Palinan, which is a seat of deliberation over issues that might send the entire planet into war, or might wipe one of them off the planet. The senate also decides laws for the entire planet, but naturally, these laws need to be unanimously passed. The only law that has been passed is the rights of consciousness, which forms a sort of religion amongst many in the world.
 
-**Holrag Province**
-Holrag is located slightly inland - close to the deserts and mountains in the West, and is slightly isolated. Holrag is mostly a mining province, but they also produce some milled grains that can only be found in the mountains. The government of Holrag is hierarchical, but not nearly as much as Shaki's government. Holrag is divided into 96 nomadic clans, each of which are self-governed. Each clan shares in the labor and the wealth of the land. Installations such as farms and mines and engineering projects are locations where the clans travel to and from on their circular journey.
+**Holrag Republic**
+Holrag is located slightly inland, upon the steppes close to the central desert and the Shaki/Seroa foothills. Holrag is mostly a mining and industry province, but they also produce some wild milled grains that can only be found on the steppe. The government of Holrag is hierarchical, but not nearly as much as Shaki's government. Holrag is divided into 96 nomadic clans, each of which are self-governed. Each clan shares in the labor and the wealth of the land. Installations such as farms and mines and engineering projects are locations where the clans travel to and from on their circular journey.
 
-The science and culture of the Holrag is based on tradition and proof. Whatever happened and worked for a great number of people a hundred years ago would still apply today. If an idea can be proven through close observation of several people then the research is scrutinized, and if approved, widely accepted by the clan. Most precincts are quick to adopt the findings of another clan quickly after it's approved by one.
+The science and culture of the Holrag is based on tradition and proof. Whatever happened and worked for a great number of people a hundred years ago would still apply today. If an idea can be proven through close observation of several people then the research is scrutinized, and if approved, widely accepted by the clan. Most precincts are quick to adopt the findings of another clan after it's approved by one.
 
 **Ulukoma**
 Ulukoma is an anarchic prison island for Shaki, on an island in the darkness of Ulu, several miles Ulu-ward of Shaki Harbor. The island is covered with trees, and has largely gone unexplored because of its colder lands. It does, however, have food sources that seem to grow in the dark such as fish and kelp.
@@ -93,6 +92,22 @@ Ulukoma is an anarchic prison island for Shaki, on an island in the darkness of 
 The Shadestead is a small village in the centerof the island, ruled by agression by Lissa, a sociopathic and paranoid maman who will stop at nothing to humiliate, addict, or kill those who speak or act against hae. The only law in the Shadestead is the judgment of the people. This prevents things like serial killers, but framing and blackmail and conspiracy become easy. There is generally no binding here, and people have open sexual and romantic relationships with the entire population. Some long-time residents are proud of the makeshift civilization they made, and refuse to go back.
 
 Of interesting note is the bluekelp which grows abundantly in the waters near and dark of Ulukoma. The bluekelp contains a bacteria that maintains mitochondria, including after death, so that the person heals and may restart breathing and can never actually die as long as they have the bacteria in their blood. The bacteria grew this to sustain the life of their hosts, which were historically fish and sea mammals, but Pangum are included in this as well.
+
+**Other Provinces that aren't settings in the book**
+**_Chista Province_**
+A small province in a valley between Shaki and Seroa. They control the Shaki foothills that lie neareset to Ara. During the Holragi invasions, they decided to stay and rebuild instead of fleeing to the mountains, like the Seroans.
+
+Their main feature is that they control the railroad between Shaki and Holrag. The province may be small but this tactical position has allowed them to have a strong economy, and to build robust political defenses. No province would dare destroy the city of passage, because every province relies on Holragi for steel, and Holragi relies on their food.
+
+**_Seroa Province_**
+A colder mountain province on the far side of Shaki, sharing the same ridge system. Much like Rudjan, its many cities are walled, but the walls do not cover the road system, as they preferred to be well-defended than convenient. Seroa didn't even allow the rail system in its lands, much to the chagrin of Holrag, so the rail system passes through the Chista instead. It's a rather insular place because of a long history of Holragi invasion for which the Shaki'i did not help them.
+
+The number of cities reflects its desire to remain flexible and ready for attack at any time. If one city were to fall under seige, the others would know quickly and rally a response.
+
+Seroa's main export is stone and roast kelp.
+
+**_Bay of Dala'a_**
+Not really a province, but big enough to be one. A large body of water that divides the vast Holragi steppe and Heiko. Probably an asteroid impact from a long time ago.
 
 <!--
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members.

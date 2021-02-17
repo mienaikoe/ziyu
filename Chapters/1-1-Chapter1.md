@@ -96,13 +96,13 @@ She didn't respond.
 
 She was a stone wall of secrets, and I was unsatisfied until I could break through. But it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
 
-I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your bounds."
+I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your bundmaman."
 
 She looked at me through the mirror for a moment, searching for motives in an innocent face.
 
 "I don't have time for this," she said coldly.
 
-I let out a frustrated sigh and made my way to the doorway of her room.
+I let out a frustrated sigh and fled to the doorway.
 
 Before I could leave, she said, "Liffa..."
 
@@ -122,25 +122,13 @@ Kipnu was going over his schedule of patients in the same spot we had left him. 
 
 "Ah you know."
 
-I waited for him to elaborate.
-
-"...Reasons."
-
-_Thanks Kip..._
-
-I mustered up a response, "Don't want to talk about it right now."
-
-He wasn't convinced, but he was more accepting about these things than I was.
-
-"Okay... suit yourself"
-
-I stooped at the table with him and a long awkward silence filled the room while I watched him write notes in his schedule. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her departure.
+I waited for him to elaborate or offer some advice, but he was too absorbed in the paper to respond. So I stooped at the table with him and a long awkward silence filled the room. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her departure.
 
 "I'm headed to the train."
 
 "Have a good day," he chimed. I stayed silent.
 
-"I'll be back a bit late tonight. Don't wait up for me."
+"I'll be back a bit late tonight," she said. "Don't wait up for me."
 
 Late wasn't particularly rare for her, but I wanted to pry.
 
@@ -152,13 +140,11 @@ I looked in her eyes more intently. Something about her eyes was very out of pla
 
 "What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
 
-"Whatever it is you'll be arguing today, I'm here for you."
+"Whatever it is you'll be arguing today," I said, "I'll be here when you return."
 
-I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate.
+I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate. "Thank you, Liffa."
 
-"Thank you. Liffa."
-
-Kipnu walked up to us, and she loosened up enough to hug the both of us before opening the door to the outside. He and I watched as she entered the daylight without looking back. Her assistant Pomri, and her saffa stood by along the parkway, looking as palatial as always. The two of them together always gave me an uneasy feeling.
+Kipnu walked up to us, and she loosened up enough to hug the both of us before opening the door to the outside. He and I watched as she entered the daylight without looking back. Her assistant Pomri stood by with her saffa along the parkway, looking as palatial as always. The two of them together always gave me an uneasy feeling. _How strange for a maman to envy hae woman's assistant_.
 
 "What's going on between you two?" Kipnu asked again.
 

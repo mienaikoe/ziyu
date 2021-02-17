@@ -2,7 +2,7 @@
 
 _All are welcome in the house of knowledge._
 
-_So far as their consciousness is sustained._
+_So far as their mind may sustain._
 
 &nbsp;
 
