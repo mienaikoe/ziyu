@@ -6,9 +6,9 @@ _No. It's fine. Just a little late._
 
 _It's never this late._
 
-The wind picked up and Ara was warming the land, but still the ziyu tree remained silent. I took a deep breath and examined it, but nothing looked different: it was still the same tree I remembered my mother taking me to.
+The wind picked up and Ara was warming the land, but still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
 
-_It must be the wind. The wind is too dry right now._
+_It must be the wind. It's too dry right now._
 
 Patiently, I waited for an answer that would settle my mind, but none came. There would be no song today.
 
@@ -16,7 +16,9 @@ I stood up and dusted off my trousers, catching a last glimpse of the twilight-p
 
 "The wind speaks," my mother would say, "The ziyu tells us what it's saying."
 
-"What is it saying?" I must have asked hae a thousand times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that the silence was an answer, but the trouble was in the question.
+"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that the silence was an answer, but the trouble was in the question.
+
+<!-- human voice -->
 
 "Lovely morning, Liffa."
 

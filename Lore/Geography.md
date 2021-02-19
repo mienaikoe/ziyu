@@ -17,44 +17,41 @@ the solar horizon is marked by the Black Crown. A large ring of black debris fro
 ## Time
 
 Since Palinan is a tidal-locked planet, there is no passage of day or night. Palinan follows a slight elliptical path with its star, which defines a day by the amount of light arriving at the horizon areas, and also gives rise to some tectonic action and volcanism. There is a slight libration that causes some parts to receive slightly more light at different times of the day. Those who have a more direct line of light from the star during periapsis also have a less direct line of light from the star during apoapsis, meaning they have greater temperature shifts during their day.
-There are names for the various time divisions, which are tabulated here:
 
-- Sa'To(va) 12 Ka'to ~288 Earth years
-- Ka'To(va) 12 Na'to ~24 Earth years
-- Na'To(va) 12 La'to ~2 Earth years
-- La'To(va) 12 Tova ~60 Earth days
-- Tova/Day 1 orbit ~5 earth days
-- (To)Va'la 1/12 Tova ~10 earth hours
-- (To)Va'na 1/12 Va'la ~50 minutes
-- (To)Va'ka 1/12 Va'na ~4.2 minutes
-- (To)Va'sa 1/12 Va'ka ~21 seconds
+Everything greather than a day is measured in whole integers or approximations thereof. The population is taught early to understand the magnitude of integers in their base 12 system. This is akin to Japan, where currency is measured in thousands and tens of thousands regularly. Decimals are a different story: when using them so often to delineate meeting times, train times, work times, it is more appropriate to use `day x 12^-4` as the common unit: a tick. This allows us to use:
 
-This also means La'X means 12x something; akin to "ten" "hundred" "thousand".
-X'la means something divided into 12; akin to "tenth", "hundredth", "thousandth".
+1 tick = ~15 earth seconds
+12 ticks = ~3 earth minutes
+144 ticks (hundred ticks for translation short) = ~35 earth minutes
+1728 ticks (thousand for translation short) = ~7 earth hours
+1 day is 20736 ticks
+
+There is a particle for the grades of scale. `X na Y` literally means `X*10^Y`, so `3 na 5` can be seen as an approximation of 300,000. This book will tend not to using this particule literally unless quoted for scientific or economic specificity.
 
 Eras are measured by volcanic activity that makes the whole world go dark and cold for a temporary time. The Throngia have a limited understanding for why this happens but know that it happens somewhat regularly through time in approximately 100,000 day increments. The story takes place in the days after the seventh cold.
 
 ## Distance
 
-Distance is measured in ratios of circumference of the planet, and divided in twelves. Lao means "arc", and can be used for angles as well, but is often used in reference to distance in general conversation. The observers use Lao to refer to angles on the sky.
+Distance is measured in ratios of circumference of the planet. Like time, the more practical measurement is in paces.
 
-- Lao/Arc 1 circumference of Palinan ~18,000 miles, roughly the avg circum of mars and earth
-- Lao'la 1/12 circumference ~1500 miles, roughly miami -> new york
-- Lao'na 1/12 Lao'la ~125 miles, roughly cleveland -> ohio
-- Lao'ka 1/12 Lao'na ~10 miles, roughly manhattan -> flushing
-- Lao'sa 1/12 Lao'ka ~0.86 miles, roughly a mile
-- Lao'va 1/12 Lao'sa ~380 feet, roughly a football field
-- Lao'ta 1/12 Lao'va ~31 feet, roughly 5 people height
-- Lao'cha 1/12 Lao'ta ~2.6 feet, also called a _pai_ or pace
+- 1 Pace = ~2.6 feet
+- 12 Paces = ~31 feet, roughly 5 people height
+- 144 Paces (hundred ticks for translation short) = ~380 feet, roughly a football field
+- 1,728 paces (thousand for translation short) = ~0.86 miles, roughly a mile
+- 20,736 paces (ten-thousand for translation short) = ~10 miles, roughly manhattan -> flushing
+- 248,832 paces (shortened with an actual number) = ~125 miles, roughly cleveland -> columbus
+- 2,985,984 paces (shortened with an actual number) = ~1500 miles, roughly miami -> new york
+- 35,831,808 paces (shortened with an actual number) = ~17,644 miles, roughly the avg circum of mars and earth = 1 Arc/Circumference of Palinan
 
 ## Dimension
 
-Palinan has a different division of measurements for Distance and Dimension because of different uses for each.
+Palinan has a different division of measurements for Distance and Dimension because of different uses for each. Dimension is a highly technical term that came from the metallurgists and engineers from the west (Shaki, Holragi, Seroa, Chista).
 
-- Ki A standard of measurement that's approximate 17 millimeters. 1 cubic Ki of pure iron is a standard unit of weight.
-- Ki'la 1/12 Ki roughly 1.416 mm
-- Ki'na 1/12 Ki'la roughly 0.12 mm
-  ...
+- 1 Ki = A standard of measurement that's approximately 0.458 millimeters. There is very little need for dimensions smaller than this, as machining isn't precise enough (1 ki is about 18 thou). If it does, scientists will use negative numbers, as in `X na -1`.
+- 144 ki = ~2.5 inches
+- 1728 ki = 1 pace
+
+12 cubic Ki of pure iron is a recently standardized unit of weight.
 
 ## Urban Planning
 
@@ -95,7 +92,7 @@ Of interesting note is the bluekelp which grows abundantly in the waters near an
 
 **Other Provinces that aren't settings in the book**
 **_Chista Province_**
-A small province in a valley between Shaki and Seroa. They control the Shaki foothills that lie neareset to Ara. During the Holragi invasions, they decided to stay and rebuild instead of fleeing to the mountains, like the Seroans.
+A small province in the various Ara-open valley between Shaki and Seroa. They control the Shaki foothills that lie neareset to Ara. During the Holragi invasions, they decided to stay and rebuild instead of fleeing to the mountains, like the Seroans.
 
 Their main feature is that they control the railroad between Shaki and Holrag. The province may be small but this tactical position has allowed them to have a strong economy, and to build robust political defenses. No province would dare destroy the city of passage, because every province relies on Holragi for steel, and Holragi relies on their food.
 
