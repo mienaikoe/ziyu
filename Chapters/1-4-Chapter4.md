@@ -128,7 +128,7 @@ I took out the letter to review it and think about how I might deliver it. The l
 Obscura Observation
 Melna,
 
-I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 Tova of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. For brevity, we will call this collection "the obscura". It is difficult to estimate the size of each object, but they seem to span the entire view we have of Ara. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are moving in tandem so to be evenly-spaced.
+I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 days of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. For brevity, we will call this collection "the obscura". It is difficult to estimate the size of each object, but they seem to span the entire view we have of Ara. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are moving in tandem so to be evenly-spaced.
 
 If left alone, we calculate that the obscura will cause colder temperatures, weaker winds, and decreased precipitation, which will lead to most seasonal crops to become dormant in six days. In ten days, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
 
@@ -193,7 +193,7 @@ He had my entire plan figured out. How?
 
 "So? People shout at each other all the time."
 
-"Has Melna never told you what the Senate's laws are like? They were written by religious fanatics hundreds of ma'tova ago. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+"Has Melna never told you what the Senate's laws are like? They were written by religious fanatics after Lanre the philosopher died. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
 
 "Why you and not the others?"
 

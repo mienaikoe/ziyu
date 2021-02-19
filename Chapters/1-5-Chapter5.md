@@ -4,7 +4,7 @@ The city was carved from the body of an old mountain, curled upward as if the la
 
 "Been a while, has it?" Fajro said once we got off.
 
-"Yes. At least a few ma'tova."
+"Yes. I haven't been since Melna first became a fidelant."
 
 "The beauty of this place never changes. In Holrag, we call this place "The diamond of Palinan."
 
@@ -140,7 +140,7 @@ Fajro stopped in front of Tinpo and looked him up and down.
 
 "They posted me near the railyards immediately after you referred me, but I've been working my way up here ever since."
 
-"Congratulations, my boy. It's only been a few ma'tova. Quite an achievement."
+"Congratulations, my boy. Reaching this post in such a short time is quite an achievement."
 
 "Thank you, sir."
 

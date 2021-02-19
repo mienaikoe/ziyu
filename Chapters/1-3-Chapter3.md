@@ -110,15 +110,15 @@ The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Ass
 
 "Jathi? By Ara, don't you ever sleep? It's the middle of first nap."
 
-"What we've found at the observatory was too important to nap on."
+"What we've found at the observatory was too important."
 
-She sighed, "Well, I'm afraid you're too late. Melna is currently in assembly."
+She sighed, "Well, I'm afraid you're too late. Melna is in assembly."
 
 "When will she be out?"
 
-"It can last anywhere from 2 tova'na to the whole day."
+"Who's to say? It could take the whole day."
 
-"This message is of utmost importance. It will likely affect today's deliberations. Is there any way you can tell her?"
+"This message is of utmost importance. It will affect today's deliberations. Is there any way you can tell her?"
 
 "It's unlawful to interrupt the assembly."
 
@@ -140,9 +140,9 @@ He hesitated, "Well, no but –"
 
 "Look, it sounds like this is really important. Why don't you come to Shaki and we can talk it over?"
 
-"You're asking us to come to the senate? So one of us can do it instead of you?"
+"You're asking me to come to the senate? What, so... so I can be the one to do it instead of you?"
 
-"I'm sorry I can't do more, kid. Laws here are really backward but at least I can grumble about 'em. Just think about what I said."
+"I'm sorry I can't do more, kid. Laws here are really backward but at least we can grumble about 'em. Just think about it."
 
 He sighed, "Yea. We- I'll consider it," he said.
 

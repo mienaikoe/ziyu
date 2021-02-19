@@ -206,7 +206,9 @@ Kipnu and the magistrate turned to him to hear more.
 
 I replied immediately, "I am not inclined."
 
-"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a la'tova, then you can head back home to Heiko."
+"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a few days[^1], then you can head back home to Heiko."
+
+[^1]: A day on Palinan takes approximately 3½ earth days.
 
 I retorted, "What use would a farmer be to scientists?"
 
@@ -436,11 +438,15 @@ He took a swatch of fabric from a pocket in his trousers and blotted his head wi
 
 "And what makes you think we can do that?"
 
-"You think we built a space rail with dumb luck? It took 5 ma'tova of collaboration with your observers. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless test ships into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science and that was taken from all of us when Heiko backed out of the deal."
+"You think we built a space rail with dumb luck? It took negotiation and compromise to bring together the best minds in all the world. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless test ships into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science by the sweat and the grit of tens of thousands people."
+
+"-and the blood of hundreds," I showed him that I knew of his reputation.
+
+"Great things take great sacrifice, it is true. But the Heikoi were too simple-minded to see this. By the time we'd made things better, they left the deal."
 
 "And you're still bitter about it."
 
-"Damn right I am. There is so much we still don't know about space but we were stopped when we had so much potential. Nobody knows what's up there, in the great beyond. I came to Heiko to work with your observers, but they just wanted to track the same information they had been tracking for ka'tova. Now Palinan is powerless. We're huddling in the dark with no plan but to wait it out."
+"There is so much we still don't know about space. Nobody knows what's up there, in the great beyond. I came to Heiko to work with your observers, to discover new things about the universe we live in, but they just wanted to track the same information they had been tracking forever. And now this... obscura, as your observers call it. We're huddling in the dark with no plan. We could have been so far ahead of these invaders by now, but politics got in the way."
 
 "So you're just doing this to prove you were right all along. And I'm your Heikoi hero for all the PR."
 
