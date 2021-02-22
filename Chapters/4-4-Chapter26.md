@@ -44,9 +44,9 @@ _W-H-A-T-H-A-P-P-_, he paused me, signaling that he understood.
 
 _W-H-A-T-W-A-S-M-E-S_
 
-"The message?... The mess-KA'TOVA-essage. Many. Message... M-m-many ka'tova -essage."
+"The message?... The mess-HUNDRED LIFET-essage. Many. Message... M-m-many lifetimes -essage."
 
-"Ka'Tova? What about a Ka'Tova?" said Pomri, urgently.
+"Hundred lifetimes? I don't understand." said Pomri, urgently.
 
 She moved closer to him, holding the illuminated hand to her face so he could read her lips.
 
@@ -54,7 +54,7 @@ She moved closer to him, holding the illuminated hand to her face so he could re
 
 "S-sai-sll," he cried under his breath. "I can't...can't..."
 
-"Sail? From a boat?" she asked, "What does a ka'tova have to do with it?"
+"Sail? From a boat?" she asked, "To where?"
 
 "Remember... rem -m -m."
 
@@ -281,7 +281,7 @@ Pomri read the messages out loud:
 "
 
 ```
-Obscura Observation + 2to 5la 6na
+Obscura Observation + day 2, tick 9504
 Jathi,
 
 I found your message and made my own projections. I am sure that we came to the same conclusion. Hopefully you abandoned your quest to find me and told someone else, but in case you haven't, I am leaving now to deliver the message to whoever I can find in the city. Hopefully the Holragi haven't gotten to it first.
@@ -310,7 +310,7 @@ She took a deep breath and flipped the page.
 "
 
 ```
-Obscura Observation + 2to 3la 8na
+Obscura Observation + day 2, tick 6336
 Thimlu,
 
 I've double-checked my calculations and assumptions, and they must be correct. I still struggle to wrap my head around the immensity of the scales we're dealing with.
@@ -327,12 +327,12 @@ The obscura must be aware of what they're doing. We must get this information ou
 "
 
 ```
-Obscura Observation + 2to 3la 6na
+Obscura Observation + day 2, tick 6048
 Lab Note
 
-Two tova-na ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
+233 ticks ago, I measured it again. The ultraviolet emission of Ara is increasing while infrared decreases, noting a shift in temperature toward a hotter star. The surface area of the obscura continues to grow linearly as well. I have no doubt that the two are linked.
 
-I took your advice and devised a projection of what would happen to Ara if the obscura is actually a sphere instead of the disc that the Holragi observers seem to report. Your hypothesis that the stellar wind pressure would rise exponentially was correct, but the time scale is staggering. It would take many ka'tova for the temperature to rise high enough. I am just an apprentice observer, and certainly am no engineer, but I believ that there is a point at which the obscura can no longer hold itself together and it will break. The exact timing of this depends on how the obscura is constructed, but once this happens, it will send the obscura hurtling away from Ara at an unimaginable speed. And without a doubt, this would send a flurry of radiation to Palinan.
+I took your advice and devised a projection of what would happen to Ara if the obscura is actually a sphere instead of the disc that the Holragi observers seem to report. Your hypothesis that the stellar wind pressure would rise exponentially was correct, but the time scale is staggering. It would take thousands of days for the temperature to rise high enough. I am just an apprentice observer, and certainly am no engineer, but I believ that there is a point at which the obscura can no longer hold itself together and it will break. The exact timing of this depends on how the obscura is constructed, but once this happens, it will send the obscura hurtling away from Ara at an unimaginable speed. And without a doubt, this would send a flurry of radiation to Palinan.
 
 Our people are resilient, but we're talking a hundred lifetimes (give or take about twenty)... nothing could last that long without Ara.
 
@@ -366,18 +366,18 @@ While Pomri packed away a few useful supplies she found around the room, I gentl
 ```
 Liffa Return Trajectory
 
-On Obscura tova 0.9, I inspected the spacerail and The agreed and checked trajectory is as follows:
+On Obscura day 0 tick 18548, I inspected the spacerail and The agreed and checked trajectory is as follows:
 
-First Bleed Entry: Over Heiko Center, Obscura + tova 4.3.7
-Second Bleed Entry: Over Holragi-Spacerail, Obscura + tova 4.7.12
-Final Approach: Ulukoma - Ulu Lao 2-ka, Obscura + tova 4.11.6
+First Bleed Entry: Over Heiko Center, Obscura + day 4, tick 6192
+Second Bleed Entry: Over Holragi-Spacerail, Obscura + day 4, tick 13824
+Final Approach: Ulukoma + 31600 paces to Ulu, Obscura + day 4, tick 19872
 
 - Jathi
 
 (Godspeed, Liffa)
 ```
 
-"4.11.6. Ulukoma - Ulu Lao 2-ka" I said aloud as I wrote on my arm. "You are not forgotten, Liffa. I'm coming for you."
+"d4 t19872 UK + 31600p Ulu" I said aloud as I wrote on my arm. "You are not forgotten, Liffa. I'm coming for you."
 
 I packed my things while Pomri wrote a note for Jathi, in the inevitable case that he woke up disoriented and confused. We didn't know if he'd understand language or writing when he woke, but it was worth a try. Even for a dead man.
 

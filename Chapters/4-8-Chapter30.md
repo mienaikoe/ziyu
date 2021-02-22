@@ -124,7 +124,7 @@ She motioned for me to follow, but I couldn't. My bond to my nather kept me froz
 
 The first of the Holragi made it into the clearing, and the guardians who had fled before were now attacking from all sides. Explosions and shouts littered the cold air and I was certain Setre was amidst that cacophony. But I knew that I would be more trouble than help. I knew that it was best not to be by her side. So I turned. And I ran.
 
-_"Tova'na to re-entry"_
+_"Hundred ticks to re-entry"_
 
 Far ahead, Annu was running slowly with hae arms held out, tripping on the various traps the forest had set. I sped to hae side and picked hae up on my back.
 
@@ -180,7 +180,7 @@ I gathered those around me and mustered up enough mental fortitude to speak to t
 
 "As you know, the Holragi have cornered us into this beach and we're out of options. I had hoped we could have some time to discuss this, but this is our last and only option. What we're asking you to do today will take incredible courage and indominitable will from each and every one of you."
 
-I took a moment to see each one of them for who they were, that they would be remembered if only for a moment. It was the children that brought the hint of tears. Some barely a na'tova younger than myself. Many without parents. For every ray of illumination that landed upon them, a bead of water, a furrowed brow, a subtle tremble. They wore their fear like a uniform. They looked to me as their captain.
+I took a moment to see each one of them for who they were, that they would be remembered if only for a moment. It was the children that brought the hint of tears. Some barely a hundred days younger than myself. Many without parents. For every ray of illumination that landed upon them, a bead of water, a furrowed brow, a subtle tremble. They wore their fear like a uniform. They looked to me as their captain.
 
 "Each of you will get a small square of kelp. Chew it, swallow the liquid, and spit out the rest. Then..."
 

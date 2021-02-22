@@ -484,11 +484,13 @@ I answered, "Yes, magistrate. It's a generous offer."
 
 He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
 
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of three la'tova on Ulukoma _or_ a period of one la'tova under the command of Fajro Um Holrag. Do you understand?"
+"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of thirty days on Ulukoma _or_ a period of five days under the command of Fajro Um Holrag. Do you understand?"
 
 "I do."
 
-"Then I await your decision within the next tova'la. I will be back to -"
+"Then I await your decision within the next 500 ticks of Ara's clock[^2]. I will be back to -"
+
+[^2]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
 
 "Magistrate, I've already made my decision."
 

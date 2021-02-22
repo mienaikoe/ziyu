@@ -46,7 +46,7 @@ Melna took a few deep breaths to regain her composure.
 
 "Holragi wouldn't need any more missions than the one Liffa is on unless something has gone terribly wrong."
 
-"But we've been getting recordings of Liffa's voice every tova'la," said Jathi.
+"But we've been getting recordings of Liffa's voice every thousand ticks," said Jathi.
 
 "If they aren't missions, then they must be weapons of some kind. They aren't waiting for Liffa to return."
 
