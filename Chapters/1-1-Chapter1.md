@@ -10,13 +10,13 @@ The wind picked up and Ara was warming the land, but still the tree remained sil
 
 _It must be the wind. It's too dry right now._
 
-Patiently, I waited for an answer that would settle my mind, but none came. There would be no song today.
+Patiently, I waited for an answer that would settle my mind, some glimpse of a sound I hadn't been listening to close enough. For I moment I thought I could hear my mother's words echoing through through the branches.
 
-I stood up and dusted off my trousers, catching a last glimpse of the twilight-pink sky through the quiet leaves. I felt the presence of some malicious spirit, brooding within the very breeze I drew my breaths from.
+"The wind speaks," my thi would say, "And the ziyu tells us all its secrets."
 
-"The wind speaks," my mother would say, "The ziyu tells us what it's saying."
+"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question.
 
-"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that the silence was an answer, but the trouble was in the question.
+I stood up and dusted off my trousers, catching a last glimpse of the twilight-pink sky through the quiet leaves. And among them, some invisible malevolence brooding within the very breeze I drew my breaths from. I shuddered at thoughts that filled my head. Was another great cold coming?
 
 <!-- human voice -->
 
