@@ -42,15 +42,15 @@ _Footsteps. Someone is here!_
 
 I unbuckled myself from the seat, and tried to raise myself out of it, but everything suddenly went sideways.
 
-_What the fuck is happening to me?_
+_What is happening to me?_
 
 "Aye. Liffa?" called an unfamiliiar maman voice through the capsule walls.
 
 _Who the..._
 
-"Yes?" I screamed to be heard. "I'm Liffa. Who are you?"
+"Y-Yes?" I screamed to be heard. "I'm Liffa. Who are you?"
 
-"Nevermind that, we've come to get you."
+"Nevermind that right now, we've come to get you out of there."
 
 "Oh?!"
 
@@ -66,9 +66,9 @@ _Where did I land?_
 
 "Uh... sure," I said. I mustered up the strength to lift myself, slowly this time, and twist the latch of the door open. It made a loud _kachunk_ as the seal was broken and fresh cool air filled my lungs. I did not know relief until I took such a breath.
 
-The maman and a few others lifted me out and carefully wrapped me in three giant coats before laying me down. I looked around and realized that we were surrounded by ice. The ocean had frozen solid in the time I was gone.
+"Whooo," thi said, waving a hand across hae nose.
 
-The maman held a waterbag and a lantern to me, and I took a drink eagerly. Thi had broad shoulders and wore ruddy black kelp clothing all over hae body as if thi had found it and cut it haeself. The others all had lanterns to light their faces. They all looked to be from different places, but their clothes were the same.
+The maman and a few others lifted me out and carefully wrapped me in three giant coats before laying me down. I looked around and realized that we were surrounded by ice. The ocean had frozen solid in the short time that I was gone. Thi held a waterbag and a lantern to me, and I took a drink eagerly. I looked at hae with a strange sense of longing racing through my mind. Thi had broad shoulders and ruddy black kelp clothing as if thi had found it and cut it haeself. I looked around at the others, all with lanterns to light their faces. They looked to be from different places, but their clothes were the same as the maman's.
 
 "What a strange ship," thi said, staring at the charred remains of my three-day home. "No wonder you crashed. There's no rudder - couldn't steer."
 
