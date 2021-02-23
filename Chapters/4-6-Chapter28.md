@@ -32,7 +32,7 @@ Thi nodded. As thi walked closer, I could see the faint speckles growing in magn
 
 Thi nodded, understanding my curiosity was for hae health. The bandage stuck well to hae skin, but I managed to peel a bit of it and saw only a mild scar. A swell of coruscating blue dots lie directly underneath.
 
-"Well, go on," thi said, gesturing to the bandage. Slowly, I peeled it away to reveal the entire scar. Somehow, one could tell that it had healed quickly; the skin seemed to grow at different rates, leaving a misshapen, jagged crevasse of young hydroderm. Around the old scar were older ones, some small, some large. There were far more than I could count in the moment before thi closed hae robes.
+"Well, go on," thi said, gesturing to the bandage. Slowly, I peeled it away to reveal the entire scar. I could see that it had healed quickly, with different areas growing at different rates, leaving a misshapen, jagged patchwork of tissue. Around the old scar were older ones, some small, some large; far more than I could count in the moment before thi closed hae robes.
 
 "Come now. Let's get you back to Ulukoma," thi said.
 
@@ -66,7 +66,7 @@ I removed the listener and put my ear to the air. In the dead air, I could hear 
 
 "No. They couldn't carry anything in a row boat. Must be stragglers from the blockade."
 
-In the darkness of the ocean, six lanterns suspended on the crooks of Rudjani boats appeared, and a maman's voice was barely audible, "-n lao'a ... stea 'ose 'addles."
+In the darkness of the ocean, six lanterns suspended on the crooks of Rudjani boats appeared, and a maman's voice was barely audible, "-n undre aces ... stea 'ose 'addles."
 
 Annu's face widened immediately, as if a flurry of disparate thoughts were connecting themselves all at once. Thi yelled, "Shinna!" with a bellow as if hae belly no longer hurt.
 

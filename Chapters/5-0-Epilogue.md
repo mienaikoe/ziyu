@@ -2,7 +2,7 @@
 
 It was hot again. And my body was shaken with fear.
 
-"This is Liffa um Heiko. If anyone can hear me, I'm landing Lao 2-ka Ulu Ulukoma. Lao 2-ka. Ulu Ulukoma. I need assistance."
+"This is Liffa um Heiko. If anyone can hear me, I'm landing three-thousand paces Ulu of Ulukoma. Three thousand paces. Toward Ulu. From Ulukoma. I need assistance."
 
 There was no response.
 
@@ -26,7 +26,7 @@ I pulled the knob and heard the pressurized air send the chutes out, then braced
 
 I had a moment to look out the porthole again and saw the thousand lantern lights of Rudjan below me. I wondered at them. If they had seen me making a mess of their sky. If they knew who I was, or if they just assumed I was another weapon of Holrag raining down upon Ulukoma. I figured that I was lucky they spared me such a mission.
 
-"Second chutes at one lao'ka. 'Black like the ocean'."
+"Second chutes at two thousand paces. 'Black like the ocean'."
 
 I braced again and felt the tug of the chutes slow me down. Above me, I saw my airspeed dial begin to fall and rest at a low speed, and felt happy to at least know that I could feel the ocean beneath me before I passed.
 

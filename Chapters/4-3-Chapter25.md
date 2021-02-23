@@ -87,7 +87,7 @@ This place seemed so alien to me, even though I had been there just a day before
 
 "She's in there somewhere. I have to find her."
 
-I snapped my eyes up and saw Pomri's lantern-lit eyes. The sound of waves and an odd rushing of water filled the air behind her, and I saw the crater bowing its proud lip into the ocean, having erased any memory of the harbor that came before it. save for a few jagged, broken posts. The dust was thinner here, as I assumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a Lao'ta.
+I snapped my eyes up and saw Pomri's lantern-lit eyes. The sound of waves and an odd rushing of water filled the air behind her, and I saw the crater bowing its proud lip into the ocean, having erased any memory of the harbor that came before it. save for a few jagged, broken posts. The dust was thinner here, as I assumed that the ocean was acting as a sponge, but a giant cloud of smoke stood directly between us and Ara, shortening our visibility to less than a couple paces.
 
 She had stopped halfway through a stride, holding her lantern up to see.
 
@@ -107,7 +107,7 @@ I moved closer to her, suddenly aware of my dependence on her light. She glanced
 
 "What are you on about now?"
 
-She watched patiently as I pulled the ampules out and neatly injected one into the hydroderm on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's eyes in the illumination, wide-eyed and unbelieving.
+She watched patiently as I pulled the ampules out and neatly injected one into the skin on my left shin. From the point of the syringe the kanosin glowed and permeated the vasculature, filling every water capillary in my entire lower leg with a bright flow tattoo. I did the same to my other leg. By the time I finished the entire ground around us was pale blue and I could see Pomri's eyes in the illumination, wide-eyed and unbelieving.
 
 "W... What is this?"
 

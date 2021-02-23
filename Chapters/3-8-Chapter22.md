@@ -90,7 +90,7 @@ Fajro gestured to two soldiers and they ran toward the station square.
 
 The sand on the beach had always been kind to tread upon but now it filled her feet with the sort of cold that travels along the empty spaces in bones and freezes in the joints. As they approached the larger pier, disparate groups of throngia and saffa began to gather. She watched with anger as the soldiers corralled them with loud orders and cracks in the air. Many were in the first stages of malnourishment, with their eyes sunken and their limbs trembling in the cold.
 
-When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, still holding on to the hope that Melna could help them. Her own face flushed with small droplets from the pores in her hydroderm, but she quickly stopped herself; they needed to see her strength to know their own.
+When the Heikoi saw her, they were aghast at seeing their fidelant dressed in robes amongst hostile company. Some of them stared at her with hostile eyes, not seeing anything that would calm their concerns. Still others held their arms out and cried for her, still holding on to the hope that Melna could help them. Her own face flushed with small droplets from the pores in her skin, but she quickly stopped herself; they needed to see her strength to know their own.
 
 From the crowd she spotted Jathi and Thimlu who put their hands on their chests in solidarity with her. She wanted so badly to run to them, to hold their hands in communion and tell them everything she'd learned. But a nod would have to do, she thought. A nod would be enough.
 
@@ -150,7 +150,7 @@ From the sea, thunderous horns filled the air as an armada of glowing blue light
 
 "There is nothing greater than being free," she said.
 
-She could feel the burn on her hydroderm opening up, and all of the blood that had gathered there began to seeping. She winced with each step backward, trying to focus on getting Fajro to the edge of the pier. In the distance, Pomri was being pushed back toward the others, and a pair of soldiers had turned their focus back on Melna.
+She could feel the burn on her chest opening up, and all of the blood that had gathered there began to seeping. She winced with each step backward, trying to focus on getting Fajro to the edge of the pier. In the distance, Pomri was being pushed back toward the others, and a pair of soldiers had turned their focus back on Melna.
 
 "The ones who come after will do what we couldn't. They will learn to temper their differences. They will be better than we could be."
 

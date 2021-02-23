@@ -262,7 +262,7 @@ The darkness swallowed the percussion of an advancing Holragi army as we came ba
 
 The crowd waded into the water, kicking up a large blue froth that spanned the coast for as far as we could see. I checked on Laen and Boon, made sure the skin under their fur was turning blue. They were fighting sleep, but refused to go without me. Overhead, a dim streak of light formed in the sky and a rumbling noise came over my listener.
 
-_"If anyone can hear me, I'm landing Lao 2-ka Ulu Ulukoma. Lao 2-ka. Ulu. Ulukoma. I need assistance."_
+_"If anyone can hear me, I'm landing three-thousand paces Ulu of Ulukoma. Three thousand paces. Toward Ulu. From Ulukoma. I need assistance."_
 
 "Come on!" yelled Fanla, impatiently.
 

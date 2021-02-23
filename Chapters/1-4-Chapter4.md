@@ -36,7 +36,7 @@ My feet found some rest squatting and leaning against a tree near the tracks, hi
 
 The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
 
-I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it all mixed together and just looked like I had some weird genetic defect in my hydroderm. My parents just laughed and told me about how they had tried it too when they were kids, and had the same results.
+I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it all mixed together and just looked like I had some weird genetic defect. My mother just laughed and told me about how thi had tried it too when thi was my age, and had the same results.
 
 The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central."
 

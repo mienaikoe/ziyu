@@ -130,7 +130,7 @@ But then the footsteps stopped with a larger thud, as if the mysterious person h
 
 Once she was close enough, Pomri spoke up, "We don't mean any-," but before she could finish, the person in the dark had found Pomri and held a long wooden pole to her chest. She took a step back and tried to force the pole away, but it had disappeared into the darkness as the shadow fled back toward the saffas. I ran after, evading Pomri's hands and protests not to go. _This isn't an enemy, It can't be._
 
-The stranger passed between the saffas, and out of the cove where the remaining Ara-light shone against hae back. I was aghast at hae feeble figure, hydroderm swollen with cold and sunken with hunger. But before I could reach hae, one of the saffas had turned and picked hae up, while the other stood ground guarding their getaway. Through the growling and shuffling of feet, I heard a sound I'd not expected to hear: the ringing jingles of a binding pendant as it rocked this way and that around the saffa's neck. And then I saw him – the thick fur and the big ears and the myriad different mannerisms that were unmistakable for anyone else but my best friend.
+The stranger passed between the saffas, and out of the cove where the remaining Ara-light shone against hae back. I was aghast at hae feeble figure, skin swollen with cold and sunken with hunger. But before I could reach hae, one of the saffas had turned and picked hae up, while the other stood ground guarding their getaway. Through the growling and shuffling of feet, I heard a sound I'd not expected to hear: the ringing jingles of a binding pendant as it rocked this way and that around the saffa's neck. And then I saw him – the thick fur and the big ears and the myriad different mannerisms that were unmistakable for anyone else but my best friend.
 
 "Laen! You're alive!"
 
@@ -152,13 +152,13 @@ We followed Laen out onto beach where the light seemed brighter and bluer than b
 
 ---
 
-Our feet took us to the traveling path and we soon reached the 1 lao'ka marking rock where we got our bearings. While Pomri and I looked for tracks, Laen had chosen a spot at the edge of the path, trying to find warmth in the thin light. He had begun to sneeze a bit and I looked back toward him, concerned.
+Our feet took us to the traveling path and we soon reached a rock marking twenty-thousand paces from the city. While Pomri and I looked for tracks, Laen had chosen a spot at the edge of the path, trying to find warmth in the thin light. He had begun to sneeze a bit and I looked back toward him, concerned.
 
 "Cover your face," she told me, holding a shawl. I wrapped the shawl over myself and waited for her to do the same with a piece of fabric ripped from her coat. I couldn't help but look at Laen again.
 
 "I don't have anything that could protect him," Pomri explained, "He'll have to stay here."
 
-"I know... I just wanted to say goodbye."
+"I know...", I said, "I just wanted to say goodbye."
 
 "Make it quick. We still have quite a hike before we reach the pier."
 
