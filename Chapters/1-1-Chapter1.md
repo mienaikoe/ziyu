@@ -6,13 +6,13 @@ _No. It's fine. Just a little late._
 
 _It's never this late._
 
-The wind picked up and Ara was warming the land, but still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
+The wind picked up and Ara had lifted from the horizon and begun warming the land. But still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
 
 _It must be the wind. It's too dry right now._
 
 Patiently, I waited for an answer that would settle my mind, some glimpse of a sound I hadn't been listening to close enough. For I moment I thought I could hear my mother's words echoing through through the branches.
 
-"The wind speaks," my thi would say, "And the ziyu tells us all its secrets."
+"The wind speaks," thi would say, "And the ziyu tells us all its secrets."
 
 "What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question.
 
@@ -22,7 +22,7 @@ I stood up and dusted off my trousers, catching a last glimpse of the twilight-p
 
 "Lovely morning, Liffa."
 
-Startled, I sat up to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
+Startled, I turned around to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
 
 "How long have you been here?" I asked.
 
@@ -40,7 +40,7 @@ She stared at me for a moment, I assume to size up my strange behavior.
 
 ---
 
-Kipnu was at the stove reheating a sweet mash of pohua with his morning face on. His hair resembled the furrowed nest of a bird that took a liking to the most crooked of branches. He looked up, locking his tired eyes to mine, and put on his laziest morning smile which only complimented his hair. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive of provincial news.
+Kipnu was at the stove reheating a mash of pohua, wearing nothing more than his vinegrass shorts and his morning face. He looked up, locking his tired eyes to mine, and a calm smile showed across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive of provincial news.
 
 "Anything new?", I asked her.
 
