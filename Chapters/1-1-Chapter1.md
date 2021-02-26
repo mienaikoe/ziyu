@@ -6,23 +6,21 @@ _No. It's fine. Just a little late._
 
 _It's never this late._
 
-The wind picked up and Ara had lifted from the horizon and begun warming the land. But still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
+Ara had lifted from the horizon and begun warming the land. The breeze that it lifted filled my lungs with breath, and my head with worry. But still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
 
 _It must be the wind. It's too dry right now._
 
 Patiently, I waited for an answer that would settle my mind, some glimpse of a sound I hadn't been listening to close enough. For I moment I thought I could hear my mother's words echoing through through the branches.
 
-"The wind speaks," thi would say, "And the ziyu tells us all its secrets."
+"The wind speaks," thi would say. "And the ziyu tells us all its secrets."
 
-"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question.
-
-I stood up and dusted off my trousers, catching a last glimpse of the twilight-pink sky through the quiet leaves. And among them, some invisible malevolence brooding within the very breeze I drew my breaths from. I shuddered at thoughts that filled my head. Was another great cold on its way?
+"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, and I wondered what trouble might be brewing there.
 
 <!-- human voice -->
 
 "Lovely morning, Liffa."
 
-Startled, I turned around to see a silhouette of Melna standing in the light, her hair dancing in time with the leaves.
+Startled, I turned around to see my bundwoman, Melna, standing in the light, her hair dancing in time with the leaves.
 
 "How long have you been here?" I asked.
 
@@ -36,23 +34,23 @@ I stayed silent, still listening for the leaves and my mother's voice.
 
 She stared at me for a moment, I assume to size up my strange behavior.
 
-"There's a chill in the air," she remarked, "Don't stay out too long."
+"There's a chill in the air," she remarked, "Come in for a bit, and let the breeze settle."
 
----
+"I'll be right there," I told her, and she gave me a nod before heading back.
 
-Kipnu was at the stove reheating a mash of pohua, wearing nothing more than his vinegrass shorts and his morning face. He looked up, locking his tired eyes to mine, and a calm smile showed across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive of provincial news.
+My bundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
 
 "Anything new?", I asked her.
 
-"Not particularly. We're still running our typical surplus of fruits. People always request more of them than they actually need."
+"Not particularly. We're still running our typical surplus of fruits. People always request more than they actually need."
 
-Kipnu chortled, looking at me. "Liffa here could probably eat the entire surplus herself."
+Kipnu chortled, looking at me. "Liffa could probably eat the entire surplus by haeself."
 
-"Sweets are my one joy in life," I replied with a smile. "Shame will never keep me from my one true love. Anyway, all the farmers I know dry-preserve what they don't sell."
+"Shame will never keep me from my one true love," I replied with a smile. "Anyway, all the farmers that I know feed their surplus to the saffas."
 
 "I'll pretend I didn't hear that," said Melna.
 
-I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and removed the pot from the focal point.
+I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and removed the pot from the heat.
 
 "A leaf would be great," I told him as I fetched a spoon.
 
@@ -138,7 +136,7 @@ Late wasn't particularly rare for her, but I wanted to pry.
 
 "Yansha has been pushing us on this grain resolution."
 
-I looked in her eyes more intently. Something about her eyes was very out of place. As if she had shut off her heart and it was wallowing in guilt. I stood up and approached her as she turned to leave the house.
+I looked into her eyes more intently, looking for some hint of deception. She wasn't one to show such things but I knew her better than anyone else. Something was off. I stood up and approached her as she turned to leave the house.
 
 "What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
 
