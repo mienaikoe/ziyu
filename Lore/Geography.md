@@ -104,7 +104,7 @@ The number of cities reflects its desire to remain flexible and ready for attack
 Seroa's main export is stone, and tightly-layered kelp textiles.
 
 **_Bay of Dala'a_**
-Not really a province, but big enough to be one. A large body of water that divides the vast Holragi steppe and Heiko. Probably an asteroid impact from a long time ago.
+Not really a province, but big enough to be one. A large body of water that divides the vast Holragi steppe and Heiko. Probably an asteroid impact from a long time ago. A small tribe of people live here, the Hunnin. They're rumored to be a Holragi tribe that settled in the lush areas around the bay.
 
 <!--
 A province on the Northwestern coast made of a tribal people that use only simple technology. Each person, man, woman, or nyman is trained to be a warrior as children. The tribal customs are law for Halpians. Defying it is a personal conflict and most Halpians believe the person would defy it for a reason, and do not ask or judge what the reason is. The tribes are generational, being created solely for small groups of adults to mate and raise children. The children will journey to find another group when they are of age. There is no idea of a single spouse for a lifetime. The tribe senses a strong friendship and sexual bond amongst all its members.

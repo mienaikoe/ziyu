@@ -24,11 +24,11 @@ Startled, I turned around to see my bundwoman, Melna, standing in the light, her
 
 "How long have you been here?" I asked.
 
-"Just a moment. I figured you would be here today."
+"Just a moment. I figured you would be here when I didn't see you in the cellar."
 
 I stayed silent, still listening for the leaves and my mother's voice.
 
-"You've been gone a while. Breakfast is ready soon."
+"You've been gone a while. Breakfast will be ready soon."
 
 "I'll be there in a bit."
 
@@ -64,27 +64,29 @@ A moment of quiet went by and I could see Melna's mind had moved onto a deeper t
 
 "It's been too long," she said with a longing tone.
 
-Kipnu knew what she was thinking too. "Last time was when we went to the North coast to live with the Hunnin for a week," he said. "I'll never forget how cold that was. Who's idea was that again?" He never missed a chance to remind me.
+Kipnu knew what she was thinking too. "Last time was when we went to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
 
-I defended my choice, "Hey, we all had fun uh... catching fish."
+"You're so ungrateful," I defended my choice, "You know we all had fun... doing..."
 
-Melna and Kipnu smiled, knowing what I really meant.
+Melna and Kipnu both cracked a smirk as my voice trailed off, knowing what I really meant.
 
-"There was nothing else to do," Kipnu said.
+"There was nothing else to do but each other out there," Kipnu said.
 
-"Yea, but I'd still do it again."
+"The fish!" I said. "We caught a fish that one time!"
 
-And I would. Because I was happy when they were around.
+"That was the fisherman," Melna reminded me.
 
-It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when I was keenly aware of how wholly incomplete I would always be.
+"Yea, but we were all there to cheer him on," I said. "Anyway, I would gladly do it all again."
+
+And I would. Because I was happy when they were around. It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when I was keenly aware of how wholly inadequate I would always be.
 
 ---
 
-I entered the dressing room as Melna was putting on her fidelant attire so I could help her tie the knots of her complex robes. I spoke not with my tongues but with my the cold of my fingers.
+I entered the dressing room as Melna was setting out her fidelant attire so I could help her tie the knots of her complex robes. I spoke not with my voice but with my the cold of my fingers.
 
 She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while she stood just barely in it.
 
-She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color of Heiko shined proudly in the daylight. I remembered dying them in pohua, taking every care to ensure that the dye was consistent and fast to the cloth, but still I saw all of its imperfections whenever I looked at it. Melna didn't seem to mind.
+She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color of Heiko shined proudly in the daylight. I remembered dying them in pohua, taking every care to ensure that the color was consistent and fast to the cloth, but still I saw all of its imperfections whenever I looked at it. Melna didn't seem to mind.
 
 "This morning, you mentioned the cold air," I spoke hesitantly.
 
@@ -94,7 +96,9 @@ She didn't respond.
 
 "Liffa... we've been over this. If I had evidence of drift, I would tell you."
 
-She was a stone wall of secrets, and I was unsatisfied until I could break through. But it was unfair of me to keep pushing on it when I knew she was bound to her duties. I wasn't letting her go without a promise.
+She was a stone wall of secrets, and I, the climbing vine, would be unsatisfied until I had broken through. I knew that it was unfair for me to keep pushing when I knew she was bound to her duties, but I wasn't letting her go without a promise.
+
+<!-- left off -->
 
 I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your bundmaman."
 
