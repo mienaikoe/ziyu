@@ -1,8 +1,8 @@
 ## Chapter 1
 
-_It's quiet. Something is wrong._
+_It's quiet._
 
-_No. It's fine. Just a little late._
+_It's fine. Just a little late._
 
 _It's never this late._
 
@@ -18,7 +18,7 @@ Patiently, I waited for an answer that would settle my mind, some glimpse of a s
 
 <!-- human voice -->
 
-"Lovely morning, Liffa."
+"Lovely morning, isn't it?"
 
 Startled, I turned around to see my bundwoman, Melna, standing in the light, her hair dancing in time with the leaves.
 

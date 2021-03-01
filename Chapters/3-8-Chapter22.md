@@ -170,4 +170,4 @@ She smiled.
 
 Just before drifting off, she whispered a silent benediction to the people she had never met who risked their lives to save her people. All around her, she felt Kipnu's warm embrace in the waves as the last words from her mouth transpired into the wind.
 
-"Lovely morning, Liffa."
+"Lovely morning, isn't it?"
