@@ -16,8 +16,6 @@ Patiently, I waited for an answer that would settle my mind, some glimpse of a s
 
 "What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, and I wondered what trouble might be brewing there.
 
-<!-- human voice -->
-
 "Lovely morning, isn't it?"
 
 Startled, I turned around to see my bundwoman, Melna, standing in the light, her hair dancing in time with the leaves.
@@ -70,15 +68,15 @@ Kipnu knew what she was thinking too. "Last time was when we went to the bay to 
 
 Melna and Kipnu both cracked a smirk as my voice trailed off, knowing what I really meant.
 
-"There was nothing else to do but each other out there," Kipnu said.
+Kipnu groaned, "There was nothing else to do out there but–"
 
-"The fish!" I said. "We caught a fish that one time!"
+"The fish!" I yelled. "We caught a fish that one time!"
 
 "That was the fisherman," Melna reminded me.
 
 "Yea, but we were all there to cheer him on," I said. "Anyway, I would gladly do it all again."
 
-And I would. Because I was happy when they were around. It was the apart times, when the waves of loneliness washed upon the cracks of my heart. Those were the moments when I was keenly aware of how wholly inadequate I would always be.
+And I would. Because I was happy when they were around. It was the apart times, when the waves of loneliness washed over the cracks in my heart. Those were the moments when I was keenly aware of how wholly inadequate I felt to them.
 
 ---
 
@@ -96,47 +94,43 @@ She didn't respond.
 
 "Liffa... we've been over this. If I had evidence of drift, I would tell you."
 
-She was a stone wall of secrets, and I, the climbing vine, would be unsatisfied until I had broken through. I knew that it was unfair for me to keep pushing when I knew she was bound to her duties, but I wasn't letting her go without a promise.
+She was a stone wall of secrets, and I, the climbing vine, would be unsatisfied until I had broken through. It was unfair for me to keep pushing when I knew she was bound to her duties, but I couldn't let her go without a promise
 
-<!-- left off -->
+I placed a hand on her bare shoulder, "Look me in the eye," I pleaded. "Look at me and tell me you are not keeping secrets from the people of your province – from me."
 
-I placed a hand on her bare shoulder, and pleaded, "Look me in the eye. Look at me and tell me you are not keeping secrets from your village. From your bundmaman."
+She looked at me through the mirror for a moment, searching for motives in an innocent face. "I don't have time for this," she said coldly.
 
-She looked at me through the mirror for a moment, searching for motives in an innocent face.
+I let out a frustrated sigh and fled to the doorway to stop myself from saying something I'd regret.
 
-"I don't have time for this," she said coldly.
-
-I let out a frustrated sigh and fled to the doorway.
-
-Before I could leave, she said, "Liffa..."
-
-I stopped without turning.
-
-"You know I love you."
+"Liffa," she called to me before I could leave. I stopped without turning. "You know that I love you..."
 
 I left.
 
 ---
 
-Kipnu was going over his schedule of patients in the same spot we had left him. He looked up and took a glance at me, burying his head in the schedule again.
+Kipnu was going over his schedule of patients in the same spot we had left him. He looked up and glanced at me, and it was all he needed to know.
 
-"Melna got you down?"
+"Melna got you down?" he asked, and I stopped, hoping for those wise, logical words to settle me down. "Don't take it personally, Liffa. She has a duty to her province."
 
-"How could you tell?"
+"She has a duty to us too," I replied.
 
-"Ah you know."
+With a sigh, he said, "If this were any other binding, it would have all fallen apart by now. But we both know how important it is for us to support her no matter what."
 
-I waited for him to elaborate or offer some advice, but he was too absorbed in the paper to respond. So I stooped at the table with him and a long awkward silence filled the room. Melna came downstairs and looked us over. She had a confused look for a brief moment, but resumed her departure.
+"I know. I just wish she would support us too."
 
-"I'm headed to the train."
+Melna came downstairs and looked at us through a brief air of silence.
 
-"Have a good day," he chimed. I stayed silent.
+"I'm headed to the train," she said.
+
+"Have a good day in Shaki," Kipnu chimed as he stood up and walked to her. "I know you'll do well."
+
+<!-- left off -->
 
 "I'll be back a bit late tonight," she said. "Don't wait up for me."
 
 Late wasn't particularly rare for her, but I wanted to pry.
 
-"Late? What for?" I asked.
+"Late? What for?" I asked. Kipnu glared at me.
 
 "Yansha has been pushing us on this grain resolution."
 
