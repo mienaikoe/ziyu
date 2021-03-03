@@ -108,44 +108,42 @@ I left.
 
 ---
 
-Kipnu was going over his schedule of patients in the same spot we had left him. He looked up and glanced at me, and it was all he needed to know.
+Kipnu was going over his schedule of patients in the same spot we had left him. He didn't need to see me to know something was wrong.
 
-"Melna got you down?" he asked, and I stopped, hoping for those wise, logical words to settle me down. "Don't take it personally, Liffa. She has a duty to her province."
+"Something got you down?" he asked, and I stopped, hoping for some wise, logical words to settle me down. "Your footsteps are frustrated."
 
-"She has a duty to us too," I replied.
+"It's nothing..." I said.
 
-With a sigh, he said, "If this were any other binding, it would have all fallen apart by now. But we both know how important it is for us to support her no matter what."
+"It's Melna and her secrets again, isn't it? Don't take it personally, Liffa. You know that's just how she is."
 
-"I know. I just wish she would support us too."
+"For peace and province," I recited the fidelant motto.
 
-Melna came downstairs and looked at us through a brief air of silence.
+With a sigh, he said quietly, "You know we have to support her no matter what. She would crumble under the weight of her duties if not for us."
 
-"I'm headed to the train," she said.
+"I know... And I do," I said. "I just–"
 
-"Have a good day in Shaki," Kipnu chimed as he stood up and walked to her. "I know you'll do well."
+I held my tongue, knowing he wouldn't be convinced. We'd had this conversation before.
 
-<!-- left off -->
+Melna came back into the main room and looked at us, holding a pause of silent thought. "I'll be back a bit late tonight," she said. "Don't wait up for me."
 
-"I'll be back a bit late tonight," she said. "Don't wait up for me."
+"I wish you a good deliberation today," Kipnu chimed as he stood up approached her. "I know you'll do well."
 
-Late wasn't particularly rare for her, but I wanted to pry.
+Late wasn't particularly rare for her, but I wanted to pry. "Late? What for?" I asked and Kipnu shot a glance of disapproval at me.
 
-"Late? What for?" I asked. Kipnu glared at me.
+"Seroa has been pushing us on a grain resolution," she said. "Negotiations are likely to get complicated."
 
-"Yansha has been pushing us on this grain resolution."
+I looked into her eyes more intently, looking for some hint of deception. She wasn't one to show such things but I knew her better than anyone else. Something was off. I stood up and approached her as she turned to leave the house. With gentle hands, I turned her around and checked that her cords were tight and robe was creased correctly.
 
-I looked into her eyes more intently, looking for some hint of deception. She wasn't one to show such things but I knew her better than anyone else. Something was off. I stood up and approached her as she turned to leave the house.
+"Whatever it is you'll be talking about today," I said, "I'll be here when you return."
 
-"What are you doing?" She asked. I checked that her cords were tight and robe was creased correctly.
+I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate. "Thank you... Liffa."
 
-"Whatever it is you'll be arguing today," I said, "I'll be here when you return."
+Kipnu joined us, and I felt her body loosen up for a brief moment. I may have had doubts, but trust was the only thing that felt right in the moment.
 
-I embraced her as if she was going on a long journey. She was never too fond of touch, but today she raised her arms to reciprocate. "Thank you, Liffa."
+Kipnu and I held each other close and watched as Melna without looking back. Her assistant Pomri stood by with her saffa along the parkway, looking as palatial as always. The two of them together always gave me an uneasy feeling. _How strange for a maman to envy hae woman's assistant_.
 
-Kipnu walked up to us, and she loosened up enough to hug the both of us before opening the door to the outside. He and I watched as she entered the daylight without looking back. Her assistant Pomri stood by with her saffa along the parkway, looking as palatial as always. The two of them together always gave me an uneasy feeling. _How strange for a maman to envy hae woman's assistant_.
+"Something's different about her today," Kipnu said. "What were you two talking about?"
 
-"What's going on between you two?" Kipnu asked again.
+I held my binding pendant tightly and watched her walk down the road toward the train station. It reminded me that marriage was full of difficulties.
 
-I held my binding pendant tightly and remembered that marriage was full of difficulties.
-
-"Nothing," I said. "Just a chill in the air."
+"It was nothing," I said. "Just a chill in the air."
