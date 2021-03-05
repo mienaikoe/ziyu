@@ -6,15 +6,15 @@ _It's fine. Just a little late._
 
 _It's never this late._
 
-Ara had lifted from the horizon and begun warming the land. The breeze that it lifted filled my lungs with breath, and my head with worry. But still the tree remained silent. I took a deep breath and examined its bark and branches and leaves, but nothing looked different: it was still the same tree I remembered my mother taking me to.
+Ara had climbed the horizon when the breeze that it lifted filled my lungs with breath, and my head with worry. The tree that watched over me and my family for generations and sang to us every morning for generations remained silent. I took a deep breath and examined its teeming branches and dancing leaves, but nothing looked off.
 
-_It must be the wind. It's too dry right now._
+_It must be the wind. Or the dew._
 
-Patiently, I waited for an answer that would settle my mind, some glimpse of a sound I hadn't been listening to close enough. For I moment I thought I could hear my mother's words echoing through through the branches.
+I waited patiently for an answer that would settle my mind, some glimpse of a sound that I hadn't been listening to. For I moment I thought I could hear my mother's words echoing through through the branches.
 
 "The wind speaks," thi would say. "And the ziyu tells us all its secrets."
 
-"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen a little closer, that the answer was not something I could hear. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, and I wondered what trouble might be brewing there.
+"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen closely, that the answer was sometimes not a sound, but a vision or a feeling. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, and I wondered if trouble might be brewing in that big ball of fire so far away.
 
 "Lovely morning, isn't it?"
 
@@ -42,27 +42,25 @@ My bundman, Kipnu, was standing over the stove, wearing nothing more than his ho
 
 "Not particularly. We're still running our typical surplus of fruits. People always request more than they actually need."
 
-Kipnu chortled, looking at me. "Liffa could probably eat the entire surplus by haeself."
+Kipnu chortled, looking at me. "Liffa could probably eat our entire surplus by haeself."
 
-"Shame will never keep me from my one true love," I replied with a smile. "Anyway, all the farmers that I know feed their surplus to the saffas."
+"Your shame will not keep me from my one true love," I replied with a smile. "Anyway, all the farmers that I know feed their surplus to the saffas."
 
 "I'll pretend I didn't hear that," said Melna.
 
 I stirred at the table, and then rose again to go bother Kipnu who had fallen asleep at the stove. With a gentle nudge, I moved him away and removed the pot from the heat.
 
-"A leaf would be great," I told him as I fetched a spoon.
+"Let me make sure it's still like my mother used to make," I said as I took out a spoon of my own and dipped it into the pot. "Too thick - add some water."
 
-Melna walked over to us to check on the food. "Let me make sure it's still like my mother used to make," she took out a spoon and dipped it into the pot. "Too thick - add some water"
+Kipnu walked to the great room to pull some water from the dew column and returned to add it to the mix little by little, waiting for my approval. Finally, we sat down to eat.
 
-I pulled some water from the dew column at the center of the great room and returned to add it to the mix little by little, waiting for Melna's approval.
+A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door. I could tell she that she was anxious about going to Shaki today.
 
-Finally, we sat down to eat.
-
-A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door. I could tell she was thinking about traveling again. The three of us had joined too early before we could roam across the world.
+<!-- The three of us had joined too early before we could roam across the world. -->
 
 "It's been too long," she said with a longing tone.
 
-Kipnu knew what she was thinking too. "Last time was when we went to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
+Kipnu knew what she was thinking. "Last time was when we went to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
 
 "You're so ungrateful," I defended my choice, "You know we all had fun... doing..."
 
