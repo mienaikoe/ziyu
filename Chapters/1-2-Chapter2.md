@@ -2,15 +2,15 @@
 
 Working in the field never felt lonely to me, though I knew some who resented it for that reason. My thoughts may betray me sometimes, but never out there. There was far too much to be done to have thoughts of other places and other times.
 
-Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother. I would descend to the cellar to dress for the long day of sowing or harvesting or maintenance. The smell of damp on the stone walls pervaded the air and reminded me that my mother was with me. I would hook a lightglass to the overhead electrical rails, and little by little the flow of electricity grew and warmed the metal ribbon inside to a bright white. Drying on a length of twine were a pair of canvas trousers, a thickly-woven tunic, and gloves stained with clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all for thousands of days. I was certain that my mother knew how to make the most durable clothes of anyone in Heiko.
+Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother. I would descend to the cellar to dress for the long day of sowing or harvesting or maintenance. The smell of damp on the stone walls pervaded the air and reminded me that my mother was with me. Above my head were electrical rails where an old lightglass that I moved along them wherever I needed to see. Its metal ribbon was slow to warm, but with time it could make a room as bright and as warm as Ara. At the far side of the room were my clothes drying on a length of twine: trousers and a tunic made of thickly-woven vinegrass, and two gloves stained with a lifetime of clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all. I was certain that my mother knew how to make the most durable clothes of anyone in Heiko.
 
-We used to grow pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. It's been sixty-five crop rotations since thi passed, but thi lives as vividly in my memories as thi did in life.
+We used to grow pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. More than a thousand days had flowed through me since thi passed, but thi still lived vividly in my memories.
 
-"I bet you'll plant 1000 today, Liffa," thi said once.
+"I bet you'll plant one-thousand today, Liffa," thi said once.
 
-"2000!"
+"two-thousand!"
 
-"Hohoho," thi laughed in the most graceful way. "2000 then."
+"Hohoho," thi laughed in the most graceful way. "two-thousand then."
 
 My childhood attention span was not helpful, but thi was never disappointed in me as long as I was learning.
 
@@ -66,7 +66,7 @@ The things she said were nothing new, though they always bothered me more than t
 
 "That's all? Just fine?"
 
-I snapped, "What do want from me, woman?"
+I snapped, "What do you want from me, woman?"
 
 "Mind yourself, Liffa. What sort of maman raises hae voice to an elder?"
 
@@ -74,7 +74,7 @@ I was at the edge of my frustration.
 
 "They're doing just fine, okay? Kipnu is having a great start at the clinic, and Melna is representing this village to the council. Is that what you're looking for?"
 
-She sughed, went quiet, and resumed her work while I stared at her indignantly.
+She sighed, went quiet, and resumed her work while I stared at her indignantly.
 
 "A jealous maman never rests," she said out of nowhere.
 

@@ -6,15 +6,15 @@ _It's fine. Just a little late._
 
 _It's never this late._
 
-Ara had climbed the horizon when the breeze that it lifted filled my lungs with breath, and my head with worry. The tree that watched over me and my family for generations and sang to us every morning for generations remained silent. I took a deep breath and examined its teeming branches and dancing leaves, but nothing looked off.
+The golden disc of Ara had climbed the horizon when the breeze that it lifted filled my lungs with breath, and my head with worry. The tree that watched over me and my family for generations and sang to us every morning for generations remained silent. I took a deep breath and examined its teeming branches and dancing leaves, but nothing seemed amiss.
 
-_It must be the wind. Or the dew._
+_It's the wind. It must be._
 
 I waited patiently for an answer that would settle my mind, some glimpse of a sound that I hadn't been listening to. For I moment I thought I could hear my mother's words echoing through through the branches.
 
 "The wind speaks," thi would say. "And the ziyu tells us all its secrets."
 
-"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen closely, that the answer was sometimes not a sound, but a vision or a feeling. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, and I wondered if trouble might be brewing in that big ball of fire so far away.
+"What is it saying?" I must have asked hae a hundred times. My mother would tell me to listen closely, that the answer was sometimes not a sound, but a vision or a feeling. I knew that even the silence was a sort of answer, but the trouble was in the question. With an unsettled feeling I stood up and dusted off my trousers, still staring at Ara holding its station through the quiet leaves, its beams of light warming the pockets of water in my skin. I wondered if trouble might be brewing in that big ball of fire so far away.
 
 "Lovely morning, isn't it?"
 
@@ -54,13 +54,13 @@ I stirred at the table, and then rose again to go bother Kipnu who had fallen as
 
 Kipnu walked to the great room to pull some water from the dew column and returned to add it to the mix little by little, waiting for my approval. Finally, we sat down to eat.
 
-A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door. I could tell she that she was anxious about going to Shaki today.
+A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door.
 
 <!-- The three of us had joined too early before we could roam across the world. -->
 
 "It's been too long," she said with a wistful tone.
 
-Kipnu knew what she was thinking. "Last time was when we went to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
+Kipnu knew what she was thinking. "Last time we went somewhere was to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
 
 "You're so ungrateful," I defended my choice, "You know we all had fun... doing..."
 
@@ -70,9 +70,9 @@ Kipnu groaned, "There was nothing else to do out there but–"
 
 "The fish!" I yelled. "We caught a fish that one time!"
 
-"That was the fisherman," Melna reminded me.
+"That wasn't us," Melna reminded me.
 
-"Yea, but we were all there to cheer him on," I said. "Anyway, I would gladly do it all again."
+"Yea, but we were all there to cheer on the fisherman," I said. "Anyway, it was beautiful there, and it loosened us up. I would gladly do it all again."
 
 And I would. Because I was happy when they were around. It was the apart times, when the waves of loneliness washed over the cracks in my heart. Those were the moments when I was keenly aware of how wholly inadequate I felt to them.
 
