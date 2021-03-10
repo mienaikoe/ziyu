@@ -1,40 +1,40 @@
 ## Chapter 2
 
-Working in the field never felt lonely to me, though I knew some who resented it for that reason. My thoughts may betray me sometimes, but never out there. There was far too much to be done to have thoughts of other places and other times.
+Working the soil of my family's land never felt lonely to me, though I knew some who resented it for that reason. My mind used to betray me with false hopes and fears, but those voices were silenced among the rows and rows of pohua that were under my care. They demanded all of my focus, and I gave it to them gladly.
 
-Every morning was a repeat of the same movements I had learned from countless mornings of dressing with my mother. I would descend to the cellar to dress for the long day of sowing or harvesting or maintenance. The smell of damp on the stone walls pervaded the air and reminded me that my mother was with me. Above my head were electrical rails where an old lightglass that I moved along them wherever I needed to see. Its metal ribbon was slow to warm, but with time it could make a room as bright and as warm as Ara. At the far side of the room were my clothes drying on a length of twine: trousers and a tunic made of thickly-woven vinegrass, and two gloves stained with a lifetime of clay and chlorophyll. No matter how often I dirtied them or dinged them up, they withstood it all. I was certain that my mother knew how to make the most durable clothes of anyone in Heiko.
+I dressed myself each morning the same way. Stepping down into the cellar with the smell of damp on the stone walls pervading the air, I was reminded that my mother was with me. Above my head were electrical rails where an old lightglass was perched. Its metal ribbon was slow to warm, but with time it could make a room as bright and as warm as Ara. At the far side of the room were my clothes drying on a length of twine from yesterday's washing: trousers and a tunic made of thickly-woven vinegrass, and two kelpen gloves stained with a lifetime of clay and chlorophyll. No matter how often I dirtied or dinged them up, they withstood it all such that I was certain that my mother had made the most durable clothes in the world.
 
-We used to grow pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled, planted, harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end, I would gaze in awe of how much thi could plant and harvest. More than a thousand days had flowed through me since thi passed, but thi still lived vividly in my memories.
+My family grew pohua, a hardy root vegetable known for its sweet and fruity taste. As a toddler, my mother would carry me in a big thatch bag on her back while thi tilled and planted and harvested. I watched hae hands unfold those tiny tubers across the clay and pack them in. At days end I would gaze in awe of how much thi could plant and harvest. More than a thousand days had passed since thi was gone, but thi still lived vividly in my memories.
 
-"I bet you'll plant one-thousand today, Liffa," thi said once.
+"I bet you'll plant one-thousand today," thi told me once.
 
-"two-thousand!"
+"two-thousand!" I replied.
 
 "Hohoho," thi laughed in the most graceful way. "two-thousand then."
 
-My childhood attention span was not helpful, but thi was never disappointed in me as long as I was learning.
+My childhood attention span did not help me reach my lofty goal, but thi was never disappointed in me as long as I was learning.
 
-I lifted the light from the rails, set it in its corner, and took a last breath of the earthen basement air. The day was calling.
+I opened the cellar door and watched the lightglass ribbon grow orange and then black with the turn of a switch. With one last breath of earthen air, I focused my mind on the field before me and ascended to greet the daylight.
 
-"Another day, then," called Tiggu as I walked the length of a plot of clay. She surprised me from behind the wide fence thi insisted on building.
+"Another day, then," called Tiggu as I walked the length of my field. She surprised me from behind the wide fence thi insisted on building between our crops.
 
-"Is your life really so mundane that the days are all the same?" I asked jokingly.
+"Is life so mundane to you?" I asked jokingly.
 
-"Oh, I enjoy the repetition. Can't get a body like this by talking to tie-backs all day."
+"Oh, I enjoy the repetition," she said. "Can't get a body like this by talking to the robes in Shaki all day."
 
-"The fidelants play an important role in our society. Melna included."
+"The fidelants play an important role in our society. They may not work with their hands, but they make great strides with their minds and voices."
 
-"Ah. What good is a railroad and electricity? Doesn't help me harvest."
+"Bah. Nonsense," she said. "What good is a railroad and electricity? Doesn't help me harvest, just makes Holragi all the richer."
 
-I changed the subject, "It's chilly today, isn't it?"
+I paused to consider her point but I knew that nothing would get done in that spiral of thoughts so I quickly changed the subject. "It's chilly today, isn't it?" I asked pointedly.
 
-She stopped for a moment to think.
-
-"I suppose so," she said. "Every rotation will have a few of these."
+She stopped for a moment to think. "I suppose so," she said. "Every rotation will have a few of these."
 
 "Yes, but... Isn't it too early?”
 
-"Oh you'll get them at all sorts of times. Once when I was young we had 4 days of frost right after germination of one plot. Lost the whole thing and had to start over. Ara is a fickle thing."
+"Oh you'll get them at all sorts of times. Once when I was young we had four days of cold dew right after germination of one plot. Lost the whole thing and had to start over. Ara is a fickle thing."
+
+<!-- left off -->
 
 "That sounds unfortunate, but I think this one is different somehow. The wind is strange too, isn't it?"
 
