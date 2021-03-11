@@ -32,33 +32,31 @@ She stopped for a moment to think. "I suppose so," she said. "Every rotation wil
 
 "Yes, but... Isn't it too early?”
 
-"Oh you'll get them at all sorts of times. Once when I was young we had four days of cold dew right after germination of one plot. Lost the whole thing and had to start over. Ara is a fickle thing."
+"Oh you'll get them at all sorts of times. Once when I was young we had four days of lingering dew right after germination of one plot. Every plant in there took twice as long to grow. Ara is a fickle thing."
 
-<!-- left off -->
+"That does sound difficult... but I can't help but think this one is different. The wind is strange too, isn't it?"
 
-"That sounds unfortunate, but I think this one is different somehow. The wind is strange too, isn't it?"
+"It's just a cold spell. Thing will slow down, but they'll be back to normal before long. You'll see."
 
-"It's just a cold spell. These things happen. It'll be back to normal soon, you'll see."
+"Sure," I said. "We'll see."
 
-"Sure. We'll see."
+Her answer did nothing to satisfy my suspicion, but I'd begun to think I could be overreacting. Maybe it was a cold spell, like Tiggu said. My mother had told me about the same cold spell, how it made the pohua roots swell with sugar.
 
-Her answer was unsatisfying, but I went back to working. Perhaps I was overreacting.
+Tiggu interjected, "So when are you three going to have children? It's been a while since you were joined."
 
-"So when are you three going to have children? It's been a while since you were joined."
+"That's none of your business," I said, being as polite as I could.
 
-"That's none of your business."
-
-"I'm just looking out for you is all. When your legs grow weak and you can't bend down to harvest, you'll wish you had someone to take your place."
+"I'm just looking out for you, Liffa. When your legs grow weak and you can't bend down to harvest, you'll wish you had someone to take your place."
 
 "I'll be just fine."
 
-"Though, I wonder how you'll raise kids and crops at the same time. Takes a different sort of mother. A nather like me would harvest a whole plot in the morning and birth a kid in the evening."
-
-_I doubt that._
+"Though, I wonder how you'll raise kids and tend to your field at the same time. Takes a different sort of mother. I used to start the harvest in the morning, give birth at midday, then head back out to finish the job. If my bundmaman were in my position, thi'd have gotten nothing done."
 
 "Like I said, I'll be fine."
 
-The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
+<!-- left off -->
+
+I desparately wanted to change the subject. The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
 
 "How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
 
