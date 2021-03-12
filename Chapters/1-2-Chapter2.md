@@ -50,67 +50,49 @@ Tiggu interjected, "So when are you three going to have children? It's been a wh
 
 "I'll be just fine."
 
-"Though, I wonder how you'll raise kids and tend to your field at the same time. Takes a different sort of mother. I used to start the harvest in the morning, give birth at midday, then head back out to finish the job. If my bundmaman were in my position, thi'd have gotten nothing done."
+"Though, I wonder how you'll raise kids and tend to your field at the same time. Takes a different sort of mother. I used to start the harvest in the morning, give birth at midday, then head back out to finish the job. If Lanna were in my position, thi'd have gotten nothing done."
 
 "Like I said, I'll be fine."
 
-<!-- left off -->
+There was an unwritten rule between us that repeating oneself was a sign that a person was uninterested in talking. It's not that I didn't like her company some days – I was no stranger to her unfiltered blather – but those subtle jabs always found a way nestle in my head and throw everything a little bit off.
 
-I desparately wanted to change the subject. The things she said were nothing new, though they always bothered me more than they ought to have. We worked side-by-side in silence for a bit, and then she began again.
+We worked side-by-side in silence for a bit, but then she began again, "How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
 
-"How are Melna and Kipnu doing anyway? Any new stories for an old lady?"
-
-"They are fine."
+"They're fine."
 
 "That's all? Just fine?"
 
 I snapped, "What do you want from me, woman?"
 
-"Mind yourself, Liffa. What sort of maman raises hae voice to an elder?"
+She feigned a look of offense. "Mind yourself, Liffa. What sort of maman raises hae voice to an elder?"
 
-I was at the edge of my frustration.
+"They're doing just fine, okay?" I was at the edge of my frustration, and it was showing. "Kipnu is starting his new clinic, and Melna is still working hard at the senate. It's nothing you don't already know."
 
-"They're doing just fine, okay? Kipnu is having a great start at the clinic, and Melna is representing this village to the council. Is that what you're looking for?"
+She sighed, went quiet, and resumed her work while I stared at her with wide eyes, looking for some kind of acknowledgement that she'd gone too far with her questions. But then she murmured, "A jealous maman never rests," projecting just enough for me to hear.
 
-She sighed, went quiet, and resumed her work while I stared at her indignantly.
-
-"A jealous maman never rests," she said out of nowhere.
-
-I jabbed my shovel into the clay and stopped myself from yelling something I would regret later.
+All at once, I jabbed my shovel into the clay and exerting the full strength of my willpower to stop myself from yelling something regrettable.
 
 _That's enough for now_.
 
----
+I quenched my frustration on the slow walk home, trying my best not to blame Tiggu for her perspective. She was born of the same caste that my parents came from; taught to accept their roles in life as farmers or parents or face endless criticism for burdening everyone with their risks. I liked to imagine that Tiggu tried to do something else with her life, just as I had, but I knew she would never admit it. Perhaps she was making sure that I wouldn't make her mistakes.
 
-There was a sense of humility or perhaps a feeling of unimportance as I returned home. I didn't blame Tiggu for her perspective. She was born of the same caste my parents came from; taught to accept their roles in life as farmers or parents. If they tried to do something else with their life, they would be met with endless criticism from their family for burdening everyone with their risks. I like to imagine that Tiggu tried to branch out once, but would never admit it. Perhaps she was making sure that I wouldn't make her mistakes.
+The clay from countless planting days had painted a spot on the mossy pathway, and I left my boots and trousers there to quickly get inside. As I entered, my scent glands picked up the piny aroma of the anomin plants I had been cultivating near the large oval window. They had opened up to take in the morning light before closing for the rest of the day, as most desert plants did. My finger touched upon a glossy petal and turned into that of my father's when he gave them to me. "Anomin represents a time I remember long ago," he said wistfully, "when light was grown from light, not conjured from metal."
 
-I took my boots and trousers off and left them next to the door, where the clay from countless planting days had painted a spot on the mossy pathway, and fled immediately to the dew column at the center of our home. My scent glands picked up the aroma of the anomin plants I had been cultivating in my room. They led me in, as if expecting me to return. With a sigh, I took it all in as if seeing it for the first time: my small cup collection, the hang drying pohua, my mother's dusty old lanterns, and the anomin filling the air with its resins and oils. But still I was unsettled. As with all things in my life, it felt temporary. Like some fantastic dream that I would one day be awoken from, abruptly and without warning.
+But now, my little desert garden simply fell into the backdrop of a noble Heikoi home. I took it all in as if seeing it for the first time: Melna's fancy cup collection, my father's dusty old lanterns, and the anomin filling the air with its resin. It was all so rich with life in a place like this. But as with all things in my life, it felt temporary. Like some fantastic dream that I would one day be awoken from, abruptly and without warning.
 
-_Do I deserve to be here? I'm not saving lives or making big decisions._
+_Do I deserve all of this? My life is not that important._
 
-_But I still contribute pohua to the village. I make sure we have food and water and a functional home._
+_No... I make sure we have food and water and a functional home. Melna and Kipnu couldn't possibly last without me._
 
 _"A jealous maman never rests"_
 
-_Tiggu... What did Mamen ever do to offend you?_
+_Tiggu... What happened for you to be this way?_
 
-_Or was I the rude one? No, She was intentionally trying to get under my skin._
+My heart felt guilty, unclean, like I needed to burn away some corruption that the old woman had woven into my heart. But I knew that corruption was made long ago by a world that didn't know any better. I had to remind myself that life is what makes me worthy of living. No one could take that worth away. My father used to tell me, "Nothing is promised in life. Even your own mind can betray you". And my nather would always remind him, "You promised to love us".
 
-_I feel guilty. Why do I feel guilty? What sort of corruption has this old woman woven into my heart?_.
+There was a knock at the door. _Is it that Tiggu again come to tell me I was rude?_
 
-It felt unclean, like I needed to burn away some piece of myself that had spoiled, to protect my homeland from myself.
-
-_No, I am self-dependent. That is who I am. That is what makes me worthy of living._
-
-I laid down on my bed and let my thoughts drift back to childhood. My father used to tell me, "Nothing is promised in life. Even your mind can betray you". And my nather would always remind him, "You promised to love us".
-
-There was a knock at the front door to snap me awake. _Is it that Tiggu again come to tell me I was rude?_
-
-I sat up on my bed and quietly snuck toward the door to see who it was.
-
-_Jathi? Delivering a message now? What could he possibly want?_
-
-I cracked the door to talk to him, but before I could say anything he unleashed a flurry of desperate words.
+I quietly snuck toward the door and opened it a crack. _Jathi? Delivering a message now? What could he possibly want?_ But before I could say anything he unleashed a flurry of desperate words.
 
 “Liffa, I have an urgent message for Melna. Is she here?”
 
