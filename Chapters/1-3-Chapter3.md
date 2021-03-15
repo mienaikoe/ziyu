@@ -1,19 +1,5 @@
 ## Chapter 3
 
-"Ara? Why would Melna need to know about that?"
-
-"The observers on Falni Peak are doing some study about the stellar surface and they said they've found something big and need to tell the senate right away"
-
-_She's keeping a secret_
-
-"Well, if she's not here, I should go back to call the capital."
-
-"Wait. Let me go with you."
-
-"Oh that's really not necessary -"
-
-"I need to know more; I won't slow you down" I plead to him while I ran off to fetch a new pair of trousers as quickly as I could.
-
 The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jathi and me.
 
 "Laen-Laen, good morning!"
@@ -144,7 +130,7 @@ He hesitated, "Well, no but –"
 
 "I'm sorry I can't do more, kid. Laws here are really backward but at least we can grumble about 'em. Just think about it."
 
-He sighed, "Yea. We- I'll consider it," he said.
+He sighed, "Yea. I'll consider it," he said.
 
 "Thanks," she said, and the line went silent.
 

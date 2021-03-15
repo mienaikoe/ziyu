@@ -30,7 +30,7 @@ I paused to consider her point but I knew that nothing would get done in that sp
 
 She stopped for a moment to think. "I suppose so," she said. "Every rotation will have a few of these."
 
-"Yes, but... Isn't it too early?”
+"Yes, but... Isn't it too early?"
 
 "Oh you'll get them at all sorts of times. Once when I was young we had four days of lingering dew right after germination of one plot. Every plant in there took twice as long to grow. Ara is a fickle thing."
 
@@ -92,14 +92,28 @@ My heart felt guilty, unclean, like I needed to burn away some corruption that t
 
 There was a knock at the door. _Is it that Tiggu again come to tell me I was rude?_
 
-I quietly snuck toward the door and opened it a crack. _Jathi? Delivering a message now? What could he possibly want?_ But before I could say anything he unleashed a flurry of desperate words.
+I quietly snuck toward the door and opened it a crack, careful not to show my bare lower-half. _Jathi? What could he possibly want?_ But before I could say anything he unleashed a flurry of words.
 
-“Liffa, I have an urgent message for Melna. Is she here?”
+"Liffa, so glad to see you," he said, catching his breath. "Is she here?"
 
-“Um. No she left a bit ago.”
+"Melna? No she left a bit ago. What's wrong?"
 
-He was still catching his breath, “We - we need to find a way to get it to her as soon as possible.”
+"I have an urgent message. I need to get it to her as soon as possible."
 
-“Slow down, Jathi. What’s this about?”
+"Slow down, Jathi. What’s this about?"
 
-“It's about Ara.“
+"It's about Ara," he said with a tinge of despair.
+
+"Ara? Why would Melna need to know about Ara?"
+
+"Thimlu and I have been studying something..." he said hesitantly, "She asked us to keep her in the loop."
+
+_She was keeping secrets._
+
+He began to turn back toward the road, "Well, if she's not here, I should go back to call–"
+
+"Wait!" I stopped him. "Let me go with you."
+
+"Oh that's really not necessary-"
+
+"I need to know more; I won't slow you down." I hollered as I ran off without a pause to fetch a new pair of trousers as quickly as I could. This was my chance to know the truth, and nothing would keep me from it.
