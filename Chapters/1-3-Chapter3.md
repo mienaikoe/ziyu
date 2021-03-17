@@ -16,13 +16,13 @@ He snorted his disapproval with his fuzzy ears turned backward.
 
 "We can stop by Gilli's and get a cake."
 
-"Woop woop woop!" He said as he perked up and twisted his head left and right.
+"Ooop!" He chittered as he perked up and twisted his head left and right.
 
 "There we go. Now lets get you ready."
 
-I took a soft linen blanket from the wall and paused a moment to remember when Jathi and I used to walk with a younger Laen along the foggy coastline in the mornings. The three of us would play hide and seek on a wide open beach and just get lost shouting to each other in the gray abyss until the fog lifted.
+I took a soft linen blanket from the wall and recalled the times when Jathi and I used to walk with a younger Laen along the foggy coastline in the mornings. We'd finish our shift together at the observatory and then go play saffa dodge or get lost shouting to each other in the gray abyss until the fog lifted. I was never tired with him, though we'd been working through the night.
 
-_Not the time for memories_. I snapped out and hopped on while rushing to the front gate where Jathi was waiting for me.
+But this was no time for memories. I led Laen down the alley toward the front gate where Jathi was waiting for me.
 
 "Didn't think we would be doing this again, " he said.
 
@@ -38,7 +38,7 @@ I wondered what was happening to Ara. As a child, I learned that the observers h
 
 I wondered if the stars could die like we did, or if they had always been there, like holes in the firmament.
 
-At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small woop of acknowledgement.
+At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small "oop" of acknowledgement.
 
 When I entered, an old man who seemed to know Jathi was already inside, standing by the doorway.
 

@@ -272,7 +272,7 @@ She looked down at hae and pondered at the mysteries behind this peculiar child 
 
 "Linyu reminds me to stay patient. Whatever this kaln went through to be alone in the cold in a foreign province, thi adapted through it all and found others to trust. We should all be so resilient."
 
-They came to the edge of the wetland, and dismounted from their saffas. Before them, a city awaited their arrival, a train awaited their board. But for now the saffas wooped and played in the water of their ancestors, the throngia looked on in glee, and not one among them in this moment of respite felt any worry for the state of their world.
+They came to the edge of the wetland, and dismounted from their saffas. Before them, a city awaited their arrival, a train awaited their board. But for now the saffas chittered and played in the water of their ancestors, the throngia looked on in glee, and not one among them in this moment of respite felt any worry for the state of their world.
 
 <!--
 

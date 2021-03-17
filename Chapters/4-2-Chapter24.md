@@ -134,7 +134,7 @@ The stranger passed between the saffas, and out of the cove where the remaining 
 
 "Laen! You're alive!"
 
-He hesitated, judging the voice against my motion, but then he sniffed a little and he at once he knew. He instantly let out a loud "Woop!" and rushed toward me with his big fuzzy face and his breath of stale fish. I hugged him warmly at his neck and he plopped an ear on my head while he coo'd his relief.
+He hesitated, judging the voice against my motion, but then he sniffed a little and he at once he knew. He instantly let out a loud "Oooop!" and rushed toward me with his big fuzzy face and his breath of stale fish. I hugged him warmly at his neck and he plopped an ear on my head while he coo'd his relief.
 
 Behind, Pomri cried out in an exhausted voice, "Laen? Is it really you?"
 

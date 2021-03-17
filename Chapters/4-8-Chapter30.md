@@ -74,7 +74,7 @@ I heard my name called again by muffled speech, and saw the two figures crowd ar
 
 "Where is Annu?"
 
-Fanla and Setre paused, puzzled at the question, but Boon raised her head to look in a specific direction and let out two "woop" sounds. A silhouette with soft blue eyes slowly appeared behind Setre, still bound with a rope leading to Setre. Thi was safe for now.
+Fanla and Setre paused, puzzled at the question, but Boon raised her head to look into the dark. A silhouette with soft blue eyes slowly appeared behind Setre, still bound with a rope leading to Setre. Thi was safe for now.
 
 Setre leaned in close and asked me loud enough to hear, "Who did this?"
 
