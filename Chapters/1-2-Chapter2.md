@@ -116,4 +116,4 @@ He began to turn back toward the road, "Well, if she's not here, I should go bac
 
 "Oh that's really not necessary-"
 
-"I need to know more; I won't slow you down." I hollered as I ran off without a pause to fetch a new pair of trousers as quickly as I could. This was my chance to know the truth, and nothing would keep me from it.
+I hollered to him, "I need to know more; I won't slow you down," while I ran to fetch a new pair of trousers as quickly as I could. This was my chance to know the truth, and nothing would keep me from it.

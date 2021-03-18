@@ -32,7 +32,7 @@ But this was no time for memories. I led Laen down the alley toward the front ga
 
 ---
 
-The winds were slowly picking up while we rode down the long, sintered-clay path from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Whispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss.
+The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Wispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss.
 
 I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the bright and dim times. They also knew that there were other, much redder stars very far away. Exactly how far, they couldn't be certain, but they were much too far to reach in our lifetimes. Even with the fastest vehicles.
 
@@ -158,11 +158,11 @@ I tried to convince him again, "I can't think of any better way to do it."
 
 I explained my thoughts. "One of us has to do it. If this is as important as you say, then there will be a lot of chatter for the next few days. One of you has to keep the communication lines open amidst all that chaos, and one of you has to keep watching the sky for more data. Besides, I have some strings I can pull at the senate. I stand a much better chance."
 
-Jathi seemed defeated but he looked up into my eyes and we locked gazes for a while.
+Jathi seemed defeated but he looked up into my eyes and locked with my gaze.
 
-"If you pull this off, I'll petition the magistrate for a lighter sentence."
+"If this works, we'll all petition the magistrate for a lighter sentence."
 
-"Don't worry about me," I told him. "I've got a coat."
+"Don't worry about me," I told him. "Wherever they send me to, I can handle it."
 
 I gathered my bag onto my shoulders, and stood near the doorway as they looked on.
 
@@ -212,9 +212,7 @@ I turned to walk out the door, but he grabbed my wrist to stop me. His eyes were
 
 "I already am."
 
-I fought off his grip, and stood just outside the door, staring at the gaudy iron floor of his office and vying with my own thoughts.
-
-_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then survive Ulukoma and come back redeemed. Kipnu and Melna would understand. In the worst case, I would get a little cold in the dark. But Kipnu? I would have to fend for him too. He doesn't know how to survive on the land_
+I fought off his grip, and stood just outside the door, staring at the gaudy iron floor of his office.
 
 He pushed again, "If you won't tell me, then I'm going with you to find out myself."
 
@@ -224,21 +222,19 @@ He pushed again, "If you won't tell me, then I'm going with you to find out myse
 
 "Kipnu-"
 
-"Why can't you let me in?"
+_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then serve my time in Ulukoma and come back redeemed. Kipnu and Melna would understand. I would survive. But Kipnu? I would have to fend for both of us in a place like that. He doesn't know how to survive on the gifts of Palinan alone._
 
-"Kipnu...if you go with me, it will be a long time before you come back."
+I lowered my voice and spoke resolutely. "If you go with me, it will be a long time before you come back."
 
 "What are you talking about? The trains run four times a day."
 
-"This isn't about the trains, ok? I'm going on this journey alone and it might be a while before I come back."
+"This isn't about the trains. I'm going on this journey alone and it might be a while before I'm back."
 
 "Stop being cryptic. What are you planning, Liffa?"
 
 His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing.
 
-No. His guilt would be my guilt. He can't be involved in this.
-
-_It's clear._
+But his pain would have become me if I'd let him do this. The path forward was clear: he couldn't be involved.
 
 "Goodbye," I said.
 
