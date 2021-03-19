@@ -1,14 +1,10 @@
 ## Chapter 3
 
-The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he was more than enough to fit Jathi and me.
+The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he still had more than enough strength to fit both Jathi and me.
 
-"Laen-Laen, good morning!"
+"Laen-Laen, good morning!" I greeted him and he gave out a whoop as he woke up from his half-nap. "You're still asleep, Laen?"
 
-He gave out a whoop as he woke up from his half-nap.
-
-"You're still asleep, Laen?"
-
-A loud "Ooo" sound filled the room as he stood up and yawned in my face.
+A loud and wavering "Ooooo" filled the room as he walked to me and yawned in my face.
 
 "Hey grass-breath, can you take me to Heiko central?"
 
@@ -20,13 +16,15 @@ He snorted his disapproval with his fuzzy ears turned backward.
 
 "There we go. Now lets get you ready."
 
-I took a soft linen blanket from the wall and recalled the times when Jathi and I used to walk with a younger Laen along the foggy coastline in the mornings. We'd finish our shift together at the observatory and then go play saffa dodge or get lost shouting to each other in the gray abyss until the fog lifted. I was never tired with him, though we'd been working through the night.
+I took a soft linen blanket from the wall and recalled the times when Jathi and I used to walk with Laen along the coastline in the fog of morning. We'd finish the night shifts we worked together at the observatory and then go play in the water or get lost in the gray abyss until the fog lifted to show us where we'd gone. Even though we'd stayed up all night, we were never tired when we were together.
 
-But this was no time for memories. I led Laen down the alley toward the front gate where Jathi was waiting for me.
+But this was no time for memories. Jathi had a duty to fulfill, and I had a mystery to solve. I led Laen down the alley toward the front gate where Jathi was waiting for me.
 
-"Didn't think we would be doing this again, " he said.
+"Didn't think we would be doing this again," he said, "The three of us on a morning adventure."
 
-"Never thought we would be delivering a message to the senate."
+"Adventure?" I said surprised. "It's just a stop by the conduit. Hardly the meanderings in the fog we used to do."
+
+<!-- left off -->
 
 "There's always something new with you, Liffa."
 

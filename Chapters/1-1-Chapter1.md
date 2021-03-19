@@ -140,6 +140,6 @@ Kipnu and I held each other close and watched as Melna began along her morning r
 
 "Something's different about her today," Kipnu said. "What were you two talking about?"
 
-We watched Pomri help her onto the saffa. With a holler from Pomri, the saffa stood and ferried them off to the train station. I held my binding pendant tightly, remembering that marriage was full of difficulties, and that this was only one.
+We watched Pomri help her onto the saffa. With a holler, the saffa stood and ferried them off to the train station. I held my binding pendant tightly, remembering that marriage was full of difficulties, and that this was only one.
 
 "It was nothing," I said. "Just a chill in the air."
