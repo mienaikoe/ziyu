@@ -22,13 +22,15 @@ But this was no time for memories. Jathi had a duty to fulfill, and I had a myst
 
 "Didn't think we would be doing this again," he said, "The three of us on a morning adventure."
 
-"Adventure?" I said surprised. "It's just a stop by the conduit. Hardly the meanderings in the fog we used to do."
+"Adventure?" I said surprised. "It's just a stop by the conduit."
 
-<!-- left off -->
+"Adventures come in all shapes in sizes, Liffa. Even a moment can hold one."
 
-"There's always something new with you, Liffa."
+I smiled, satisfied to have an unexpected moment of adventure with an old friend."
 
 ---
+
+<!-- left off -->
 
 The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Wispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss.
 
