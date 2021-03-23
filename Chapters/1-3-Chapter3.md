@@ -156,17 +156,17 @@ I was astonished. Jathi was always so calm and now he was the most animated I ha
 
 "Like hell you will," Thimlu interjected. "We've got a lot of work to do. I'm not doing it all by myself."
 
-But Jathi kept up his argument, "It's our duty as observers to maintain communication with the fidelant. How can we ask Liffa to do our job for us?"
+But Jathi kept up his argument, "It's unfair to ask Liffa to do our job for us. This is _our_ duty is observers."
 
-Thimlu hesitated, turning his head to me with a smirk on his face. I already knew my answer.
+Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... would you like to–"
 
-"Liffa... uh, would you like to–"
+"–Yes!", I said too early. "I mean, uh, Yes, I would love to. Please."
 
-"–Yes!", I said too early. "I mean, uh, Yes. Please."
+Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it: _Heiko Observatory - Observer I_. "Welcome to the club."
 
-Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it: _Heiko Observatory - Observer I_. "Take this with you to Shaki. Everyone knows me anyway. Welcome to the club."
+I smiled, taking the disc from his hand and moving my fingers across its surface. I'd longed for this moment for such a long time. It was far from the formal ceremonious event than I'd imagined, but I didn't mind. My aim was not for vanity.
 
-I smiled, and looked over to Jathi who seemed defeated. His eyes locked with mine and knew that I would not be moved. Not this time at least. "I'll make Pomri get you out of there even if I have to bring her a hundred cakes. I've got your back no matter what."
+Jathi stood behind the table and seemed defeated. His eyes locked with mine and knew that I would not be moved. "I'll make Pomri get you out of there even if I have to bring her a hundred cakes. I've got your back no matter what."
 
 "Don't worry about me," I told him, my hand reaching mindlessly for his. "Whatever they have planned, I can handle it."
 

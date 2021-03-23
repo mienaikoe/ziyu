@@ -1,14 +1,10 @@
 ## Chapter 4
 
-<!-- left off -->
+The station was just beginning to fill with merchants and travelers waiting for the next train after the day's first nap. From afar, a warm breeze caressed my nose with the sweet aroma of freshly-baked handcakes and pulled me closer to Gilli's bakery just outside the station. Before I knew it, Laen had caught sight of the bakery and bolted from behind me to his favorite place in the whole world.
 
-The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I turned to let my nose take me closer. But Laen had been waiting for his moment, and he bolted toward the bakery as soon as he saw me stop.
+"Laen!" I yelled at him. If I'm being honest, I wanted mine first. When I caught up to him, he was jumping all over the place, begging Gilli for a cake.
 
-"Laen!" I yelled at him. If I'm being honest, I wanted to get mine first.
-
-I caught up to him as he was begging Gilli for a cake.
-
-"I'm sorry, Gilli. I promised him I would get him one."
+"I'm sorry, Gilli," I said. "I promised him I would get him one."
 
 She laughed and said, "Oh it's alright. Everyone in Heiko deserves a cake, even saffas. Here!"
 
@@ -16,21 +12,19 @@ She tossed a roasted tor-nut handcake into the air and Laen caught it with his m
 
 "Could I bother you for another for myself?"
 
-"Just keep those pohua shipments coming in," she said, and handed me one of the same kind.
+"Just keep those pohua shipments coming in," she said, and handed me one of the same kind. I reached out to take it, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a better syrup than Idze."
 
-I reached out to take it, but she didn't let go.
+I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
-"I mean it," she said under her breath, "I need more. That last shipment you gave me was fantastic. It makes a better syrup than idze."
+Her smile returned, and she said, "Thank you, Liffa... Here, take two."
 
-I looked at her and smiled uncomfortably, slightly intimidated, "Y-yea... I'll... See what I can do."
-
-Her smile returned, and she said, "Thank you, Liffa... Next!"
-
-I took one bite and tasted the juicy sweetness. She wasn't wrong. They had gotten better than I remembered them being. But then a dark shadow came over my hand and swooped down to steal my cake.
+I took one bite and tasted the juicy sweetness. She wasn't wrong. They were better than I remembered them. But then a dark shadow came over my hand and swooped down to steal one of my cakes.
 
 "Laen! That was mine!" I yelled, and gave him a slap on the shoulder. He barely noticed through his chewing.
 
 "Once you're done, go back home ok?"
+
+<!-- left off -->
 
 He didn't respond, but I knew he'd heard me. I left him in at the corner, humming with his stolen cake and a handful of water from my canteen, and made my way to the platform.
 
