@@ -1,5 +1,7 @@
 ## Chapter 4
 
+<!-- left off -->
+
 The station was just filling up for the next train after the day's first nap. The warm and sweet aroma of freshly-baked handcakes caressed my nose and pulled me closer to Gilli's bakery at the far corner of the station. I figured that I'd earned something nice, so I turned to let my nose take me closer. But Laen had been waiting for his moment, and he bolted toward the bakery as soon as he saw me stop.
 
 "Laen!" I yelled at him. If I'm being honest, I wanted to get mine first.

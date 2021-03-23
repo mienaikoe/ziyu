@@ -30,41 +30,49 @@ I smiled, satisfied to have an unexpected moment of adventure with an old friend
 
 ---
 
-<!-- left off -->
+The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. All above us, the deep blue of the sky rose from Ulu like a giant wave from the ocean, and faded into the golden splendor of Ara. Trails of wispy clouds hung in the middle like the puffy fingers of a dark hand reaching for the crown of twilight.
 
-The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. The perfect ring shape of the crown of Palinan was splitting the sky in two. The white light of Ara and its golden splendor was to our right and Ulu, the darkness, was to our left. Wispy clouds hung high in the sky, reaching across the crown of twilight to enter into that dark abyss.
+I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse, which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little accidents in the firmament.
 
-I wondered what was happening to Ara. As a child, I learned that the observers had found that Palinan was orbiting Ara in a big ellipse, which gives us the bright and dim times. They also knew that there were other, much redder stars very far away. Exactly how far, they couldn't be certain, but they were much too far to reach in our lifetimes. Even with the fastest vehicles.
+At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small cooing of acknowledgement.
 
-I wondered if the stars could die like we did, or if they had always been there, like holes in the firmament.
+When I entered, an old man was already inside, standing by the doorway as if waiting for someone to come by. He turned to face us and as if seeing a friend for the first time I stared at his familiar face, piecing together what years we'd lost.
 
-At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small "oop" of acknowledgement.
+"Aey, lad," said Thimlu, "You forgot to clean the lenses. And what happened to finding Meln-... my stars." He gasped as he looked toward the maman beyond his apprentice. "Liffa... 's that you?" he asked.
 
-When I entered, an old man who seemed to know Jathi was already inside, standing by the doorway.
+"Thimlu," I said, trying to hold my joy to a sociable level. "It's been forever."
 
-"Aey, lad," he said, "You forgot to clean the lenses. And weren't you supposed to be looking for Melna?"
+"My it has," he said. "Your eyes... have you...?"
 
-"Yes, Thimlu. There's been a bit of a snag. Melna's already left."
+"Taken on the haze?" I asked. "No. I can still see just fine."
 
-"Well that's not good. 's not good at all."
+"Aey, Good. You do well 'n keep 'em that way. There's still an opening at the observatory for when I leave. You actually listened to me back then, unlike Jathi here. Couldn't teach him a damn thing until you left. If Kipnu didn't already have Melna's eye, I would have sent you two her way."
 
-"Have you reached any of the other observatories?"
+Jathi's cheeks went red, and he protested, "Thimlu! You can't say that."
 
-"The only other two are in Holrag. And they're both unresponsive. Kantha really should be picking up. He knows about this."
+"Bah. Observers are sworn to observe, and the two of you are plan as day." Thimlu shifted and started walking back into the office as Jathi and I nervously dodged glances. "Anyway, let's get down to business. Where's Melna?"
+
+Jathi responded eagerly. "There's been a bit of a snag. Melna's already left."
+
+"Well that's not good..." he responded coldly. "'s not good at all."
+
+"Were you able to reach any of the other observatories?" Jathi asked.
+
+"The only other two are in Holrag and Seroa. And they're both unresponsive. Kantha really should be picking up, he knows how important this is."
 
 "No worries," Jathi said with a chipper voice. "I'll try Melna's personal line."
 
-Jathi set himself at the phone desk and attempted to reach the court. There was no space for two people at the desk, so I stayed standing closer to the door. The ceiling was a towering, ordered nest of small rails to different homes within Heiko. There was a big rail, which I assume went to Shaki.
+Jathi set himself at the phone desk and set a note flat upon the table in front of him. There was no space for two at the desk, so I stood closer to the door. The ceiling was a towering, ordered nest of small metal rails to different homes within Heiko. In one corner was a rail far bigger than the rest, which I assumed went to Shaki.
 
-"Shaki Conduit, This is Heiko Conduit."
+He began. "Shaki Conduit, This is Heiko Conduit."
 
-Another caller delivered a message, but none from Shaki. He waited a tick and then repeated.
+A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick and then repeated.
 
 "Shaki Conduit, This is -"
 
 "Heiko, this is Shaki. Please remember to speak in your turn."
 
-"Shaki, we are requesting priority. This is an urgent call to the Senate."
+Jathi switched to his authoritative voice. "Shaki, we are requesting priority. This is an urgent call to the Senate."
 
 There was silence for a moment as all of the operators paused to listen in.
 
@@ -82,13 +90,7 @@ He paused and sighed.
 
 "Transferring you to Heiko Senate. Please wait a moment."
 
-I took the moment of silence to shift to a chair and sit down close to Jathi. He opened the message and flattened it on the table, memorizing the pronunciation of the more technical words. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
-
-Thimlu interrupted me, "I remember you from orbital. Couldn't teach Jathi a damn thing until you left. Why couldn't you two find a nice woman and settle down?"
-
-Jathi's cheeks went red, and he protested, "Thimlu! You can't say something lke that."
-
-"Bah. Observers are sworn to observe, and this one's pretty clear."
+I took the moment to move closer to the two of them at the desk. Jathi was busy reading over the paper again and reciting what he was going to say. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
 The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
 
@@ -96,7 +98,7 @@ The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Ass
 
 "Jathi? By Ara, don't you ever sleep? It's the middle of first nap."
 
-"What we've found at the observatory was too important."
+"We've found something at the observatory. It was too important for sleep."
 
 She sighed, "Well, I'm afraid you're too late. Melna is in assembly."
 
@@ -104,69 +106,73 @@ She sighed, "Well, I'm afraid you're too late. Melna is in assembly."
 
 "Who's to say? It could take the whole day."
 
-"This message is of utmost importance. It will affect today's deliberations. Is there any way you can tell her?"
+"This message is of utmost importance. It will surely be something she wants to bring to vote. Is there anyone else you can tell?"
 
-"It's unlawful to interrupt the assembly."
+"It's unlawful to interrupt the assembly," she responded in a defeated tone as if she'd tried this before.
 
-"Surely you can make an exception."
+"Surely you can make an exception for an urgent matter."
 
 "And I would surely be imprisoned for it."
 
-He sighed in frustration burying his eyes in his hand.
-
-"Pomri," he replied with pessimism. "You can't be serious. Even if there is a law against interrupting the assembly, a magistrate would look the other way at sentencing."
+He sighed in frustration burying his eyes in his hand. "Pomri," he replied with pessimism. "Even if there is a law against interrupting the assembly, a magistrate would surely look the other way at sentencing."
 
 "You ever been to Shaki?"
 
-He hesitated, "Well, no but –"
+He hesitated, "Why does that matter?"
 
-"– Something to learn before you come. Magistrates get off on being right even if they're wrong. Just wait until the assembly is done."
+"Then you wouldn't understand. The whole city would know about it before I could even say a word. A magistrate would never back down from something that public."
 
-"But... we can't wait the entire day."
+"Pomri, trust me. _This can't wait_."
 
-"Look, it sounds like this is really important. Why don't you come to Shaki and we can talk it over?"
+"Look, if you want this so bad, come to Shaki and tell her yourself. I'm not getting tossed into the ocean over a message."
 
 "You're asking me to come to the senate? What, so... so I can be the one to do it instead of you?"
 
-"I'm sorry I can't do more, kid. Laws here are really backward but at least we can grumble about 'em. Just think about it."
+"Sorry I can't do more, kid. The law is the law here, but at least we can grumble about it. Anyway, I won't stop you from doing whatever as long as you don't put Melna in hot water. Just remember, no matter what you choose you've got the law to reckon with."
 
-He sighed, "Yea. I'll consider it," he said.
+He sighed, "Yea. I'll think about that."
 
-"Thanks," she said, and the line went silent.
+"Oh," she interjected. "And if you do swing by bring me a cake from Gilli's, would ya?"
 
-I built some resolve and double checked that the microphone was off.
+He lifted his finger from the transmittance button and spoke to the static. "Really? A cake?"
 
-"I'll go," I said.
+I built some resolve and double checked that the microphone was off. "I'll go," I said.
 
-"What are you talking about?"
+Jathi shot me a glance. "What are you talking about?" he asked.
 
-"I'll interrupt the Senate"
+"I'll interrupt the Senate."
 
-"That's crazy. You heard Pomri. You'll be sent to Ulukoma."
+Thimlu chuckled, but Jathi was unamused.
 
-Thimlu butted in. "This is of utmost importance," he said with a smirk on his face. "A magistrate would surely look the other way at sentencing."
+"You heard Pomri," he said. "You'll be sent to Ulukoma."
 
-Jathi shouted back at him, "Whose side are you on here?!"
+Thimlu smirked at me and said, "You've got guts, I'll give you that. Magistrate's a coin toss. On one hand, they get off on the power trip when the evidence is so clear. On the other hand, they might be terrified of sending away the person who delivered a message like this."
 
-I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head. I rose from the desk and paced the floor across from him, pausing to admire the old wood floor that countless messengers before him had walked upon.
+Jathi shouted back at him, "No! A trip to Ulukoma could get hae killed. I can't risk that."
 
-I tried to convince him again, "I can't think of any better way to do it."
+I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head while I rose from the desk and paced the floor between the two of them, pausing to admire the old wood floor that had heard countless messages that changed the tides of time.
 
-"You are sacrificing too much. The bureaucracy behind the court is impossible."
+"I'll do it", he said.
 
-"It's a sacrifice I'm willing for Liffa to take," said Thimlu. He took the words right out of my mouth.
+"Like hell you will," Thimlu interjected. "We've got a lot of work to do. I'm not doing it all by myself."
 
-I explained my thoughts. "One of us has to do it. If this is as important as you say, then there will be a lot of chatter for the next few days. One of you has to keep the communication lines open amidst all that chaos, and one of you has to keep watching the sky for more data. Besides, I have some strings I can pull at the senate. I stand a much better chance."
+But Jathi kept up his argument, "It's our duty as observers to maintain communication with the fidelant. How can we ask Liffa to do our job for us?"
 
-Jathi seemed defeated but he looked up into my eyes and locked with my gaze.
+Thimlu hesitated, turning his head to me with a smirk on his face. I already knew my answer.
 
-"If this works, we'll all petition the magistrate for a lighter sentence."
+"Liffa... uh, would you like to–"
 
-"Don't worry about me," I told him. "Wherever they send me to, I can handle it."
+"–Yes!", I said too early. "I mean, uh, Yes. Please."
+
+Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it: _Heiko Observatory - Observer I_. "Take this with you to Shaki. Everyone knows me anyway. Welcome to the club."
+
+I smiled, and looked over to Jathi who seemed defeated. His eyes locked with mine and knew that I would not be moved. Not this time at least. "I'll make Pomri get you out of there even if I have to bring her a hundred cakes. I've got your back no matter what."
+
+"Don't worry about me," I told him, my hand reaching mindlessly for his. "Whatever they have planned, I can handle it."
 
 I gathered my bag onto my shoulders, and stood near the doorway as they looked on.
 
-"Gentlemen. I've an errand to run and then I'll be on my way to Shaki. Thank you for entrusting me with this mission. I won't let you down."
+"Fellow observers. I've an errand to run and then I'll be on my way to Shaki. Thank you for entrusting me with this mission. I won't let you down."
 
 "Good luck, Liffa," said Jathi, somberly.
 
@@ -174,7 +180,7 @@ I gathered my bag onto my shoulders, and stood near the doorway as they looked o
 
 ---
 
-"Aey? Kipnu?" I called as I entered the clinic. He chirped sleepily from a back room and I followed the call. I came to the doorway and watched him for a moment. His sleepy face always made me swoon no matter how silly it looked.
+"Aey? Kipnu?" I called as I entered the clinic. Laen poked his head through the doorway as well. With a sleepy lilt, Kipnu's voice called from a room at the far end of a hallway, and I followed it there, leaving Laen at the door. When I came to the opening, he was sprawled out on a cot, having fallen back asleep in mere moments. I watched him for a moment, letting my eyes remind me why I loved him.
 
 "Hey," I interrupted myself, "I'm sorry to wake you but I need to talk."
 
@@ -182,29 +188,29 @@ He shuffled around the cot, looking confused, then looked up at my shadow in the
 
 "Liffa, that you?"
 
-He pushed himself up and took a moment to wake up. Then he pulled a lightglass from his pocket and slid it onto the power rails above him. His sleepy eyes were still partially covered by his eyehaw.
+He pushed himself up and took a moment to wake, his sleepy eyes still partially covered by his eyehaw. I pulled a lightglass from a tabletop and slid it onto the rails above us.
 
-"You surprised me. What brings you here?"
+"You surprised me," he said. "What brings you here?"
 
-"I'm going on a trip to the capital."
+"I'm going on a short trip."
 
 "What? Why?" He asked, his eyes now completely open.
 
-"It's just something between Melna and me"
+"To the capital. Melna needs me for something."
 
 "You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
 
-"It's... a long story"
+"It's... a long story."
 
-"You mean you don't want to tell me"
+"You mean you don't want to tell me."
 
-I paused, dumbstruck and scrambling for words.
+I paused, scrambling for words.
 
-"You're keeping a secret. Tell me what's going on-"
+"Tell me what's going on-"
 
-I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be coming back home."
+I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be headed back home."
 
-I turned to walk out the door, but he grabbed my wrist to stop me. His eyes were pleading, worried.
+I turned to walk out the door, but he called for me again, and I couldn't help but stop. His eyes were pleading, worried.
 
 "We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
 
@@ -212,17 +218,17 @@ I turned to walk out the door, but he grabbed my wrist to stop me. His eyes were
 
 "I already am."
 
-I fought off his grip, and stood just outside the door, staring at the gaudy iron floor of his office.
+I stood just outside, staring at the gaudy patterned wood floor of his office while the weight of what I was about to do finally came to me.
 
-He pushed again, "If you won't tell me, then I'm going with you to find out myself."
+He pushed again, "If you won't tell me, then I'm going with you."
 
-"You couldn't - you have patients to see"
+"You have patients to see"
 
 "They can wait."
 
 "Kipnu-"
 
-_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then serve my time in Ulukoma and come back redeemed. Kipnu and Melna would understand. I would survive. But Kipnu? I would have to fend for both of us in a place like that. He doesn't know how to survive on the gifts of Palinan alone._
+_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then serve my time in Ulukoma and come back redeemed. I would survive. But if Kipnu came with me? I would have to fend for both of us in a place like that. He doesn't know how to survive on land alone._
 
 I lowered my voice and spoke resolutely. "If you go with me, it will be a long time before you come back."
 
@@ -232,10 +238,8 @@ I lowered my voice and spoke resolutely. "If you go with me, it will be a long t
 
 "Stop being cryptic. What are you planning, Liffa?"
 
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing.
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But this wasn't about me. This was about the whole of us.
 
-But his pain would have become me if I'd let him do this. The path forward was clear: he couldn't be involved.
-
-"Goodbye," I said.
+The path forward was clear. "Goodbye," I said with a faltering voice.
 
 I hopped onto Laen and didn't look back.
