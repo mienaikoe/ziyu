@@ -18,49 +18,43 @@ I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
 Her smile returned, and she said, "Thank you, Liffa... Here, take two."
 
-I took one bite and tasted the juicy sweetness. She wasn't wrong. They were better than I remembered them. But then a dark shadow came over my hand and swooped down to steal one of my cakes.
+I took one bite and tasted the juicy sweetness. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the half-eaten cake.
 
-"Laen! That was mine!" I yelled, and gave him a slap on the shoulder. He barely noticed through his chewing.
+"Laen! That was mine!" I yelled, and gave him a slap on the shoulder while I had my last one. He barely noticed through his chewing.
 
-"Once you're done, go back home ok?"
+I told him, "Once you're done, you go back home ok?" He was still eating, but I knew he'd heard me. I left him in at the corner, humming with his stolen cake and a handful of water from my canteen, and glanced back at him with an adoring eye before making my way to the platform.
 
-<!-- left off -->
+My feet found some rest with my back against a tree near the tracks. I'd oriented myself to hide from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities_. I thought about the crops I had just planted a few days ago. Whether Melna would ask Tiggu to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jathi said, then maybe those crops would become more important. Heiko would understand.
 
-He didn't respond, but I knew he'd heard me. I left him in at the corner, humming with his stolen cake and a handful of water from my canteen, and made my way to the platform.
+The station attendant's voice spread through the air as thi called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
 
-My feet found some rest squatting and leaning against a tree near the tracks, hiding from the wind and from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities. No liabilities_. I thought about the crops I had just planted. Whether Melna would ask Tiggu to work on them. Whether she would kill them out of spite, or replant them in her own field. If this is as important as Jathi said, then those crops don't matter in the scheme of things. Heiko would understand.
+I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman with a recent flow tattoo that was differentiating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I remembered when I'd gotten a flow tattoo when I was younger. Working in the constant light of Ara made the ink turn black, so it looked as if I had some weird genetic defect. My mother laughed when I told her, and recounted how thi had had the same results when thi was my age.
 
-The station attendant called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
+The train came rumbling in, its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan, Yansha, Shaki Harbor, Shaki Central." The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
 
-I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman with a recent flow tattoo mutating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I had gotten a flow tattoo once, but working in the constant light of Ara made my skin's water vessels flow too quickly, so it all mixed together and just looked like I had some weird genetic defect. My mother just laughed and told me about how thi had tried it too when thi was my age, and had the same results.
+"Excuse me," a voice behind me called. "Would you help me get in?"
 
-The train came rumbling in with its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan Ara, Rudjan Ulu, Yansha, Shaki Harbor, Shaki Central."
-
-The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
-
-"Excuse me, would you help me get in?"
-
-Behind me was a older man with a polished steel cane that he was leaning on heavily. He looked up to me with a smile that I had to return, and I leant my hand to him to climb the steps into the carriage.
+He was a older man with a polished steel cane that he was clearly making use of. Upon his face was a perfect smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
 
 "Thank you, my kaln," he said.
 
 I laughed, "I haven't been called a kaln in ages."
 
-"Oh, at my age, everyone is a youngling."
+"Oh, at my age, everyone's a youngling."
 
-_I suppose that's true._
+The seats were mostly empty but I took one across the carriage from the man - far enough to remain strangers - and put my bag down in the next seat. The light of Ara and the wind it brings had grown to its mid-day peak, but the thick curtains fastened tightly to the wall made them both much more pleasant. The man hadd trouble finding a good spot for his legs as the seats weren't exactly spacious enough for him, but he eventually settled on a position.
 
-The seats were mostly empty but I took one across the carriage from the man - far enough not to creep him out - and put my bag down in the next seat. The light of Ara and the wind it brings had grown to its mid-day peak, but the reinforced curtains made them both much more pleasant for a long ride. The man was finding a good spot for his legs as the seats weren't exactly spacious enough for an extended leg, but he eventually settled on a position.
+"In all my years of riding trains, I've yet to find a spacious seat for people of my condition."
 
-"In all my years of riding trains, they've never built at least one spacious seat for people of my condition."
-
-"Maybe none of them are living with your problem," I said.
+"None of the train builders know your difficulty," I said.
 
 "A sliver of empathy from them and an old man could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
 
-"Charming a young maman? At your age?"
+I was amused by his choice of words. "Charming a young maman?" I said "At your age?"
 
-"I'm often told that I say too much of what I mean. Some may consider it charming, I suppose."
+"I'm often told that I say too much of what I mean," he explained, "Some may consider it charming, I suppose."
+
+<!-- left off -->
 
 "Well, I believe that too many of my generation are afraid to speak, so I'm glad you're around to set us straight."
 
