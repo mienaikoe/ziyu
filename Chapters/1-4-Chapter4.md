@@ -34,47 +34,45 @@ The train came rumbling in, its engines and brakes humming with electrical blood
 
 "Excuse me," a voice behind me called. "Would you help me get in?"
 
-He was a older man with a polished steel cane that he was clearly making use of. Upon his face was a perfect smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
+He was a older man with a polished steel cane in his right hand that he was clearly making use of. Upon his face was a perfect Holragi smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
 
-"Thank you, my kaln," he said.
+"Thank you, my kaln," he said. I had grown accustomed to condescension, being a maman that I was, but the endearment in his voice surprised me. It was as if he'd called me a child as a compliment.
 
-I laughed, "I haven't been called a kaln in ages."
+"I haven't been a kaln in ages," I told him.
 
-"Oh, at my age, everyone's a youngling."
+"Oh, I meant no offense," he explained. "At my age everyone's a youngling; boys, girls, and kalns alike." It was a wholly unsatisfying answer, but I gave him the benefit of the doubt.
 
-The seats were mostly empty but I took one across the carriage from the man - far enough to remain strangers - and put my bag down in the next seat. The light of Ara and the wind it brings had grown to its mid-day peak, but the thick curtains fastened tightly to the wall made them both much more pleasant. The man hadd trouble finding a good spot for his legs as the seats weren't exactly spacious enough for him, but he eventually settled on a position.
+The seats were mostly empty but I took one across the carriage from the man; far enough to remain strangers, close enough to become friends. The light of Ara and the wind that it brings had grown to its mid-day peak, but the thick curtains fastened tightly to the wall made them both much more pleasant. The man had trouble finding a good spot for his right leg which seemed to lack the ability to bend, but eventually he settled on a position.
 
 "In all my years of riding trains, I've yet to find a spacious seat for people of my condition."
 
-"None of the train builders know your difficulty," I said.
+"Perhaps the train builders don't know of your difficulty," I said.
 
-"A sliver of empathy from them and an old man could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
+"There are many of us in the world. A sliver of empathy and an old man like me could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
 
-I was amused by his choice of words. "Charming a young maman?" I said "At your age?"
+I was amused by his choice of words. "Charming a young maman? At your age?"
 
 "I'm often told that I say too much of what I mean," he explained, "Some may consider it charming, I suppose."
 
-<!-- left off -->
-
-"Well, I believe that too many of my generation are afraid to speak, so I'm glad you're around to set us straight."
+"Too many of my generation are afraid to speak their minds," I said. "Perhaps they could learn something from you."
 
 He chortled, "Charming an old man. At your age?"
 
-I laughed. It was loud and it was awkward, but I knew he wouldn't mind.
+I laughed. It was loud and it was awkward, but I knew a man like him wouldn't mind.
 
-He began again, "so what's taking you to the capital?"
+He began again, "so what brings you to the capital?" I froze a bit, surprised that he could guess where I was going.
 
-I froze a bit, stuttering, but said "My jundwoman works there. Just bringing her something."
+"My jundwoman works there," I stuttered. "Just bringing her something."
 
 "Ahh. Surprising your jundwoman. I bet she'll be excited," he said.
 
-"Heh. Yea. I hope she receives it well."
+"Heh. Yea... I hope she receives it well."
 
-"A good jundwoman would be happy that you thought to brighten her day like that."
+"A good jundwoman would be happy that you thought to brighten her day," he said.
 
-"Well we haven't been too happy with each other lately, so I hope you're right."
+"We haven't been too happy with each other lately, so I hope you're right."
 
-"Yes, that will happen from time to time. I still remember once, my spouses and I were fighting about a color for our daughter's first sleeping rug. We never even asked her what she wanted; we were too obsessed with winning the fight. For weeks, It was like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
+"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, my spouses and I were fighting about a color for our daughter's first sleeping rug. We never even asked her what she wanted; we were too obsessed with winning the fight. For weeks, It was like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
 
 "... what?" I asked. "One day, what?"
 
@@ -82,19 +80,17 @@ I froze a bit, stuttering, but said "My jundwoman works there. Just bringing her
 
 "Did you ever have a fight that didn't stop?"
 
-He paused and looked at me as if he had seen a younger version of himself in me.
-
-"...Perhaps we should stop now."
+He paused and looked at me as if he had seen a younger version of himself in me. "...Perhaps we should stop now."
 
 "I don't mean to pry. It's just... if you have any advice, it would be greatly appreciated."
 
-"Can't you ask your parents for advice? I don't like to get into family squabbles like this."
+"Perhaps your parents would give better advice than I can," he said.
 
 "My mother died right before I got married. My father and nather... were never really present." I said. I hoped that opening up to him would make him do the same.
 
-"Oh no. That's terrible..." He said, visibly uncomfortable. "Well you did a splendid job raising yourself. Must be those child-rearing instincts you maman have that got you through it."
+"Oh, that's terrible..." He said, visibly uncomfortable. "Well you did a splendid job raising yourself. Must be those child-rearing instincts you maman have that got you through it."
 
-"They aren't instincts. We learn them just like any other skill."
+"They aren't instincts," I explained. "We learn them just like any other skill."
 
 "Oh but you're all so good at it."
 
@@ -103,6 +99,8 @@ He paused and looked at me as if he had seen a younger version of himself in me.
 He sighed, "We all have a place in society."
 
 I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at the bright void of Ara. Like a switch, we returned to being strangers on the train.
+
+<!-- left off -->
 
 ---
 
