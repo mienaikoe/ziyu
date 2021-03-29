@@ -98,13 +98,13 @@ He paused and looked at me as if he had seen a younger version of himself in me.
 
 He sighed, "We all have a place in society."
 
-I turned forward and stopped talking before I said something I would regret. He returned his head back to the curtain, staring between stitches at the bright void of Ara. Like a switch, we returned to being strangers on the train.
-
-<!-- left off -->
+I felt the heat of anger and anxiety come onto me again, as it had with Tiggu. And like a switch, I turned my eyes toward the curtain, staring between stitches at the bright void of Ara. As if on a cue, we'd returned to being strangers on the train.
 
 ---
 
-"Shaki Harbor! Approaching Shaki Harbor!" The conductor barreled in and blurted into the car. I pulled over both of my eyelids and rejoined reality.
+"Shaki Harbor! Approaching Shaki Harbor!" The conductor had come through our car and was repeating the next stop down the aisle. The suddenness of his voice roused me from my belated midday nap, and I pulled my eyelids to rejoin reality.
+
+<!-- left off -->
 
 "Shaki Harbor! Approaching Sha-," He repeated to the next car as the door closed behind him. _Shaki Harbor? I must have been out for a while._ I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. _All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon._ I shuddered thinking about what Palinan might feel like if that happened.
 
