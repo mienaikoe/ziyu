@@ -92,7 +92,9 @@ He paused and sighed.
 
 I took the moment to move closer to the two of them at the desk. Jathi was busy reading over the paper again and reciting what he was going to say. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-The line opened and an unenthused maman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
+Thimlu had seen me eyeing the paper and held me back from getting closer. "It would take far too long to explain," he said. "It's best if you didn't read it."
+
+The line opened and an unenthused woman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
 
 "Pomri, I have an urgent message for Melna."
 
@@ -124,13 +126,13 @@ He hesitated, "Why does that matter?"
 
 "Pomri, trust me. _This can't wait_."
 
-"Look, if you want this so bad, come to Shaki and tell her yourself. I'm not getting tossed into the ocean over a message."
+"Look, if you want this so bad, come to Shaki and tell her yourself. I'm not getting tossed in the ocean over a message."
 
 "You're asking me to come to the senate? What, so... so I can be the one to do it instead of you?"
 
-"Sorry I can't do more, kid. The law is the law here, but at least we can grumble about it. Anyway, I won't stop you from doing whatever as long as you don't put Melna in hot water. Just remember, no matter what you choose you've got the law to reckon with."
+"Sorry I can't do more, kid. The law is everything here, but at least we can grumble about it. Anyway, I won't stop you from doing whatever as long as you don't put Melna in hot water."
 
-He sighed, "Yea. I'll think about that."
+He sighed, "Yea. I'll think about it."
 
 "Oh," she interjected. "And if you do swing by bring me a cake from Gilli's, would ya?"
 
@@ -140,27 +142,23 @@ I built some resolve and double checked that the microphone was off. "I'll go," 
 
 Jathi shot me a glance. "What are you talking about?" he asked.
 
-"I'll interrupt the Senate."
+"I'll interrupt the Senate," I said. Thimlu chuckled, but Jathi was unamused.
 
-Thimlu chuckled, but Jathi was unamused.
+"You heard Pomri," said Jathi. "You'll be sent to Ulukoma."
 
-"You heard Pomri," he said. "You'll be sent to Ulukoma."
+Thimlu smirked at me and said, "You've got guts, I'll give you that. Magistrate's a coin toss. On one hand, they get off on sending people to Ulukoma. On the other hand, they might be terrified of sending away the person who delivered a message like this."
 
-Thimlu smirked at me and said, "You've got guts, I'll give you that. Magistrate's a coin toss. On one hand, they get off on the power trip when the evidence is so clear. On the other hand, they might be terrified of sending away the person who delivered a message like this."
+Jathi shouted back at him, "No! Ulukoma could get hae killed. I can't risk that." I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head while I rose from the desk and paced the floor between the two of them, pausing to admire the old wood floor that had heard countless messages of great significance in the ever-changing tides of time.
 
-Jathi shouted back at him, "No! A trip to Ulukoma could get hae killed. I can't risk that."
+Jathi stood up and spoke in a stoic tone. "I'll do it", he said.
 
-I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head while I rose from the desk and paced the floor between the two of them, pausing to admire the old wood floor that had heard countless messages that changed the tides of time.
+"Like hell you will," Thimlu interjected. "We've got a lot of work to do."
 
-"I'll do it", he said.
+But Jathi kept up his argument, "It's unfair to ask Liffa to do our job for us. Keeping an open line with fidelant is _our_ duty is observers."
 
-"Like hell you will," Thimlu interjected. "We've got a lot of work to do. I'm not doing it all by myself."
+Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... what if I told you there was an opening in–."
 
-But Jathi kept up his argument, "It's unfair to ask Liffa to do our job for us. This is _our_ duty is observers."
-
-Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... would you like to–"
-
-"–Yes!", I said too early. "I mean, uh, Yes, I would love to. Please."
+"–Yes!", I said too early. "I mean, uh... If it would please the observers."
 
 Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it: _Heiko Observatory - Observer I_. "Welcome to the club."
 
@@ -170,7 +168,9 @@ Jathi stood behind the table and seemed defeated. His eyes locked with mine and 
 
 "Don't worry about me," I told him, my hand reaching mindlessly for his. "Whatever they have planned, I can handle it."
 
-I gathered my bag onto my shoulders, and stood near the doorway as they looked on.
+I gathered my bag onto my shoulders, and stood near the doorway as they approached me to bid me farewell. Thimlu held the message in his hand and put it in mine, saying "Remember what we talked about. This message is for Melna and Melna alone."
+
+I nodded to him respectfully, but I knew what power my insatiable curiosity had over me, and I could not promise him that I wouldn't.
 
 "Fellow observers. I've an errand to run and then I'll be on my way to Shaki. Thank you for entrusting me with this mission. I won't let you down."
 
