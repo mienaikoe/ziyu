@@ -102,26 +102,31 @@ The heat of anger and anxiety came to me again, as it had with Tiggu. I turned m
 
 ---
 
-"Shaki Harbor! Approaching Shaki Harbor!" The conductor had come through our car and was repeating the next stop down the aisle. The suddenness of his voice roused me from my belated midday nap, and I pulled my eyelids to rejoin reality.
+"Shaki Harbor! Approaching Shaki Harbor!" The conductor had come through our car and was repeating the next stop down the aisle. The suddenness of his voice roused me from my belated midday nap, and I pulled my eyelids open to rejoin reality. _Shaki Harbor? I must have been out for a while._
 
-<!-- left off -->
+I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen through which an earthen-smelling air was flowing from a dark, infrared landscape. I could make out some short trees and dugout homes amongst the semi-arid hills ambling in the distance, but there were no rolling fields of grain or lush orchards as there were in Heiko. How could Melna feel so comfortable in such a different place?
 
-"Shaki Harbor! Approaching Sha-," He repeated to the next car as the door closed behind him. _Shaki Harbor? I must have been out for a while._ I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen that blasted an earthen air from a dark, infrared landscape. I could make out some trees amongst the semi-arid hills and houses ambling in the distance. _All of this place. The trees, the animals, the people. Everywhere I've ever been could freeze over in a dim light because of some change in the white dot on the horizon._ I shuddered thinking about what Palinan might feel like if that happened.
+The train slowed to a stop and opened its doors, but again only a few people boarded. The cake had not sustained me, and I began to crave for a real meal. _Perhaps I ought to treat myself to something nice in the capital before I get banished... No... I don't have time for that._
 
-The train slowed to a stop and opened its doors, but again only a few people boarded. The roll had not sustained me, and I was really craving a real meal. _Perhaps I ought to treat myself to something nice in the capital before I get banished to the wilderness... No... I don't have time for that._
-
-I took out the letter to review it and think about how I might deliver it. The letter was marred with creases from all the travel, but luckily the fibers and the ink held up. I saw the dots and the circle again, but now I could make out the sentences.
+I looked over at the bag by my side and saw a corner of the paper message peeking out. Could such a small thing really change so much? My fingers paused on its edges, hesitating, remembering that Thimlu gave me this message under the confidence that I would not read it. _But I am an observer, the same as them. I should know the same as them._ The letter was marred with creases from all my roaming about, but luckily the fibers and the ink held strong. I saw the dots and the circle I had seen before, but now I could make out the sentences.
 
 ```
 Obscura Observation
 Melna,
 
-I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 days of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction made up of smaller objects. For brevity, we will call this collection "the obscura". It is difficult to estimate the size of each object, but they seem to span the entire view we have of Ara. Upon closer observation, we conclude that they are unlikely to be caused by a natural phenomenon as the obstructions seem to be growing in number and are moving in tandem so to be evenly-spaced.
+I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 days of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction. For brevity, we will call this obstruction "the obscura". It's difficult to estimate what the obscura made of, but it seems to span the entire view we have of Ara. Upon closer observation, we conclude that it's unlikely to be caused by a natural phenomenon as the cloud seems to be growing in density and is roughly homogenous.
 
-If left alone, we calculate that the obscura will cause colder temperatures, weaker winds, and decreased precipitation, which will lead to most seasonal crops to become dormant in six days. In ten days, the temperatures and incident light will be low enough to freeze and kill all known crops. We advise immediate action to clear the obstruction. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
+If left alone, the obscura will likely cause colder temperatures, weaker winds, and decreased precipitation. We have some rough estimates for what that will mean to our food supply based on prior cold eras, but this will be unlike any cold era we've ever had.
+- 7 days: Fish along the coastlines will migrate to the Bay of Dala'a
+- 10 days: Grain fields and orchards will go dormant
+- 15 days: All crops within Heiko's fertile ring will freeze and die off
 
-- Jathi
+We advise immediate action to clear the obstruction by any means necessary. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
+
+- Thimlu
 ```
+
+<!-- left off -->
 
 "What is this??" I murmured out loud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting wet and cold in anxiety. _Kipnu... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all of Palinan and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
 

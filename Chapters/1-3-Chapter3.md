@@ -160,9 +160,13 @@ Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... wha
 
 "–Yes!", I said too early. "I mean, uh... If it would please the observers."
 
-Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it: _Heiko Observatory - Observer I_. "Welcome to the club."
+Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it
 
-I smiled, taking the disc from his hand and moving my fingers across its surface. I'd longed for this moment for such a long time. It was far from the formal ceremonious event than I'd imagined, but I didn't mind. My aim was not for vanity.
+"Heiko Observatory - Liffa um Heiko," I said aloud. "You've kept this with you for so long."
+
+"I've been waiting for the right moment. And well, this one's about as close as we'll get. Welcome to the club," he said.
+
+I was giddy, taking the disc from his hand and moving my fingers across its surface. I'd longed for this moment for such a long time. It was far from the formal ceremonious event than I'd imagined, but I didn't mind. My aim was not for vanity.
 
 Jathi stood behind the table and seemed defeated. His eyes locked with mine and knew that I would not be moved. "I'll make Pomri get you out of there even if I have to bring her a hundred cakes. I've got your back no matter what."
 
