@@ -114,7 +114,9 @@ I looked over at the bag by my side and saw a corner of the paper message peekin
 Obscura Observation
 Melna,
 
-I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 days of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction. For brevity, we will call this obstruction "the obscura". It's difficult to estimate what the obscura made of, but it seems to span the entire view we have of Ara. Upon closer observation, we conclude that it's unlikely to be caused by a natural phenomenon as the cloud seems to be growing in density and is roughly homogenous.
+I am following up on our conversations about colder temperatures in Heiko and other western sectors. After 20 days of observation of Ara, we have measured no measured reduction in stellar activity and no change in stellar size. However, we did detect a decrease in incident light. This is likely caused by a large diffuse obstruction. For brevity, we will call this obstruction "the obscura".
+
+It's difficult to identify the cause, but it's unlikely to be a natural phenomenon as the cloud is roughly homogenous and is growing linearly. As for size, we've concluded that the obscura is following our orbital period in the lagrange point, as a spherical or toroidal cloud would quickly collapse without constant adjustment. It's anybody's guess what this thing is, but personally, I think it's a weapon.
 
 If left alone, the obscura will likely cause colder temperatures, weaker winds, and decreased precipitation. We have some rough estimates for what that will mean to our food supply based on prior cold eras, but this will be unlike any cold era we've ever had.
 - 7 days: Fish along the coastlines will migrate to the Bay of Dala'a
