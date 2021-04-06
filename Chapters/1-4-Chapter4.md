@@ -128,13 +128,14 @@ We advise immediate action to clear the obstruction by any means necessary. We w
 - Thimlu
 ```
 
-<!-- left off -->
-
-"What is this??" I murmured out loud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting wet and cold in anxiety. _Kipnu... Melna... what will happen to them? Our home. The garden... And how will the senate receive this? They would dismiss me as a lunatic if I interrupt them for something this outlandish. If I get sent to Ulukoma, while they prepare for the cold, what will I come back to?_ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _I must deliver this message. I can think about the future later. For now, I'm doing the right thing for all of Palinan and that's all I need._ I folded up the letter and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu.
+"What is this??" I whispered aloud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting cold with anxiety. _The farm. Our home... what happens now? And how will the senate receive this from a no-name farmer like me? They would dismiss me as a lunatic if I interrupt them for something this outlandish. Ulukoma would be a death sentence if it got any colder._ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _Now I know why Thimlu was guarding this secret_. I folded up the letter in one nervous motion and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu. _I must deliver this message as soon as possible. My worries can wait until later; I'm doing the right thing for all of Palinan and that's all I need._
 
 "You look like you've seen something you'd rather not have," said the man, startling me.
 
-I shot my eyes toward his, gray, washed-out.
+I shot my eyes toward his, gray, washed-out facade and narrowed my eyes in anticipation of some judgment.
+
+<!-- left off -->
+<!-- don't make him in-the-know -->
 
 "Pardon?" I jabbed. I was at the edge of my day's limit for politeness.
 
@@ -198,7 +199,7 @@ He had my entire plan figured out. How?
 
 "That's politics."
 
-I was silently furious at how unjust the Senate could be, but took it as a lesson on how not to argue with the fidelants.
+I was silently furious at how unjust the Senate could be and took it as a lesson on how not to argue with the fidelants.
 
 Fajro began again, "So the next hurdle you will face is that the mediator will try to shut you up. That microphone can be surprisingly loud."
 
