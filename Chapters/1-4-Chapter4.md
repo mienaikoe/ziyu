@@ -130,38 +130,35 @@ We advise immediate action to clear the obstruction by any means necessary. We w
 
 "What is this??" I whispered aloud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting cold with anxiety. _The farm. Our home... what happens now? And how will the senate receive this from a no-name farmer like me? They would dismiss me as a lunatic if I interrupt them for something this outlandish. Ulukoma would be a death sentence if it got any colder._ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _Now I know why Thimlu was guarding this secret_. I folded up the letter in one nervous motion and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu. _I must deliver this message as soon as possible. My worries can wait until later; I'm doing the right thing for all of Palinan and that's all I need._
 
-"You look like you've seen something you'd rather not have," said the man, startling me.
-
-I shot my eyes toward his, gray, washed-out facade and narrowed my eyes in anticipation of some judgment.
+"You look like you've seen something you'd rather not have," said the man, startling me. I shot my eyes toward his, gray, washed-out facade and narrowed my eyes in anticipation of some judgment.
 
 <!-- left off -->
-<!-- don't make him in-the-know -->
 
-"Pardon?" I jabbed. I was at the edge of my day's limit for politeness.
+"Mind your eyes," I scoffed. "My personal matters aren't for your entertainment." I was well at the edge of my politeness for the day.
 
-He chuckled, "Kipnu told me you were just like Melna. You're far worse."
+"You ought to mind your tongue," he replied while looking away, with a grin that lavished in seeing anger.
 
-"Do you have something to say to me?"
+"Do you have something to say?" I asked pointedly.
 
-"He also told me what you're trying to do. I must say, I was a bit annoyed when I had to reschedule my appointment with him."
+But he didn't seem bothered by my tone. "My name is Fajro," he introduced himself. "I used to be a fidelant for Holragi back when your fidelant, Melna, was just getting started at the world senate. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
 
-_Damn it, Kipnu._
+"You haven't answered my question," I jabbed.
 
-I snapped back, "And you intend to stop me with that leg of yours?"
+"Patience, kaln," he retorted gently. "We have a whole train ride to talk." He adjusted his posture to face me a bit better and started again. "I heard you whisper her name as you read that paper of yours and then go absolutely cold after you read it. It's fairly obvious to a keen eye like mine that you're trying to deliver a message to the senate: a message so important that you're willing to risk the frozen island to deliver it."
 
-"Oh, on the contrary. I intend to help you."
+My frustration turned to myself as I wondered how much else of the message had been accidentally spoken. But I re-centered myself to get out of this line of questioning. "Like I said, my business is–"
 
-"Help me? Why?"
+"–Not going so well, I take it by the look on your face." He was persistent in his speech.
 
-"My name is Fajro. I used to be a senior Holragi fidelant at the senate back when your bundwoman, Melna, was just getting started there. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
+"Like I said, my business is not yours to scrutinize."
 
-I didn't appreciate his tone.
+"Ah but it is," He said. "You see, Melna and I were close friends back when we were fidelants. I'd love nothing more than to help you deliver this important message in a way that doesn't look badly on her."
 
-"You haven't answered my question."
+I paused to consider his proposition. On one hand, his demeanor made my skin crawl. But on the other, I could really use help from someone who knew the ins and outs of the senate. But I had to know his angle first. "Why would you help me?" I asked.
 
-"Patience, kaln, I'm getting there," he retorted gently and adjusted his seat. "Let's just say I owe her a favor long past due, and I consider this gesture a part of the repayment. Whatever was on that paper of yours, it must be important enough that you're willing to risk the frozen badlands for it."
+He smile and said, "Let's just say I owe her a favor long past due."
 
-"I assure you it is."
+<!-- left off -->
 
 "Good. You wouldn't dare waste my time traveling in this uncomfortable train for nothing."
 
