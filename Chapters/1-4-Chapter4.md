@@ -200,4 +200,4 @@ The conductor barreled into the car and yelled, "Shaki Central! Last stop, every
 
 Fajro looked to me with a smirk and asked, "Would you help an old man?"
 
-I held out my arm and together we entered the vast city of Shaki.
+I held out my arm and together we ventured into the vast city of Shaki.
