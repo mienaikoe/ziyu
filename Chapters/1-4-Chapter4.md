@@ -10,17 +10,17 @@ She laughed and said, "Oh it's alright. Everyone in Heiko deserves a cake, even 
 
 She tossed a roasted tor-nut handcake into the air and Laen caught it with his mouth with impeccable precision.
 
-"Could I bother you for another for myself?"
+"Could I bother you for a couple more for myself and a friend?"
 
-"Just keep those pohua shipments coming in," she said, and handed me one of the same kind. I reached out to take it, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a better syrup than Idze."
+"Just keep those pohua shipments coming in," she said, and handed me two of the same kind. I reached out to take them, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a far superior syrup than idze."
 
 I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
-Her smile returned, and she said, "Thank you, Liffa... Here, take a couple more."
+Her smile returned, and she said, "Thank you, Liffa... Here, take another!"
 
-I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of Pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the half-eaten cake.
+I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of Pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the barely-eaten cake.
 
-"Laen! That was mine!" I yelled, and gave him a slap on the shoulder and turned away from him to hide my last one from him. He barely noticed through his chewing.
+"Laen! That was mine!" I yelled. I gave him a slap on the shoulder and turned away from him to hide my last one. He barely noticed through the chewing.
 
 "Once you're done," I told him through my last two bites, "you go back home ok?" He was still licking his lips, but I knew he'd heard me. I left him humming with satisfaction at the corner, glancing back with an adoring eye before rounding the corner into the train station.
 
@@ -32,7 +32,7 @@ I quickly picked up my bag and jumped the wall to the marshalling side. The atte
 
 The train came rumbling in, its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan, Yansha, Shaki Harbor, Shaki Central." The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
 
-"Excuse me," a voice behind me called. "Would you help me get in?"
+"Excuse me," a voice behind me called. "Would you help an old man?"
 
 He was a older man with a polished steel cane in his right hand that he was clearly making use of. Upon his face was a perfect Holragi smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
 
@@ -138,88 +138,66 @@ We advise immediate action to clear the obstruction by any means necessary. We w
 
 "You ought to mind your tongue," he replied while looking away, with a grin that lavished in seeing anger.
 
-"Do you have something to say?" I asked pointedly.
+"Do you have something to say?" I asked pointedly, but he didn't seem bothered by my tone.
 
-But he didn't seem bothered by my tone. "My name is Fajro," he introduced himself. "I used to be a fidelant for Holragi back when your fidelant, Melna, was just getting started at the world senate. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
+"My name is Fajro," he introduced himself. "I used to be a fidelant for Holragi back when your fidelant, Melna, was just getting started at the world senate. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
 
 "You haven't answered my question," I jabbed.
 
-"Patience, kaln," he retorted gently. "We have a whole train ride to talk." He adjusted his posture to face me a bit better and started again. "I heard you whisper her name as you read that paper of yours and then go absolutely cold after you read it. It's fairly obvious to a keen eye like mine that you're trying to deliver a message to the senate: a message so important that you're willing to risk the frozen island to deliver it."
+"Patience, kaln," he retorted gently. "We have a whole train ride to talk." He adjusted his posture to face me a bit better and started again. "I heard you whisper her name as you read that paper of yours and then you went absolutely cold. It's fairly obvious to a keen eye like mine that you're trying to deliver a message to the senate: a message so important that you're willing to risk the island of darkness to deliver it."
 
-My frustration turned to myself as I wondered how much else of the message had been accidentally spoken. But I re-centered myself to get out of this line of questioning. "Like I said, my business is–"
+My frustration turned to myself as I wondered how much else of the message had been accidentally spoken. But I re-centered my mind and affirmed my duty as an observer. "My business is not–"
 
-"–Not going so well, I take it by the look on your face." He was persistent in his speech.
+"–not going so well, I take it by the look on your face." He was persistent in his speech.
 
-"Like I said, my business is not yours to scrutinize."
+I continued more forcefully than before, "As I was saying, my business is not yours to scrutinize."
 
 "Ah but it is," He said. "You see, Melna and I were close friends back when we were fidelants. I'd love nothing more than to help you deliver this important message in a way that doesn't look badly on her."
 
-I paused to consider his proposition. On one hand, his demeanor made my skin crawl. But on the other, I could really use help from someone who knew the ins and outs of the senate. But I had to know his angle first. "Why would you help me?" I asked.
+I paused to consider his proposition. An ex-fidelant who knew the ins and outs of the senate would make this a lot easier. He could vouch for me, and maybe I would face a lesser sentence. But his constant smiling and insistent bigotry made my skin crawl. I had to know his angle. "Why would you help me?" I asked.
 
-He smile and said, "Let's just say I owe her a favor long past due."
+He smiled and said, "Let's just say I owe her a favor long past due."
 
-<!-- left off -->
+With a long pause, I scrutinized his every detail for some hint of deception, but his entire demeanor was a wall without openings, and I an unskilled climber. I knew I had something he wanted, and so I made him a deal.
 
-"Good. You wouldn't dare waste my time traveling in this uncomfortable train for nothing."
+"I have one condition," I said.
 
-"I wouldn't dare," I said in a tone so enrobed in sweetness that I had nearly forgotten the pit in my stomach where cake was supposed to be.
+"Oh? And what's that?" he asked.
 
-"So, let's get down to details. I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. I'm not getting wrapped up in this."
+"Make sure I don't go to Ulukoma."
 
-"Wait, wait. I never said I was barging into the senate?"
+He smiled again, thinking for a pause, and said, "You have my word."
 
-"Why else would you be traveling there alone?"
+I was surprised at how quickly he agreed, but it was too late to ask for more. We were now bound to the same goal.
 
-He had my entire plan figured out. How?
+"We have a deal then," I said in a tone so enrobed in sweetness that I had nearly forgotten the pit in my stomach two cakes were supposed to be.
 
-"You would be a tremendous help in vouching for me."
+"So, let's get down to details," he said. "I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. Otherwise, I won't be able to bargain with the magistrate."
 
-"Ah... but I really wouldn't"
+"But I need you to help me find my way," I said. "You were a fidelant, you know your way around there like a second home."
 
-"But you were a fidelant."
+"I was... But I didn't leave on the best of terms."
 
-"I was..." he said . "I didn't exactly leave on the best terms."
+"What do you mean?" I asked him.
 
-"What do you mean?"
+"There were some fidelants that I didn't exactly see eye-to-eye with," he explained. "And we would often resort to...vulgarities to express our disdain for each other."
 
-"There were some fidelants that I didn't exactly see eye-to-eye with. And we would often resort to...vulgarities to express our disdain for each other."
+"So?" I said. "People shout at each other all the time."
 
-"So? People shout at each other all the time."
-
-"Has Melna never told you what the Senate's laws are like? They were written by religious fanatics after Lanre the philosopher died. Any sort of shouting or vulgarity is considered a 'corruption of consciousness' and isn't tolerated. Needless to say, they had to let me go."
+He was surprised. "Have you never heard of the Senate laws? They were written by a bunch of religious fanatics after Lanre the Philosopher died. Any sort of shouting or vulgarity is considered a 'corruption' of the Senate. So, I was forced to resign."
 
 "Why you and not the others?"
 
-"The tribes of Holrag were insignificant members of the unification treaty. The city-states of the east.. well they played a bigger role."
+"The tribes of Holrag are considered insignificant members of the Senate," he said. "The city-states of the east, well, they play a bigger role in society according to the unification treaty."
 
 "That's ridiculous."
 
 "That's politics."
 
-I was silently furious at how unjust the Senate could be and took it as a lesson on how not to argue with the fidelants.
+I was silently furious at how unjust the Senate could be, and wondered how I could possibly be spared from the same law that forced a fidelant to retire. I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to speak to the senate. But my wishful thinking all felt unnatural, forced. She didn't trust me. I was a just some farmer she fell in love with once. One day, she would understand.
 
-Fajro began again, "So the next hurdle you will face is that the mediator will try to shut you up. That microphone can be surprisingly loud."
+The conductor barreled into the car and yelled, "Shaki Central! Last stop, everyone off!"
 
-"I'll just talk louder."
+Fajro looked to me with a smirk and asked, "Would you help an old man?"
 
-He chuckled at my idea, "Well, there's another way. You can use someone else's microphone."
-
-"That sounds...difficult."
-
-"Ordinarily, yes. But you have someone on your side already in there."
-
-_Melna_. "No...I couldn't. I would tarnish her reputation forever."
-
-"How important is this discovery?"
-
-I thought about how Melna might react. She would be furious no matter what I did. Her reputation in the senate would be forever tied to me, but if the observers are right, then we would be remembered in a positive light.
-
-He continued, "A normal person would have difficulties at every turn doing what you want to do. But you... you have us."
-
-I stared at the thatched seat in front of me. I imagined Melna there, comforting me, inviting me to speak to the senate. It all felt unnatural, forced. She didn't trust me. I was a just some farmer she fell in love with once.
-
-One day, she would understand.
-
-The Conductor called out "Shaki Central! Last stop, everyone off!"
-
-"Would you help a cripple?" He asked me with a smirk. I smiled back and held out my arm.
+I held out my arm and together we entered the vast city of Shaki.
