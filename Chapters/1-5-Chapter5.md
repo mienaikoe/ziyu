@@ -1,6 +1,6 @@
 ## Chapter 5
 
-The city was carved from the body of an old mountain, curled upward as if the land itself was an ocean wave. Massive veins of white marble meandered between gray, banded rock, and striped through the roads and walls like an unmoving spectre casting shadows through time. Every building faced proudly toward Ara, carefully reflecting every glint of orange and red and infrared. High upon the mountain within the largest vein of marble sat the senate, with its crown, a the gilded halo of the Palinian circle. I imagined being one of the people that carved out their piece of the mountain to call home. _It must have taken ages_.
+The city was carved from the body of an old mountain, with massive veins of white marble meandering between the gray, banded rock. Every path and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest was the Senate carved from the largest vein of marble and marked by a glimmering brass crown: the circle of Palinan, a symbol of the land that all people called home. I imagined being one of the settlers here, washing and chipping away at a small piece of rock to call home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
 
 "Been a while, has it?" Fajro said once we got off.
 

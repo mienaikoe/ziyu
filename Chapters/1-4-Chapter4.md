@@ -194,7 +194,7 @@ He was surprised. "Have you never heard of the Senate laws? They were written by
 
 "That's politics."
 
-I was silently furious at how unjust the Senate could be, and wondered how I could possibly be spared from the same law that forced a fidelant to retire. I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to speak to the senate. But my wishful thinking all felt unnatural, forced. She didn't trust me. I was just some farmer she fell in love with once. One day, she would understand.
+A silent fury had welled up inside of me, frustrated at how unjust the Senate could be, and I wondered how I could possibly be spared from the same law that had forced a fidelant to retire. I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to speak to the senate. But my wishful thinking all felt unnatural, forced. She didn't trust me. I was just some farmer she fell in love with once. One day, she would understand.
 
 The conductor barreled into the car and yelled, "Shaki Central! Last stop, everyone off!"
 
