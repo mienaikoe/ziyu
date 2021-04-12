@@ -4,7 +4,7 @@ The station was just beginning to fill with merchants and travelers waiting for 
 
 "Laen!" I yelled at him. If I'm being honest, I wanted mine first. When I caught up to him, he was jumping all over the place, begging Gilli for a cake.
 
-"I'm sorry, Gilli," I said. "I promised him I would get him one."
+"I'm sorry, Gilli," I said. "I promised him one back home and I'm sure it's been on his mind this whole way."
 
 She laughed and said, "Oh it's alright. Everyone in Heiko deserves a cake, even saffas. Here!"
 
@@ -12,7 +12,7 @@ She tossed a roasted tor-nut handcake into the air and Laen caught it with his m
 
 "Could I bother you for a couple more for myself and a friend?"
 
-"Just keep those pohua shipments coming in," she said, and handed me two of the same kind. I reached out to take them, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a far superior syrup than idze."
+"Just keep those pohua shipments coming in," she said, then handed me two of the same kind. I reached out to take them, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a far superior syrup than idze."
 
 I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
@@ -28,7 +28,7 @@ My feet found some rest with my back against a tree near the tracks. I'd oriente
 
 The station attendant's voice spread through the air as thi called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
 
-I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman with a recent flow tattoo that was differentiating into hundreds of threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I remembered when I'd gotten a flow tattoo when I was younger. Working in the constant light of Ara made the ink turn black, so it looked as if I had some weird genetic defect. My mother laughed when I told her, and recounted how thi had had the same results when thi was my age.
+I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman, but hae voice seemed to go with hae body. I caught a glimpse of a new flow tattoo across hae neck when thi turned around: one strand of dark black differentiating into hundreds of intricate threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I remembered when I'd gotten a flow tattoo when I was younger. Working in the constant light of Ara made the ink turn black, so it looked as if I had some weird genetic defect. My mother laughed when I told her, and recounted how thi had had the same results when thi was my age.
 
 The train came rumbling in, its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan, Yansha, Shaki Harbor, Shaki Central." The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
 
@@ -76,7 +76,7 @@ He began again, "so what brings you to the capital?" I froze a bit, surprised th
 
 "... what?" I asked. "One day, what?"
 
-"The fever is gone. And insignificant."
+"The fever is gone. Such a magnaniumous thing had overnight turned to nothing but a trifle."
 
 "Did you ever have a fight that didn't stop?"
 
@@ -194,10 +194,8 @@ He was surprised. "Have you never heard of the Senate laws? They were written by
 
 "That's politics."
 
-I was silently furious at how unjust the Senate could be, and wondered how I could possibly be spared from the same law that forced a fidelant to retire. I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to speak to the senate. But my wishful thinking all felt unnatural, forced. She didn't trust me. I was a just some farmer she fell in love with once. One day, she would understand.
+I was silently furious at how unjust the Senate could be, and wondered how I could possibly be spared from the same law that forced a fidelant to retire. I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to speak to the senate. But my wishful thinking all felt unnatural, forced. She didn't trust me. I was just some farmer she fell in love with once. One day, she would understand.
 
 The conductor barreled into the car and yelled, "Shaki Central! Last stop, everyone off!"
 
 Fajro looked to me with a smirk and asked, "Would you help an old man?"
-
-I held out my arm and together we ventured into the vast city of Shaki.
