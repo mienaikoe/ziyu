@@ -72,15 +72,15 @@ He began again, "so what brings you to the capital?" I froze a bit, surprised th
 
 "We haven't been too happy with each other lately, so I hope you're right."
 
-"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, my spouses and I were fighting about a color for our daughter's first sleeping rug. We never even asked her what she wanted; we were too obsessed with winning the fight. For weeks, It was like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
+"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my bundmaman about my son's first formal wear. We never even asked him what he wanted; we were too bent on winning the fight. For weeks, It went on like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
 
 "... what?" I asked. "One day, what?"
 
-"The fever is gone. Such a magnaniumous thing had overnight turned to nothing but a trifle."
+"The fever was gone. Such an overwhelming impediment was nothing but a trifle. They all end the same way."
 
-"Did you ever have a fight that didn't stop?"
+"You've never had a fight that wouldn't stop?"
 
-He paused and looked at me as if he had seen a younger version of himself in me. "...Perhaps we should stop now."
+He paused and looked at me as if he had seen a younger version of himself in me. "...Perhaps it's better if I don't talk about it."
 
 "I don't mean to pry. It's just... if you have any advice, it would be greatly appreciated."
 

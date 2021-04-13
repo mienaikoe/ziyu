@@ -2,19 +2,25 @@
 
 The city was carved from the body of a tall mountain, with massive veins of white marble meandering between the gray, banded rock. Every road and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest was the Senate, carved from the largest vein of marble and crowned in glimmering brass. I imagined being one of the settlers here, washing and cleaving a small piece of rock to make a home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
 
-<!-- left off -->
+"Been a while for you?" Fajro asked me once we'd gotten off the train.
 
-"Been a while, has it?" Fajro said once we'd gotten off the train.
+"Yes," I said, in awe at the mess of people scurrying about in the station square. "I haven't been since Melna first became a fidelant."
 
-"Yes. I haven't been since Melna first became a fidelant."
-
-"The beauty of this place never changes. In Holrag, we call this place "The diamond of Palinan."
+He was looking up toward the Senate, unmoved by the cacophony of people. "The beauty of Shaki never changes", he said. "In Holrag, we call this place "The diamond of Palinan."
 
 "Even after years of coming here, it hasn't lost its luster?"
 
-"Every time, it seems like a distant memory. This city changes you the minute you join the throng. Every day here is another lifetime."
+"This city changes you the minute your feet hit the marble. Every day here is another lifetime, another chance at winning."
 
-"Let's make this one count."
+"Winning?" I asked.
+
+"Everyone has their own personal game that makes their life worth living. Like you keeping your bunds together."
+
+"That's not a game," I said. "That's my life."
+
+"What's the difference?"
+
+<!-- left off -->
 
 The base of the city was brightly lit, but there were large spots of shade behind giant curved mirrors in the distance. They were continuously focusing and harvesting Ara's light onto pipes of water to deliver steam to all of Shaki. Near the railyard an air of bustle filled the area with hordes of trainferriers bringing cargo to and from the trains; trade scribes in toe trying to keep up. Their heads would occasionally turn toward a place settled the desert, visible to all the city. A thin tower showed two sets of shadowed vertical lines against the bright light.
 
