@@ -1,8 +1,10 @@
 ## Chapter 5
 
-The city was carved from the body of an old mountain, with massive veins of white marble meandering between the gray, banded rock. Every path and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest was the Senate carved from the largest vein of marble and marked by a glimmering brass crown: the circle of Palinan, a symbol of the land that all people called home. I imagined being one of the settlers here, washing and chipping away at a small piece of rock to call home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
+The city was carved from the body of a tall mountain, with massive veins of white marble meandering between the gray, banded rock. Every road and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest was the Senate, carved from the largest vein of marble and crowned in glimmering brass. I imagined being one of the settlers here, washing and cleaving a small piece of rock to make a home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
 
-"Been a while, has it?" Fajro said once we got off.
+<!-- left off -->
+
+"Been a while, has it?" Fajro said once we'd gotten off the train.
 
 "Yes. I haven't been since Melna first became a fidelant."
 
@@ -18,15 +20,17 @@ The base of the city was brightly lit, but there were large spots of shade behin
 
 _The timekeeper. I remember now._
 
-I helped Fajro walk from the railyard to the easternmost funicular station. It was not terribly distant, but the sluggish pace was wearing thin on the patience of passersby trying to get around us.
+I walked with Fajro from the train station as he guided us to the closest funicular station. It wasn't terribly distant, but our sluggish pace was wearing thin on the workers of Shaki trying to get around us.
 
-"I regret that I am slowing you down," he said, acknowledging his frustration.
+"I'm slowing you down," he said, "Why don't you go on ahead and I'll catch up with you." There was a puzzling air about him; almost as if he'd become a different person when he stepped off the train.
 
-"No such talk. These people can afford to slow down a little bit."
+"Our pace is perfectly fine," I told him. "Besides, we're a team now. Going ahead will get me nowhere."
 
-"You know, I used to keep pace with the trainferriers before I busted my knee."
+He paused to look around. "You know, I used to keep pace with the ferriers before I busted my knee."
 
-"Oh I bet you could run circles around them," I said, trying to lift his spirits a bit.
+"Oh I bet you could run circles around them," I said. "I've never seen a tired fidelant."
+
+He laughed and said, "Oh just the contrary. The fidelacy is a life of exhaustion, but none would dare show it."
 
 We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and marvel at the beauty of the city from above. The public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, all funneling in and out of the car. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry, despite my anxiety. Compartmentalizing everything I felt was no small feat, but there wasn't much of a choice. This had to be done. We had to prepare for what was to come.
 
