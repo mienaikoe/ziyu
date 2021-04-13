@@ -86,7 +86,7 @@ He paused and looked at me as if he had seen a younger version of himself in me.
 
 "Perhaps your parents would give better advice than I can," he said.
 
-"My mother died right before I got married. My father and nather... were never really present." I said. I hoped that opening up to him would make him do the same.
+"My mother died shortly before I got married. My father and nather... were never really present." I said. I hoped that opening up to him would make him do the same.
 
 "Oh, that's terrible..." He said, visibly uncomfortable. "Well you did a splendid job raising yourself. Must be those child-rearing instincts you maman have that got you through it."
 

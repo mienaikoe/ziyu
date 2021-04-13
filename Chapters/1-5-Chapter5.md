@@ -20,55 +20,51 @@ He was looking up toward the Senate, unmoved by the cacophony of people. "The be
 
 "What's the difference?"
 
-<!-- left off -->
+I walked with Fajro from the train station as he guided us to the closest funicular. All around us, the rocky floor was covered in sand from the desert that lay just outside. Ara was fully above the horizon, and brighter than I'd ever seen it. We would have been sweating from the heat but for the shadows cast by a field of monolithic curved mirrors in the distance. As it was told to me, a pipe stands before each one to make steam for the entire city.
 
-The base of the city was brightly lit, but there were large spots of shade behind giant curved mirrors in the distance. They were continuously focusing and harvesting Ara's light onto pipes of water to deliver steam to all of Shaki. Near the railyard an air of bustle filled the area with hordes of trainferriers bringing cargo to and from the trains; trade scribes in toe trying to keep up. Their heads would occasionally turn toward a place settled the desert, visible to all the city. A thin tower showed two sets of shadowed vertical lines against the bright light.
+An air of bustle filled the area with hordes of ferriers carrying cargo in and out the trains, trade scribes in toe trying to keep up. Their heads would occasionally turn toward a tall tower some distance in the desert, visible to all the city, where a great spot of light was cast upon the wall. _The timekeeper. I remember now._ But after all my cloud-headed observations, I began to notice that our sluggish pace was wearing thin on everyone trying to get around us.
 
-_The timekeeper. I remember now._
-
-I walked with Fajro from the train station as he guided us to the closest funicular station. It wasn't terribly distant, but our sluggish pace was wearing thin on the workers of Shaki trying to get around us.
-
-"I'm slowing you down," he said, "Why don't you go on ahead and I'll catch up with you." There was a puzzling air about him; almost as if he'd become a different person when he stepped off the train.
+"I'm slowing you down," said Fajro. "Why don't you go on ahead and I'll catch up with you." There was a puzzling tone in his voice; almost as if he'd become a different person when he stepped off the train.
 
 "Our pace is perfectly fine," I told him. "Besides, we're a team now. Going ahead will get me nowhere."
 
 He paused to look around. "You know, I used to keep pace with the ferriers before I busted my knee."
 
-"Oh I bet you could run circles around them," I said. "I've never seen a tired fidelant."
+"Oh I bet you could run circles around them," I said. "I've never seen an exhausted fidelant."
 
-He laughed and said, "Oh just the contrary. The fidelacy is a life of exhaustion, but none would dare show it."
+He laughed and said, "The fidelacy is a life dedicated to the pursuit of exhaustion, but none of us would ever dare to show it."
 
-We rode the funicular up the mountain and toward the Senate. It made several stops along the way, giving us places to stop and marvel at the beauty of the city from above. The public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, all funneling in and out of the car. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry, despite my anxiety. Compartmentalizing everything I felt was no small feat, but there wasn't much of a choice. This had to be done. We had to prepare for what was to come.
+We rode the funicular up the mountain and toward the Senate, making several stops along the way. At each one, I marveled at the beauty of the city from a different angle, and at the people who funneled in and out: the public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, and the occasional artist lost in thought. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry. But there was no time to eat. I had to prepare for what was to come.
 
-"Senate. Last stop," called the operator.
+"Senate / Public Square. Last stop," called the operator.
 
-I helped him off and he took a seat on the first bench he could find to rest his legs. It was a small public square directly in front of the senate building.
+I helped Fajro off the funicular and he took a seat on the first bench he could find to rest his legs. All around the square were pots of dark gray stone filled with clay and desert plants from the east, likely the only things that could grow with in so much light.
 
-"Ah this brings me back. You see that gate? I used to walk through it every day. I would always round the left corner as I entered from the west. And the steam fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
+"Ah this brings me back," said Fajro. "You see that gate? I used to walk through it every day. I would round the left corner as I entered from the west. And the fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
 
-"You sound very fond of this place."
+"Sounds like you were very fond of this place."
 
-"You could say that. Almost all of my waking life was devoted to the people here. It really made an impression on me."
+"You could say that. Almost all of my waking life was spent here. It really made an impression on me."
 
 "Do you ever miss it?"
 
-"Some parts. I felt proud of myself, and all the work that we put in to make big advancements. You know, I played a big part in the unification pact in Holrag."
+"Some parts. I felt proud of myself, and all that we accomplished despite our differences. You know, I played a big part in the railway pact."
 
 "You?"
 
-"I brokered a treaty for the tribes of Holragi to work together. The pact helped us become the manufacturing giant we are today, and deployed hundreds of public workers to design and survey the space rail."
+"I brokered a treaty for the tribes of Holragi to work together in building a rail for all the world. It helped us become the manufacturing giant we are today, and led us to create the space rail."
 
-"You must be proud," I said, not really caring.
+"You must be proud," I said, wanting to change the subject.
 
-"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what we cannot from the surface. By the end, we had only built the rail to half the length we needed, so it was only long enough to send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what can't be seen from the surface. By the end of our agreement, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
-"Ideas never make it to reality unscathed," I said. "I learned that one early."
+"Nothing in life goes according to plan," I said. "Even this city, I'm sure, is not what its founders had envisioned."
 
-"I suppose," he said, unconvinced. He feigned agreement with a nod.
-
-After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
+He feigned agreement with a nod. After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
 ---
+
+<!-- left off -->
 
 The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Thimlu, and of the Throngia who were counting on me. Turning back was not an option.
 
