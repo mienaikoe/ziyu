@@ -56,29 +56,27 @@ I helped Fajro off the funicular and he took a seat on the first bench he could 
 
 "You must be proud," I said, wanting to change the subject.
 
-"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privelege. They wanted to expand the observer program; to send explorers with telescopes into space to see what can't be seen from the surface. By the end of our agreement, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privilege. They wanted to expand the observer program; to send explorers with telescopes into space to see what can't be seen from the surface. By the end of our agreement, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
 "Nothing in life goes according to plan," I said. "Even this city, I'm sure, is not what its founders had envisioned."
 
 He feigned agreement with a nod. After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
----
+Before us was a massive arch of a gate, tall enough to fit ten of me underneath. Its edges were decorated with black iron strands, branching and twisting elegantly into ornate patterns that resembled kelp under the ocean. At the base of the gateway, a man and a woman stood guard in woven black steel scales.
 
-<!-- left off -->
+"Name and business," the woman requested in an uninterested tone. Her Shakii accent was thick with bravado.
 
-The front gateway was a massive arch built into the five-story building and nearly half the height. The edges were trimmed with two forged iron columns, branching and twisting elegantly into ornate patterns that cast floral shadows against the marble. I felt my jaw tensing up, and my belly was in knots, but I reminded myself of the note, of Thimlu, and of the Throngia who were counting on me. Turning back was not an option.
+With cold hands I reached into my shoulder bag for Thimlu's badge, but before I stammered my plea to their deaf ears Fajro spoke with a voice that carried far more authority than a piece of brass ever could.
 
-We approached the base of the gateway where a male and female guard in woven stranded-steel armor stood in front. "Name and business," the female guard requested in an uninterested tone.
+"I am Fajro, retired fidelant of Holrag. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
 
-Fajro began, "I am Fajro, retired fidelant of Holrag. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
+The guard was unmoved. "No one is permitted into the Senate while deliberations are under way. It is an offense to–"
 
-"No one is permitted in the Senate while they are deliberating."
+"Yes, I understand. I am delivering this message to her assistant."
 
-"Yes, I understand. I am delivering it to her assistant."
+"Pomri? She hasn't mentioned this to us."
 
-"She hasn't mentioned this to us."
-
-"Yes. I was summoned by the speaker, as the matter is unexpected and urgent."
+"I was summoned by the speaker this morning, as the matter is unexpected and urgent."
 
 She deliberated with her partner, and glanced at me once, sending a shock of worry through my bones. I was getting cold again.
 
@@ -86,11 +84,11 @@ She deliberated with her partner, and glanced at me once, sending a shock of wor
 
 _NO_
 
-He replied, "My... attendant helps me walk on account of my injured knee. I can't go anywhere without help these days."
+He replied, "My attendant helps me walk on account of my injured knee. I could barely walk here without hae help, much less make it to Pomri."
 
-The male guard begrudgingly walked over to me and said, "Open your bag."
+The man glanced at the woman and begrudgingly walked over to me and took my bag off my shoulder. I dared not to protest. He rummaging for a bit before throwing it back at me and waving a hand sign to the other guard. "Make it quick," she snapped.
 
-I complied and he rummaged for a bit before walking back and giving a hand sign to the other guard. She said, "Go ahead."
+<!-- left off -->
 
 The senate grounds were surrounded by the building that the rest of the city called the Senate. It was a massive circle of offices and gates and walkway, its diameter as large as the farmland I worked in Heiko. But the true focus of this place was the deliberation hall: a giant marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a short marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without the constant shade that the perimeter circle granted. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but I dared not draw attention to myself.
 
