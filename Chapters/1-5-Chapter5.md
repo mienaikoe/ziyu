@@ -62,7 +62,7 @@ I helped Fajro off the funicular and he took a seat on the first bench he could 
 
 He feigned agreement with a nod. After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
-Before us was a massive arch of a gate, tall enough to fit ten of me underneath. Its edges were decorated with black iron strands, branching and twisting elegantly into ornate patterns that resembled kelp under the ocean. At the base of the gateway, a man and a woman stood guard in woven black steel scales.
+Before us was the arch of a gate carved into a massive marble wall, tall enough to fit ten of me underneath. Its edges were decorated with black iron strands, branching and twisting elegantly into ornate patterns that resembled kelp under the ocean. At the base of the gateway a man and a woman stood guard in woven black steel scale armor.
 
 "Name and business," the woman requested in an uninterested tone. Her Shakii accent was thick with bravado.
 
@@ -86,11 +86,17 @@ _NO_
 
 He replied, "My attendant helps me walk on account of my injured knee. I could barely walk here without hae help, much less make it to Pomri."
 
-The man glanced at the woman and begrudgingly walked over to me and took my bag off my shoulder. I dared not to protest. He rummaging for a bit before throwing it back at me and waving a hand sign to the other guard. "Make it quick," she snapped.
+The man glanced at his partner and begrudgingly walked over to me. I dared not to protest as he slid the bag off my shoulder in one quick movement and rummaged through it before throwing it back at me and gesturing to the other guard.
+
+"Make it quick," said the woman.
+
+We walked under the gate and my eyes grew wide as we walked into a wide circular clearing of gardens and pools and walkways as broad and as wide as all of the farm plots I tended to in Heiko. All around us were flowers and bushes and trees from different parts of the world that could certainly not live in such a hot and dry place without the help of the mamen carrying water to and fro in their fine vinegrass frocks.
+
+I was surprised to see that the outer wall was inhabited, as was unapparent from the outside. The inside walls were full of arches and openings for people to come and go and look across the gardens toward the true focus of this place. A giant marble sphere stood proudly in the center of the circle, illuminated by the light through the gate we'd come through.
 
 <!-- left off -->
 
-The senate grounds were surrounded by the building that the rest of the city called the Senate. It was a massive circle of offices and gates and walkway, its diameter as large as the farmland I worked in Heiko. But the true focus of this place was the deliberation hall: a giant marble sphere standing proudly in the center, illuminated by the light through Ara's gate. It sat upon a short marble pedastal that seemed too small to be holding so much weight. Between the outer circle and the sphere was a labyrinth of small pools and lines of vegetation that could certainly not live in such a hot and dry place without the constant shade that the perimeter circle granted. At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but I dared not draw attention to myself.
+At every vertex of the planting lines, a small black iron circle with an engraved crest marked a city that was member to the Shaki Senate. I longed to venture through the plants and learn about them, but I dared not draw attention to myself.
 
 Fajro set me back on track, "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
 
