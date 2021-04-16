@@ -102,9 +102,9 @@ Fajro interrupted my wonderment, unimpressed by the beauty he'd come to dismiss.
 
 I paused, sensing that Fajro knew more than he was letting on. In any other situation I would stop everything and question him until there were no more lies to tell. But this was his world, as I was learning; a world where the truth had a price. And I was nothing more than a beggar.
 
-We followed the pathways toward the archway beneath the crest of Heiko, and turned the corner to face the building at the center. It was more shaded from this side, but still somehow as radiant as the rest of the city. At the doors were two more guards with the same scale armor and spears. But they looked far more attentive and unmovable.
+We followed the pathways toward the archway beneath the crest of Heiko, and turned the corner to face the building at the center. It was more shaded from this side, but still somehow as radiant as the rest of the city. A door of brass was set into the base of the building – far more modestly sized than the archways we'd seen everywhere else – but two guards stood watch nonetheless, armed with the same scale armor and spears as the ones outside and far more attentive to the world around them.
 
-"How can we get through them?" I asked.
+"How can we get through?" I asked.
 
 "I'll distract them. Meanwhile you go around them and slip through the door."
 
@@ -136,22 +136,24 @@ Fajro looked him up and down. "Tinpo, you make a fine guard. Your mother would b
 
 "Thank you. Uncle," said Tinpu. He lowered his eyes.
 
-"How long have you been posted here? I haven't heard from your parents since uh..." his voice trailed off to a painful memory that was hidden in their shared knowledge.
+"How long have you been posted here? I haven't heard from you in nearly a hundred days."
 
-<!-- left off -->
+Tinpo looked visibly afraid of the man, but I didn't have time to analyze their relationship. I looked for an opening as they continued talking.
 
-"They posted me near the railyards immediately after you referred me, but I've been working my way up here ever since."
+Tinpo spoke in a subdued tone, "They posted me here immediately after you referred me, sir."
 
-"Congratulations, my boy. Reaching this post in such a short time is quite an achievement."
+"Congratulations, my boy," said Fajro, placing his hands on Tinpo's armored shoulder. "Reaching this post is quite an achievement."
 
-"Thank you, sir."
+"Yes, sir," he responded. "Thank you, sir."
 
-"And who's your friend over here?" he asked.
+"And who's your friend over here?"
 
-"Oh, that's Padji. Thi was posted here around the same time I was."
+"Her name is Pashda, sir."
 
-"You must be good friends. I want to meet hae."
+"You must be good friends. Call her over. There's no one else around."
 
-"Oh.. uh sure."
+Tinpo glanced at me while I kept my head down, and then waved his partner over. But just before she entered our presence Fajro nudged me aside with a hard shove. "Find something to do, kaln," he growled.
 
-We walked over to where Tinpo had been standing, and just before we got there, Fajro nudged me aside. At first I thought it was an accident because he made it seem that way, but then he stood opposite me and started talking to both of them, shifting their gaze away from the door, and away from me. I saw my moment and quickly tiptoed to the doorway. I lifted the heavy door a bit as I cracked it open: a trick my mother had taught me to stay quiet while we shared a room for sleeping. I slipped inside, and quietly closed it the same way, and then turned to face the most powerful governing body in the world.
+I wanted to punch him square in the stomach, but then I saw that they were paying no attention to me, and it quickly became clear that it was all an intentional act. He stood in a way that shifted their gaze away from the door, and raised his voice to really solidify their focus, leaving my path to the door wide open. Just as I reached the door, a loud yell rang out behind me and I saw the woman named Pashda being thrown to the ground. This was my moment. I lifted the heavy door a bit as I cracked it open – a trick my mother had taught me to stay quiet while we shared a room for sleeping – and I slipped inside, quietly closing it the same way.
+
+I can't say what my feelings were in this moment, how unimaginably small it felt to stand in the corner of a circular room. My thoughts were focused on what I'd come to do: to find Melna and to tell her what I knew.

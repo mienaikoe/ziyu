@@ -6,7 +6,7 @@ As I ventured further, I noticed a faint glow from a wall to the left, where Ara
 
 I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my head slightly down. With every step toward the center of the hall, my hearts rushed with anxiety, but I counted my steps to remain calm. Once I entered the center area, I picked a side – _left_ – and immediately rounded the marble wall and started walking up the steps to make it look like I knew where I was going. _The speaker isn't stopping. I'm almost in the clear._ About halfway up, I lowered myself and raised my gaze to look for Melna. She didn't appear to me immediately, but then I spotted the side of her face in the front row on the opposite side of the entryway. _I chose the wrong side._ I picked up my pace to get to Melna as quickly as possible.
 
-"Are you lost?" A different voice interrupted the speaker and addressed me directly.
+"Are you lost?" A different voice interrupted the speaker and addressed me directly. Her voice sounded so close that it felt as if it were coming from the inside of my head.
 
 The eyes of the fidelants were locked upon me now, shocked at my mere presence. My pounding hearts and ringing ears were deafening. I looked toward the center of the room where a lantern illuminated the face of a scornful woman. She looked back at me, emotionless, cold, intolerant. I had to say something.
 
