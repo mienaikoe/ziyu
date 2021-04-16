@@ -94,12 +94,14 @@ Of interesting note is the bluekelp which grows abundantly in the waters near an
 **_Chista Province_**
 A small province in the various Ara-open valley between Shaki and Seroa. They control the Shaki foothills that lie neareset to Ara. During the Holragi invasions, they decided to stay and rebuild instead of fleeing to the mountains, like the Seroans.
 
-Their main feature is that they control the railroad between Shaki and Holrag. The province may be small but this tactical position has allowed them to have a strong economy, and to build robust political defenses. No province would dare destroy the city of passage, because every province relies on Holragi for steel, and Holragi relies on their food. They also export loosely woven vinegrass textiles that are breathable and thin.
+Their main feature is that they control the railroad between Shaki and Holrag. The province may be small but this tactical position has allowed them to have a lot of social clout, and to build robust political defenses. The citizens are known to be lazy and the ruler of this city-state has a penchant for spending most of it on lavish parties, so its citizens aren't very wealthy even though the city is well-kept.
+
+No province would dare destroy the city of passage, because every province relies on Holragi for steel, and Holragi relies on their food. They also export loosely woven vinegrass textiles that are breathable and thin.
 
 **_Seroa Province_**
-A colder mountain province on the far side of Shaki, sharing the same ridge system. Much like Rudjan, its many cities are walled, but the walls do not cover the road system, as they preferred to be well-defended than convenient. Seroa didn't even allow the rail system in its lands, much to the chagrin of Holrag, so the rail system passes through the Chista instead. It's a rather insular place because of a long history of Holragi invasion for which the Shaki'i did not help them.
+A colder mountain province on the far side of Shaki, sharing the same ridge system. Much like Rudjan, its many cities are walled, but the walls do not cover the road system, as they preferred to be well-defended than convenient. Seroa didn't even allow the rail system in its lands, much to the chagrin of Holrag, so the rail system passes through the Chista instead. It's a rather insular place because of a long history of Holragi invasion for which the Shaki'i did not help them. The number of cities reflects its desire to remain flexible and ready for attack at any time. If one city were to fall under seige, the others would know quickly and rally a response.
 
-The number of cities reflects its desire to remain flexible and ready for attack at any time. If one city were to fall under seige, the others would know quickly and rally a response.
+Though they are insular, they built weapons and defenses for Chista because they know Chista would be first to go if the Holragi ever invaded again.
 
 Seroa's main export is stone, and tightly-layered kelp textiles.
 
