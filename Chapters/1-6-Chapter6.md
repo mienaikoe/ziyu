@@ -1,6 +1,6 @@
 ## Chapter 6
 
-There was a constant reverberant murmur that filled the hall as a fidelant spoke to them - something about her province's proposal for a new academy of arts. I was nestled in a walkway between two elevated seating areas, so I was hidden from the view of most fidelants. A few at the opposite end of the hall me glanced at me for a second, then returned their view as if nothing had happened.
+There was a constant reverberant murmur that filled the hall as a fidelant spoke to them - something about her province's proposal for a new academy of arts. I was nestled in a walkway between two elevated seating areas, so I was hidden from the view of most fidelants. A few at the opposite end of the hall glanced at me for a second, then returned their view as if nothing had happened.
 
 As I ventured further, I noticed a faint glow from a wall to the left, where Ara shone through the entryway and onto this giant orb. A precise map of the world appeared in shades on the wall with an inverse orientation, as if looking down from the sky. I observed and inferred more and more and finally mapped out a route. Typically, people would enter from these walkways into the center before going further up to their desks, and luckily I was on the eastern portion of the hall, so I assumed that Melna sat nearby. I would still have to walk into that center circle, probably bringing a decent amount of attention to myself in the process, but it was large so I might get away with it if I stayed quiet and slow.
 
@@ -100,7 +100,7 @@ She said, "When I saw you here, I was furious. But when you mentioned the observ
 
 "It would risk a war at a time when we can't afford that."
 
-I pounded on the walls and paced back into my cell. Frustrated would be an understatement.
+I pounded on the walls and I retreated back into my cell, my arms throbbing from the pain I'd just caused them. Through the ringing in my ears, I heard the heavy beating of my hearts counting each moment as it passed in the depths of this wretched city.
 
 "This senate... These are the people who protect our civilization from destroying each other? A bunch of angry men and women making bets with their people?"
 
@@ -208,7 +208,7 @@ I felt scared and alone again. "Where are you going?"
 
 "Stay with me. Just for one more minute."
 
-She looked at me for a bit, then hung her lantern on a hook in the wall and held my hand through the hole. This place smelled like piss and rust, but I didnt mind. I chose this woman and she chose me.
+She looked at me for a bit, then hung her lantern on a hook in the wall and held my hand through the hole. This place smelled like piss and rust, but I didn't mind. I chose this woman and she chose me.
 
 "I love you, Liffa. Kipnu would say it too if he were here."
 
