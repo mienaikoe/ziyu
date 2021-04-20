@@ -58,7 +58,7 @@ A moment of quiet went by and I could see Melna's mind had moved onto a deeper t
 
 <!-- The three of us had joined too early before we could roam across the world. -->
 
-"It's been too long," she said with a wistful tone.
+"It's been a moment, hasn't it," she said with a wistful tone.
 
 Kipnu knew what she was thinking. "Last time we went somewhere was to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
 
