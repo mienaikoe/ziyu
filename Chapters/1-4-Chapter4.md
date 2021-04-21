@@ -18,7 +18,7 @@ I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
 Her smile returned, and she said, "Thank you, Liffa... Here, take another!"
 
-I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of Pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the barely-eaten cake.
+I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the barely-eaten cake.
 
 "Laen! That was mine!" I yelled. I gave him a slap on the shoulder and turned away from him to hide my last one. He barely noticed through the chewing.
 
