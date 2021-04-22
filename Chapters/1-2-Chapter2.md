@@ -108,7 +108,7 @@ I quietly snuck toward the door and opened it a crack, careful not to show my ba
 
 "Thimlu and I have been studying something..." he said hesitantly, "She asked us to keep her in the loop."
 
-_She was keeping secrets._
+_I knew it!_
 
 He began to turn back toward the road, "Well, if she's not here, I should go back to call–"
 
@@ -116,4 +116,4 @@ He began to turn back toward the road, "Well, if she's not here, I should go bac
 
 "Oh that's really not necessary-"
 
-I hollered to him, "I need to know more; I won't slow you down," while I ran to fetch a new pair of trousers as quickly as I could. This was my chance to know the truth, and nothing would keep me from it.
+I hollered to him, "I need to know more; I won't slow you down," while I ran to fetch a new pair of trousers as quickly as I could. The pohua would have to wait for another day.

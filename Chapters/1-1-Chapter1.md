@@ -82,7 +82,7 @@ I entered the dressing room as Melna was setting out her fidelant attire so I co
 
 She moved to the mirror and I followed her. The growing light of Ara had been shining through the window, and it bounced off the mirror and into my eyes as I walked toward it. I put my arm up to shield the light while she stood just barely in it.
 
-She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color of Heiko shined proudly in the daylight. I remembered dying them in pohua, taking every care to ensure that the color was consistent and fast to the cloth, but still I saw all of its imperfections whenever I looked at it. Melna didn't seem to mind.
+She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color shined proudly in the daylight. I remembered dying them in a vat full of sedepin root, ensuring that the color was consistent and fast to the cloth. But still whenever I held it in my handsd, all I could see was its imperfections. Melna didn't seem to mind.
 
 "This morning, you mentioned the cold air," I spoke hesitantly.
 
