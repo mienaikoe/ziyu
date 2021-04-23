@@ -34,9 +34,13 @@ The winds were slowly picking up while we rode down the long, packed-clay road f
 
 I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse, which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little holes in the blanket of the sky.
 
-At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the conduit office and quickly hopped off of Laen. I gave him a thankful pat on the neck and he gave me back a small cooing of acknowledgement.
+At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the office of the conduit and quickly hopped off of Laen. I gave him a thankful pat on the neck and he replied with a small cooing of acknowledgement.
 
-When I entered, an old man was already inside, standing by the doorway as if waiting for someone to come by. He turned to face us and as if seeing a friend for the first time I stared at his familiar face, piecing together what years we'd lost.
+"Now, don't go anywhere," Jathi commanded. But Laen looked back at him with a puzzled face.
+
+I laughed at him and said, "He's not going anywhere. I'm his ticket to cakes." Laen's face perked up at the word.
+
+When I entered, an old man was already inside, standing by the doorway as if waiting for someone to come by. He turned to face us and I froze, staring at his familiar face like a friend forgotten, piecing together the time that stood between now and our last memory.
 
 "Aey, lad," said Thimlu, "You forgot to clean the lenses. And what happened to finding Meln-... my stars." He gasped as he looked toward the maman beyond his apprentice. "Liffa... 's that you?" he asked.
 
@@ -44,9 +48,9 @@ When I entered, an old man was already inside, standing by the doorway as if wai
 
 "My it has," he said. "Your eyes... have you...?"
 
-"Taken on the haze?" I asked. "No. I can still see just fine."
+"Taken on the haze?" I asked. "No. It's a temporary thing, working with pohua. I can see just fine."
 
-"Aey, Good. You do well 'n keep 'em that way. There's still an opening at the observatory for when I leave. You actually listened to me back then, unlike Jathi here. Couldn't teach him a damn thing until you left. If Kipnu didn't already have Melna's eye, I would have sent you two her way."
+"Aey, Good. You do well 'n keep 'em that way. There's still an opening at the observatory for when I leave. You actually listened to me back then, unlike Jathi here. Couldn't teach him a damn thing until you left. If Kipnu hadn't already caught Melna's eye, I would have sent you two to get hitched with her."
 
 Jathi's cheeks went red, and he protested, "Thimlu! You can't say that."
 
@@ -56,15 +60,15 @@ Jathi responded eagerly. "There's been a bit of a snag. Melna's already left."
 
 "Well that's not good..." he responded coldly. "'s not good at all."
 
-"Were you able to reach any of the other observatories?" Jathi asked.
+"Were you able to reach anyone?" Jathi asked.
 
-"The only other two are in Holrag and Seroa. And they're both unresponsive. Kantha really should be picking up, he knows how important this is."
+"The only other two observatories are in Holrag and Seroa, and they're both unresponsive. Makes sense, it's the middle of mid-day sleep."
 
 "No worries," Jathi said with a chipper voice. "I'll try Melna's personal line."
 
-Jathi set himself at the phone desk and set a note flat upon the table in front of him. There was no space for two at the desk, so I stood closer to the door. The ceiling was a towering, ordered nest of small metal rails to different homes within Heiko. In one corner was a rail far bigger than the rest, which I assumed went to Shaki.
+Jathi set himself at the phone desk and set a note flat upon the table in front of him. There was no space for two near him, so I stood closer to the door. I wondered where the usual operator slept during mid-day. It was quite a small building in terms of footprint, but ceiling was far above us, making room for a towering ordered nest of tarred metallic wires and rails. They were dense enough, I imagined, for someone to sleep directly on them, but there wasn't a person in sight.
 
-He began. "Shaki Conduit, This is Heiko Conduit."
+Jathi began. "Shaki Conduit, This is Heiko Conduit."
 
 A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick and then repeated.
 
@@ -102,7 +106,7 @@ The line opened and an unenthused woman spoke, "Conduit of the Heiko Senate, Ass
 
 "We've found something at the observatory. It was too important for sleep."
 
-She sighed, "Well, I'm afraid you're too late. Melna is in assembly."
+"Well, I'm afraid you're too late," she said. "Melna is in assembly."
 
 "When will she be out?"
 
@@ -116,17 +120,17 @@ She sighed, "Well, I'm afraid you're too late. Melna is in assembly."
 
 "And I would surely be imprisoned for it."
 
-He sighed in frustration burying his eyes in his hand. "Pomri," he replied with pessimism. "Even if there is a law against interrupting the assembly, a magistrate would surely look the other way at sentencing."
+He huffed in frustration burying his face in his hand. "Pomri," he replied with pessimism. "Even if there is a law against interrupting the assembly, a magistrate would surely look the other way at sentencing."
 
-"You ever been to Shaki?"
+"You ever been to Shaki?" she asked with a patronizing tone.
 
 He hesitated, "Why does that matter?"
 
 "Then you wouldn't understand. The whole city would know about it before I could even say a word. A magistrate would never back down from something that public."
 
-"Pomri, trust me. _This can't wait_."
+"Pomri, trust me," he said, gravity in his voice. "_This can't wait_."
 
-"Look, if you want this so bad, come to Shaki and tell her yourself. I'm not getting tossed in the ocean over a message."
+She hesitated for a moment, as if surprised. "Look, if you want this so bad, come to Shaki and tell her yourself. I'm not getting tossed in the ocean over a message."
 
 "You're asking me to come to the senate? What, so... so I can be the one to do it instead of you?"
 
