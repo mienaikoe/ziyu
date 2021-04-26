@@ -92,7 +92,7 @@ I felt guilty, unclean, like I needed to burn away some corruption that the old 
 
 There was a knock at the door. _Is it that Tiggu again come to tell me I was rude?_
 
-I quietly snuck toward the door and opened it a crack, careful not to show my bare lower-half. _Jathi? What could he possibly want?_ But before I could say anything he unleashed a flurry of words.
+I quietly snuck toward the door and opened it a crack, careful not to show my bare lower-half. _Jathi? What could he possibly want?_ But before I could insert a question he frantically spoke.
 
 "Liffa, so glad to see you," he said, catching his breath. "Is she here?"
 
@@ -102,7 +102,7 @@ I quietly snuck toward the door and opened it a crack, careful not to show my ba
 
 "Slow down, Jathi. What’s this about?"
 
-"It's about Ara," he said with a tinge of despair.
+"It's about Ara," he said, and my heart almost skipped a beat.
 
 "Ara? Why would Melna need to know about Ara?"
 

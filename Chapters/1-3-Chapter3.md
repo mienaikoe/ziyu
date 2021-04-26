@@ -1,32 +1,32 @@
 ## Chapter 3
 
-The late morning light was just enough for me to see while I dashed to the stable to get Laen-Laen, our Saffa. He was small for a Saffa, but at twelve times my own weight, he still had more than enough strength to fit both Jathi and me.
+The late morning light was just enough for me to see while I dashed to Laen-Laen's den just outside the back door. He was small for a Saffa, but at twelve times my own weight, he had more than enough strength to fit both Jathi and me.
 
 "Laen-Laen, good morning!" I greeted him and he gave out a whoop as he woke up from his half-nap. "You're still asleep, Laen?"
 
-A loud and wavering "Ooooo" filled the room as he walked to me and yawned in my face.
+A loud and wavering "Ooooo" filled the room as he stretched and yawned in my face.
 
-"Hey grass-breath, can you take me to Heiko central?"
+"Hey grass-breath, I've got a job for you. Can you take me to Heiko central?"
 
 He snorted his disapproval with his fuzzy ears turned backward.
 
 "We can stop by Gilli's and get a cake."
 
-"Ooop!" He chittered as he perked up and twisted his head left and right.
+"Oop-oop!" He chittered. His head perked up as if Gilli was his favorite person in the whole world.
 
-"There we go. Now lets get you ready."
+"There we go. Now let's get you ready."
 
-I took a soft linen blanket from the wall and recalled the times when Jathi and I used to walk with Laen along the coastline in the fog of morning. We'd finish the night shifts we worked together at the observatory and then go play in the water or get lost in the gray abyss until the fog lifted to show us where we'd gone. Even though we'd stayed up all night, we were never tired when we were together.
+I took a soft linen blanket from the wall and laid it across Laen's back, then led Laen down the alley toward the front gate where Jathi was waiting for me.
 
-But this was no time for memories. Jathi had a duty to fulfill, and I had a mystery to solve. I led Laen down the alley toward the front gate where Jathi was waiting for me.
+I recalled the times when Jathi and I used to walk with Laen along the coastline in the fog of morning. We'd finish the long night shifts when we worked together at the observatory and then go play in the water or get lost in the gray abyss until the fog lifted. Even though we'd stayed up all night, we were never tired when we were together. Truthfully, I was glad to see his dopey face at my door despite the emotions.
 
 "Didn't think we would be doing this again," he said, "The three of us on a morning adventure."
 
 "Adventure?" I said surprised. "It's just a stop by the conduit."
 
-"Adventures come in all shapes in sizes, Liffa. Even a moment can hold one."
+"Adventures come in all shapes in sizes. Even a moment can be an adventure."
 
-I smiled, satisfied to have an unexpected moment of adventure with an old friend."
+I smiled, satisfied to have an unexpected moment of adventure with an old friend.
 
 ---
 
