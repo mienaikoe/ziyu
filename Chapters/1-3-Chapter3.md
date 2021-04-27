@@ -16,9 +16,9 @@ He snorted his disapproval with his fuzzy ears turned backward.
 
 "There we go. Now let's get you ready."
 
-I took a soft linen blanket from the wall and laid it across Laen's back, then led Laen down the alley toward the front gate where Jathi was waiting for me.
+I took a soft linen blanket from the wall and laid it across Laen's back, then led him down the alley toward the front gate where Jathi was waiting for me.
 
-I recalled the times when Jathi and I used to walk with Laen along the coastline in the fog of morning. We'd finish the long night shifts when we worked together at the observatory and then go play in the water or get lost in the gray abyss until the fog lifted. Even though we'd stayed up all night, we were never tired when we were together. Truthfully, I was glad to see his dopey face at my door despite the emotions.
+I remembered how Jathi and I used to walk with Laen along the coastline in the fog of morning. We'd finish the long night shifts working together at the observatory and take our breaks playing in the water or getting lost in the gray abyss until the fog lifted. Even though we'd stayed up all night, we were never tired when we were together. Truthfully, I was glad to see his face at my door.
 
 "Didn't think we would be doing this again," he said, "The three of us on a morning adventure."
 
@@ -40,15 +40,15 @@ At the end of the path, we turned a corner and crossed the train line just after
 
 I laughed at him and said, "He's not going anywhere. I'm his ticket to cakes." Laen's face perked up at the word.
 
-When I entered, an old man was already inside, standing by the doorway as if waiting for someone to come by. He turned to face us and I froze, staring at his familiar face like a friend forgotten, piecing together the time that stood between now and our last memory.
+A man stood against the doorway, dressed in a simple, but neatly folded kelpen coat in gray and blue. His eyes and hands wore the creases of work, but not of age. He turned to face us and I froze, staring at his familiar face like a friend forgotten, piecing together the time that stood between now and our last memory.
 
-"Aey, lad," said Thimlu, "You forgot to clean the lenses. And what happened to finding Meln-... my stars." He gasped as he looked toward the maman beyond his apprentice. "Liffa... 's that you?" he asked.
+"Aey, lad," said the man as he glanced at Jathi, "You forgot to clean the lenses. And where is Meln-... my stars." He gasped as he looked toward the maman beyond his apprentice. "Liffa... 's that you?" he asked.
 
 "Thimlu," I said, trying to hold my joy to a sociable level. "It's been forever."
 
 "My it has," he said. "Your eyes... have you...?"
 
-"Taken on the haze?" I asked. "No. It's a temporary thing, working with pohua. I can see just fine."
+"Taken on the haze?" I asked. "No. It's temporary, happens when working with pohua. I can see just fine."
 
 "Aey, Good. You do well 'n keep 'em that way. There's still an opening at the observatory for when I leave. You actually listened to me back then, unlike Jathi here. Couldn't teach him a damn thing until you left. If Kipnu hadn't already caught Melna's eye, I would have sent you two to get hitched with her."
 
@@ -188,7 +188,9 @@ I nodded to him respectfully, but I knew what power my insatiable curiosity had 
 
 ---
 
-"Aey? Kipnu?" I called as I entered the clinic. Laen poked his head through the doorway as well. With a sleepy lilt, Kipnu's voice called from a room at the far end of a hallway, and I followed it there, leaving Laen at the door. When I came to the opening, he was sprawled out on a cot, having fallen back asleep in mere moments. I watched him for a moment, letting my eyes remind me why I loved him.
+"Aey? Kipnu?" I called as I entered the clinic. Laen poked his head through the doorway as well. I kept my voice low, as it was the middle of the mid-day nap, and called again, "Kipnu?"
+
+With a sleepy lilt he voiced a sort of greeting from a room at the far end of a hallway and I followed it there, leaving Laen at the door. When I came to the opening he was sprawled out on a cot, having fallen back asleep in mere moments. I watched him for a moment, feeling oddly affectionate toward a man I'd seen just a bit ago.
 
 "Hey," I interrupted myself, "I'm sorry to wake you but I need to talk."
 
@@ -196,13 +198,13 @@ He shuffled around the cot, looking confused, then looked up at my shadow in the
 
 "Liffa, that you?"
 
-He pushed himself up and took a moment to wake, his sleepy eyes still partially covered by his eyehaw. I pulled a lightglass from a tabletop and slid it onto the rails above us.
+He pushed himself up and took a moment to wake, his sleepy eyes still partially covered by his eyehaw. I searched for a switch nearby and flipped it on, filling the room with a pale orange light.
 
 "You surprised me," he said. "What brings you here?"
 
 "I'm going on a short trip."
 
-"What? Why?" He asked, his eyes now completely open.
+"A trip? Where?" He asked, his eyes now completely open.
 
 "To the capital. Melna needs me for something."
 
@@ -214,40 +216,32 @@ He pushed himself up and took a moment to wake, his sleepy eyes still partially 
 
 I paused, scrambling for words.
 
-"Tell me what's going on-"
+"What's going on-" he pried.
 
-I backed away and stammered, "I'll tell you later. Take care of Laen-Laen, he'll be headed back home."
+I backed away and stammered, "I'll tell you later. I promised Laen I'd get him some cakes. Take care of him when you get home, will you?"
 
 I turned to walk out the door, but he called for me again, and I couldn't help but stop. His eyes were pleading, worried.
 
-"We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you affects me as well."
-
-"You can't be involved."
-
-"I already am."
+"We swore the Oath of Trust to each other," he reminded me. "Whatever is going on between you two affects me as well."
 
 I stood just outside, staring at the gaudy patterned wood floor of his office while the weight of what I was about to do finally came to me.
 
 He pushed again, "If you won't tell me, then I'm going with you."
 
-"You have patients to see"
+"You have patients to see," I said.
 
 "They can wait."
 
 "Kipnu-"
 
-_I could run now. I wanted to run. I had this all planned out. I would deliver the message, then serve my time in Ulukoma and come back redeemed. I would survive. But if Kipnu came with me? I would have to fend for both of us in a place like that. He doesn't know how to survive on land alone._
+_I could run now. I wanted to run. I had this all planned out: deliver the message, then serve my time in Ulukoma and come back. I could survive. But if Kipnu came with me? I would have to fend for both of us in Ulukoma. Kipnu couldn't find food in the wild, or fight off someone trying to steal from us. He doesn't know how to survive in a place like that._
 
-I lowered my voice and spoke resolutely. "If you go with me, it will be a long time before you come back."
+I lowered my voice and spoke resolutely. "It may take a while, but I'll be back. I promise."
 
 "What are you talking about? The trains run four times a day."
 
-"This isn't about the trains. I'm going on this journey alone and it might be a while before I'm back."
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians about some important science I didn't understand. To know that I wouldn't be alone when I did what I felt was right. But this wasn't about me. Kipnu needed to be kept safe.
 
-"Stop being cryptic. What are you planning, Liffa?"
-
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of intellectuals about some important science I didn't understand. To know that I wasn't alone in thinking this was the right thing. But this wasn't about me. This was about the whole of us.
-
-The path forward was clear. "Goodbye," I said with a faltering voice.
+"I... I love you," I said. "Goodbye."
 
 I hopped onto Laen and didn't look back.
