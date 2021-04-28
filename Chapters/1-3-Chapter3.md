@@ -202,7 +202,7 @@ He pushed himself up and took a moment to wake, his sleepy eyes still partially 
 
 "You surprised me," he said. "What brings you here?"
 
-"I'm going on a short trip."
+"I'm going on a short trip. I'll be gone for a bit."
 
 "A trip? Where?" He asked, his eyes now completely open.
 
@@ -210,13 +210,13 @@ He pushed himself up and took a moment to wake, his sleepy eyes still partially 
 
 "You're going all the way to the capital to settle an argument? Why can't you wait until she comes back?"
 
-"It's... a long story."
+"It's not an argument anymore."
 
-"You mean you don't want to tell me."
+"Then what is it?"
 
-I paused, scrambling for words.
+"It's a long story, and I don't have the time."
 
-"What's going on-" he pried.
+"I'm not looking for the story," he said exasperated. "I just want to know what you're going to the capital for."
 
 I backed away and stammered, "I'll tell you later. I promised Laen I'd get him some cakes. Take care of him when you get home, will you?"
 
@@ -238,10 +238,18 @@ _I could run now. I wanted to run. I had this all planned out: deliver the messa
 
 I lowered my voice and spoke resolutely. "It may take a while, but I'll be back. I promise."
 
-"What are you talking about? The trains run four times a day."
+"What are you talking about? The trains run all day."
 
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians about some important science I didn't understand. To know that I wouldn't be alone when I did what I felt was right. But this wasn't about me. Kipnu needed to be kept safe.
+I paused not knowing how to respond, and in that time his face turned to realization.
 
-"I... I love you," I said. "Goodbye."
+"No," he said. "You're interrupting the senate?"
+
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians about some important science I didn't understand. To know that I wouldn't be alone when I did what I felt was right. But my comfort wasn't worth Kipnu's safety. I had to keep him out of it.
+
+"Why?" he asked.
+
+I couldn't hold back the moisture pooling on my cheeks, the "mist of grief" as my mother called it. I took a deep breath to cool myself down and wiped it away, and felt even more resolute.
+
+"It's necessary," I said.
 
 I hopped onto Laen and didn't look back.

@@ -36,7 +36,7 @@ She stared at me for a moment, I assume to size up my strange behavior.
 
 "I'll be right there," I told her, and she gave me a nod before heading back.
 
-My bundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
+My bundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up at me as I entere the room and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
 
 "Anything new?", I asked her.
 
@@ -56,11 +56,9 @@ Kipnu walked to the great room to pull some water from the dew column and return
 
 A moment of quiet went by and I could see Melna's mind had moved onto a deeper thought. She released her pen and sat up in her chair, staring longingly out at the door.
 
-<!-- The three of us had joined too early before we could roam across the world. -->
+"It's been a moment, hasn't it," she said with a wistful tone. "The three of us had joined too early before we could roam across the world."
 
-"It's been a moment, hasn't it," she said with a wistful tone.
-
-Kipnu knew what she was thinking. "Last time we went somewhere was to the bay to live with the Hunnin for a week," he said. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
+"Last time we went somewhere was to the bay to live with the Hunnin for a week," said Kipnu. "I'll never forget how bored and hot I was. Who's idea was that again?" He never missed a chance to remind me.
 
 "You're so ungrateful," I defended my choice, "You know we all had fun... doing..."
 
@@ -72,7 +70,7 @@ Kipnu groaned, "There was nothing else to do out there but–"
 
 "That wasn't us," Melna reminded me.
 
-"Yea, but we were all there to cheer on the fisherman," I said. "Anyway, it was beautiful there, and it loosened us up. I would gladly do it all again."
+"It was a group effort! We were all there to cheer on the fisherman," I said. "Anyway, it was beautiful there, and it loosened us up. I would gladly do it all again."
 
 And I would. Because I was happy when they were around. It was the apart times, when the waves of loneliness washed over the cracks in my heart. Those were the moments when I was keenly aware of how wholly inadequate I felt to them.
 

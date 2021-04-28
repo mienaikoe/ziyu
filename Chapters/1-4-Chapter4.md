@@ -10,7 +10,7 @@ She laughed and said, "Oh it's alright. Everyone in Heiko deserves a cake, even 
 
 She tossed a roasted tor-nut handcake into the air and Laen caught it with his mouth with impeccable precision.
 
-"Could I bother you for a couple more for myself and a friend?"
+"Could I bother you for a couple more for myself and a friend?" I asked.
 
 "Just keep those pohua shipments coming in," she said, then handed me two of the same kind. I reached out to take them, but she didn't let go. "I mean it," she said under her breath, "I need more. That last shipment you gave me was makes a far superior syrup than idze."
 
@@ -18,19 +18,21 @@ I looked at her and smiled uncomfortably, "Y-yea... I'll... See what I can do."
 
 Her smile returned, and she said, "Thank you, Liffa... Here, take another!"
 
-I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them. But from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the barely-eaten cake.
+I quickly stowed one in my bag for Pomri, then eyed the other two in my hands. In one bite, the juicy sweetness of pohua filled my mouth with a familiar flavor. She wasn't wrong. They were better than I remembered them.
+
+Suddenly, from the corner of my eye, I saw a dark shadow coming over my hand and Laen's whole head swooped down to steal the barely-eaten cake.
 
 "Laen! That was mine!" I yelled. I gave him a slap on the shoulder and turned away from him to hide my last one. He barely noticed through the chewing.
 
 "Once you're done," I told him through my last two bites, "you go back home ok?" He was still licking his lips, but I knew he'd heard me. I left him humming with satisfaction at the corner, glancing back with an adoring eye before rounding the corner into the train station.
 
-My feet found some rest with my back against a tree near the tracks. I'd oriented myself to hide from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities_. I thought about the crops I had just planted a few days ago. Whether Melna would ask Tiggu to work on them. Whether she would kill them out of spite, or replant them in her own field. But my mind found its way back to the note I was about to deliver. What so powerful a meaning could live within those charcoal ink scribblings?
+My feet found some rest with my back against a tree near the tracks. I'd oriented myself to hide from Kipnu if he had decided to follow me. _This is the right thing_, I affirmed to myself. _No externalities_. I thought about the crops I had just planted a few days ago. Whether Tiggu would kill them out of spite, or replant them in her own field. But my mind found its way back to the note I was about to deliver. What so powerful a meaning could live within those charcoal ink scribblings?
 
-The station attendant's voice spread through the air as thi called for us through a flathorn, "Train to Shaki approaching. All passengers prepare to marshal."
+The station attendant's voice spread through the air as thi called for us through a flathorn, "Train to Shaki approaching."
 
-I quickly picked up my bag and jumped the wall to the marshalling side. The attendant was tall for a maman, but hae voice seemed to go with hae body. I caught a glimpse of a new flow tattoo across hae neck when thi turned around: one strand of dark black differentiating into hundreds of intricate threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I remembered when I'd gotten a flow tattoo when I was younger. Working in the constant light of Ara made the ink turn black, so it looked as if I had some weird genetic defect. My mother laughed when I told her, and recounted how thi had had the same results when thi was my age.
+I quickly picked up my bag and walked toward the growing crowd. The attendant was tall for a maman, but hae voice seemed to go with hae body. I caught a glimpse of a new flow tattoo across hae neck when thi turned around: one strand of dark black differentiating into hundreds of intricate threads of infrared across hae neck. I admired it from afar as I shifted into the line for the 9th car. I remembered when I'd gotten a flow tattoo when I was younger. Working in the constant light of Ara made the ink turn black, so it looked as if I had some weird genetic defect. My mother laughed when I told her, and recounted how thi had had the same results when thi was my age.
 
-The train came rumbling in, its engines and brakes humming with electrical blood. Thi called again, "Train to Shaki. Stops in Rudjan, Yansha, Shaki Harbor, Shaki Central." The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
+The train came rumbling in, its engines and brakes hissing with steam. Thi called again, "Train to Shaki. Stops in Rudjan, Yansha, Shaki Harbor, Shaki Central." The crowd fell into a tighter line against the wall, itching to find a decent place to sit.
 
 "Excuse me," a voice behind me called. "Would you help an old man?"
 
@@ -42,11 +44,11 @@ He was a older man with a polished steel cane in his right hand that he was clea
 
 "Oh, I meant no offense," he explained. "At my age everyone's a youngling; boys, girls, and kalns alike." It was a wholly unsatisfying answer, but I gave him the benefit of the doubt.
 
-The seats were mostly empty but I took one across the carriage from the man; far enough to remain strangers, close enough to become friends. The light of Ara and the wind that it brings had grown to its mid-day peak, but the thick curtains fastened tightly to the wall made them both much more pleasant. The man had trouble finding a good spot for his right leg which seemed to lack the ability to bend, but eventually he settled on a position.
+The Ara-light and the wind that it brings had grown to its mid-day peak, but the thick kelpen curtains fastened tightly to the wall made them both much more pleasant. The seats were mostly empty but I took one across the carriage from the man; far enough to remain strangers, close enough to become friends. He had trouble finding a good spot for his right leg which seemed to lack the ability to bend, but eventually he settled on a position.
 
 "In all my years of riding trains, I've yet to find a spacious seat for people of my condition."
 
-"Perhaps the train builders don't know of your difficulty," I said.
+"Perhaps the train builders don't know how difficult it is for you," I said.
 
 "There are many of us in the world. A sliver of empathy and an old man like me could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
 
@@ -54,11 +56,9 @@ I was amused by his choice of words. "Charming a young maman? At your age?"
 
 "I'm often told that I say too much of what I mean," he explained, "Some may consider it charming, I suppose."
 
-"Too many of my generation are afraid to speak their minds," I said. "Perhaps they could learn something from you."
+I smiled, understanding his view for once. "Too many of my generation are afraid to speak their minds. Perhaps they could learn something from you."
 
-He chortled, "Charming an old man. At your age?"
-
-I laughed. It was loud and it was awkward, but I knew a man like him wouldn't mind.
+He chortled, "Charming an old man. At your age?" I laughed. It was loud and it was awkward, but I didn't mind.
 
 He began again, "so what brings you to the capital?" I froze a bit, surprised that he could guess where I was going.
 
@@ -72,7 +72,7 @@ He began again, "so what brings you to the capital?" I froze a bit, surprised th
 
 "We haven't been too happy with each other lately, so I hope you're right."
 
-"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my bundmaman about my son's first formal wear. We never even asked him what he wanted; we were too bent on winning the fight. For weeks, It went on like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
+"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my bundmaman about my son's first formal robe. We never even asked him what he wanted to wear; we were too bent on winning the fight. For weeks, It went on like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
 
 "... what?" I asked. "One day, what?"
 
@@ -102,7 +102,7 @@ The heat of anger and anxiety came to me again, as it had with Tiggu. I turned m
 
 ---
 
-"Shaki Harbor! Approaching Shaki Harbor!" The conductor had come through our car and was repeating the next stop down the aisle. The suddenness of his voice roused me from my belated midday nap, and I pulled my eyelids open to rejoin reality. _Shaki Harbor? I must have been out for a while._
+"Shaki Harbor! Approaching Shaki Harbor!" The conductor had come through our car and was repeating the next stop down the aisle. The suddenness of his voice roused me from my belated midday nap, and I opened my eyelids to rejoin reality. _Shaki Harbor? I must have been out for a while._
 
 I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen through which an earthen-smelling air was flowing from a dark, infrared landscape. I could make out some short trees and dugout homes amongst the semi-arid hills ambling in the distance, but there were no rolling fields of grain or lush orchards as there were in Heiko. How could Melna feel so comfortable in such a different place?
 
