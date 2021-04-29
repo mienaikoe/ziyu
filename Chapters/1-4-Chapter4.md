@@ -106,9 +106,9 @@ The heat of anger and anxiety came to me again, as it had with Tiggu. I turned m
 
 I sat upright and glanced at the older man in the next seat, sleeping with his leg on the seat across. He looked as sound as a rock. I turned to the outside, facing a screen through which an earthen-smelling air was flowing from a dark, infrared landscape. I could make out some short trees and dugout homes amongst the semi-arid hills ambling in the distance, but there were no rolling fields of grain or lush orchards as there were in Heiko. How could Melna feel so comfortable in such a different place?
 
-The train slowed to a stop and opened its doors, but again only a few people boarded. The cake had not sustained me, and I began to crave for a real meal. _Perhaps I ought to treat myself to something nice in the capital before I get banished... No... I don't have time for that._
+The train slowed to a stop and opened its doors, but again only a few people boarded. The cake had not sustained me, and I began to crave a real meal. _Perhaps I ought to treat myself to something nice in the capital... No... I don't have time for that._
 
-I looked over at the bag by my side and saw a corner of the paper message peeking out. Could such a small thing really change so much? My fingers paused on its edges, hesitating, remembering that Thimlu gave me this message under the confidence that I would not read it. _But I am an observer, the same as them. I should know the same as them._ The letter was marred with creases from all my roaming about, but luckily the fibers and the ink held strong. I saw the dots and the circle I had seen before, but now I could make out the sentences.
+I looked over at the bag by my side and saw a corner of the paper message peeking out. Could such a small thing really change so much? My fingers paused on its edges, hesitating, remembering that Thimlu gave me this message under the confidence that I would not read it. _But I am an observer, the same as them. I should know the same as them._ The letter was marred with creases from all my roaming about, but luckily the fibers and the ink held strong. I saw the dots and the circle I had seen before, but now I could make out the writing.
 
 ```
 Obscura Observation
@@ -118,29 +118,28 @@ I am following up on our conversations about colder temperatures in Heiko and ot
 
 It's difficult to identify the cause, but it's unlikely to be a natural phenomenon as the cloud is roughly homogenous and is growing linearly. As for size, we've concluded that the obscura is following our orbital period in the lagrange point, as a spherical or toroidal cloud would quickly collapse without constant adjustment. It's anybody's guess what this thing is, but personally, I think it's a weapon.
 
-If left alone, the obscura will likely cause colder temperatures, weaker winds, and decreased precipitation. We have some rough estimates for what that will mean to our food supply based on prior cold eras, but this will be unlike any cold era we've ever had.
+If left alone, the obscura will likely cause colder temperatures, weaker winds, and decreased precipitation. We have some rough estimates for what that will mean to our food supply based on prior cold eras, but I want to caution that this will be unlike any cold era we've ever had.
 - 7 days: Fish along the coastlines will migrate to the Bay of Dala'a
-- 10 days: Grain fields and orchards will go dormant
-- 15 days: All crops within Heiko's fertile ring will freeze and die off
+- 8 days: Grains and Orchard fruits will go dormant
+- 10 days: Roots will go dormant
+- 13-15 days: Clay freezes up to 2 paces and all crops die off
 
-We advise immediate action to clear the obstruction by any means necessary. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
+We advise immediate action to stop this by any means necessary. We will continue to monitor and update you everyday, and would appreciate your advice on how we can communicate more efficiently in this time.
 
 - Thimlu
 ```
 
-"What is this??" I whispered aloud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting cold with anxiety. _The farm. Our home... what happens now? And how will the senate receive this from a no-name farmer like me? They would dismiss me as a lunatic if I interrupt them for something this outlandish. Ulukoma would be a death sentence if it got any colder._ It was too much to think of. I closed my eyes, and I rode the waves of anxiety back down. _Now I know why Thimlu was guarding this secret_. I folded up the letter in one nervous motion and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu. _I must deliver this message as soon as possible. My worries can wait until later; I'm doing the right thing for all of Palinan and that's all I need._
+"Obscura?" I whispered aloud, then glanced over at the old man to make sure he was still sleeping. I could feel my skin getting cold with anxiety. _The farm. Our home... what happens now? And the senate would dismiss me as a lunatic if I interrupt them for something this outlandish. Ulukoma would be a death sentence if it got any colder._ It was too much to think of. I closed my eyes, and rode the waves of anxiety back down. _Now I know why Thimlu was guarding this secret_. I folded up the letter in one nervous motion and put it back in my bag, returning my thoughts to my head and my gaze toward the vast darkness of Ulu. _I must deliver this message as soon as possible. My worries can wait until later; I'm doing the right thing for all of Palinan and that's all I need._
 
-"You look like you've seen something you'd rather not have," said the man, startling me. I shot my eyes toward his, gray, washed-out facade and narrowed my eyes in anticipation of some judgment.
+"You look like you've seen something you'd rather not have," said the man, startling me. I shot my eyes toward his, gray, washed-out facade and narrowed my eyes in anticipation of some kind of judgment.
 
-<!-- left off -->
-
-"Mind your eyes," I scoffed. "My personal matters aren't for your entertainment." I was well at the edge of my politeness for the day.
+"Mind your eyes," I scoffed. "My personal life isn't for your entertainment." I was well at the edge of my politeness for the day.
 
 "You ought to mind your tongue," he replied while looking away, with a grin that lavished in seeing anger.
 
 "Do you have something to say?" I asked pointedly, but he didn't seem bothered by my tone.
 
-"My name is Fajro," he introduced himself. "I used to be a fidelant for Holragi back when your fidelant, Melna, was just getting started at the world senate. She was a real firebrand when she started. Her words had a sort of spice, and I knew it very well."
+"The name is Fajro," he introduced himself. "I used to be a fidelant for Holragi back when your fidelant, Melna, was just getting started at the world senate. She was a real firebrand when she started. Her words had a sort of spice to them, and they took her quite far."
 
 "You haven't answered my question," I jabbed.
 

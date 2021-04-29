@@ -62,9 +62,9 @@ Jathi responded eagerly. "There's been a bit of a snag. Melna's already left."
 
 "Were you able to reach anyone?" Jathi asked.
 
-"The only other two observatories are in Holrag and Seroa, and they're both unresponsive. Makes sense, it's the middle of mid-day sleep."
+"I tried the observatories in Holrag and Seroa, and they're both unresponsive. Makes sense, it's the middle of mid-day sleep."
 
-"No worries," Jathi said with a chipper voice. "I'll try Melna's personal line."
+"I'll try Melna's personal line," Jathi said with a chipper voice.
 
 Jathi set himself at the phone desk and set a note flat upon the table in front of him. There was no space for two near him, so I stood closer to the door. I wondered where the usual operator slept during mid-day. It was quite a small building in terms of footprint, but ceiling was far above us, making room for a towering ordered nest of tarred metallic wires and rails. They were dense enough, I imagined, for someone to sleep directly on them, but there wasn't a person in sight.
 
@@ -72,7 +72,7 @@ Jathi began. "Shaki Conduit, This is Heiko Conduit."
 
 A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick and then repeated.
 
-"Shaki Conduit, This is -"
+"Shaki Conduit, This is-"
 
 "Heiko, this is Shaki. Please remember to speak in your turn."
 
@@ -84,19 +84,15 @@ There was silence for a moment as all of the operators paused to listen in.
 
 "The Heiko fidelant's private conduit, please."
 
-The conduit operator paused.
-
-"Heiko, I assume you have a damn good reason for that."
+The conduit operator paused. "I assume you have a damn good reason for that."
 
 "Yes, I do. It's a message pertaining to today's assembly."
 
-He paused and sighed.
-
-"Transferring you to Heiko Senate. Please wait a moment."
+There was a sigh of annoyance on the line befor ethe operator said, "Transferring you to Heiko Senate. Please wait a moment."
 
 I took the moment to move closer to the two of them at the desk. Jathi was busy reading over the paper again and reciting what he was going to say. I glanced at it but couldn't read the writing from my distance. There was a scribbled drawing of a circle and some dots on it, but I couldn't make out what they were.
 
-Thimlu had seen me eyeing the paper and held me back from getting closer. "It would take far too long to explain," he said. "It's best if you didn't read it."
+Thimlu had seen me eyeing the paper and held me back from getting closer. "It's best if you didn't read it," he said.
 
 The line opened and an unenthused woman spoke, "Conduit of the Heiko Senate, Assistant Pomri."
 
@@ -140,9 +136,11 @@ He sighed, "Yea. I'll think about it."
 
 "Oh," she interjected. "And if you do swing by bring me a cake from Gilli's, would ya?"
 
-He lifted his finger from the transmittance button and spoke to the static. "Really? A cake?"
+He lifted his finger from the transmittance button. "Really? A cake?" he asked the static.
 
-I built some resolve and double checked that the microphone was off. "I'll go," I said.
+Thimlu grumbled in frustration, "What a time to be stuck in deliberation."
+
+There was a moment of silent thought between the two of them, but I'd already decided what to do. "I'll go," I said.
 
 Jathi shot me a glance. "What are you talking about?" he asked.
 
@@ -164,19 +162,19 @@ Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... wha
 
 "–Yes!", I said too early. "I mean, uh... If it would please the observers."
 
-Thimlu stood up and from his jacket, he produced a flat disc of brass with an ornate engraving carved into it
+Thimlu stood up and from his jacket, he produced a small disc of brass with an ornate engraving carved into it.
 
 "Heiko Observatory - Liffa um Heiko," I said aloud. "You've kept this with you for so long."
 
 "I've been waiting for the right moment. And well, this one's about as close as we'll get. Welcome to the club," he said.
 
-I was giddy, taking the disc from his hand and moving my fingers across its surface. I'd longed for this moment for such a long time. It was far from the formal ceremonious event than I'd imagined, but I didn't mind. My aim was not for vanity.
+I was giddy, taking the disc from his hand and moving my fingers across its surface. I'd longed for this moment for such a long time. It was far from the formal ceremonious event than I'd imagined, but I didn't mind. I didn't study under Thimlu for the vanity of the job.
 
 Jathi stood behind the table and seemed defeated. His eyes locked with mine and knew that I would not be moved. "I'll make Pomri get you out of there even if I have to bring her a hundred cakes. I've got your back no matter what."
 
 "Don't worry about me," I told him, my hand reaching mindlessly for his. "Whatever they have planned, I can handle it."
 
-I gathered my bag onto my shoulders, and stood near the doorway as they approached me to bid me farewell. Thimlu held the message in his hand and put it in mine, saying "Remember what we talked about. This message is for Melna and Melna alone."
+I gathered my bag onto my shoulders, and stood near the doorway as they approached me to bid me farewell. Thimlu held the message in his hand and put it in mine, muttering to me, "Remember what we talked about. Don't read it, just deliver it to Melna."
 
 I nodded to him respectfully, but I knew what power my insatiable curiosity had over me, and I could not promise him that I wouldn't.
 
@@ -244,7 +242,7 @@ I paused not knowing how to respond, and in that time his face turned to realiza
 
 "No," he said. "You're interrupting the senate?"
 
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians about some important science I didn't understand. To know that I wouldn't be alone when I did what I felt was right. But my comfort wasn't worth Kipnu's safety. I had to keep him out of it.
+His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians to deliver a note. To know that I wouldn't be alone when I did what I felt was right. But my comfort wasn't worth Kipnu's safety. I had to keep him out of it.
 
 "Why?" he asked.
 
