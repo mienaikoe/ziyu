@@ -18,7 +18,7 @@ I waited patiently for an answer that would settle my mind, some glimpse of a so
 
 "Lovely morning, isn't it?"
 
-Startled, I turned around to see my bundwoman, Melna, standing in the light, her hair dancing in time with the leaves.
+Startled, I turned around to see my jundwoman, Melna, standing in the light, her hair dancing in time with the leaves.
 
 "How long have you been here?" I asked.
 
@@ -36,7 +36,7 @@ She stared at me for a moment, I assume to size up my strange behavior.
 
 "I'll be right there," I told her, and she gave me a nod before heading back.
 
-My bundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up at me as I entere the room and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
+My jundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up at me as I entere the room and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
 
 "Anything new?", I asked her.
 
@@ -134,7 +134,7 @@ I embraced her as if she was going on a long journey. She was never too fond of 
 
 Kipnu joined us, and I felt her body loosen up for a brief moment. I may have had doubts, but trust was the only thing that felt right in the moment.
 
-Kipnu and I held each other close and watched as Melna began along her morning route without looking back. Her assistant Pomri stood with her gray-furred saffa at the side of the road, looking as palatial as always. The two of them together always gave me an uneasy feeling. _How strange a feeling... to envy my own bundwoman's assistant_.
+Kipnu and I held each other close and watched as Melna began along her morning route without looking back. Her assistant Pomri stood with her gray-furred saffa at the side of the road, looking as palatial as always. The two of them together always gave me an uneasy feeling. _How strange a feeling... to envy my own jundwoman's assistant_.
 
 "Something's different about her today," Kipnu said. "What were you two talking about?"
 
