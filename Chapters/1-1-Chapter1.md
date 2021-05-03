@@ -36,11 +36,11 @@ I asked her, "You ever wonder at the constancy of it all?"
 
 "Will it ever die?"
 
-She went silent for a moment, to make sense of what I was saying, or so I presumed. My eyes were still locked on the branches towering over me.
+She didn't respond, but I presume she was trying to make sense of the bizarre musings that my curiosity had thought fit to say out loud. But I kept my eyes locked on the branches towering over me, letting my curiosity ask the questions that my worried hearts were ruminating on.
 
-"There's a chill in the air," she remarked, "Come in for a bit, and let the breeze settle."
+"There's a chill in the air," she remarked. "Come in for a bit, and let the breeze settle."
 
-"I'll be there soon," I told her, "Just give me another moment."
+"I'll be there soon. Just give me another moment."
 
 She gave me a nod before heading back.
 
