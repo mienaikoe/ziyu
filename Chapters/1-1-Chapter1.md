@@ -24,17 +24,27 @@ Startled, I turned around to see my jundwoman, Melna, standing in the light, her
 
 "Just a moment. I figured you would be here when I didn't see you in the cellar."
 
-I stayed silent, still listening for the leaves and my mother's voice.
+I went silent again, listening for the song I'd been hoping for, but still there was no sound and Melna hadn't moved from her place.
 
-"You've been gone a while. Breakfast will be ready soon."
+I asked her, "You ever wonder at the constancy of it all?"
 
-"I'll be there in a bit."
+"What?" she asked, confused.
 
-She stared at me for a moment, I assume to size up my strange behavior.
+"Think of Ara. It rises and falls from its throne on the horizon everyday, like an empress greeting her people. But it never stops bringing us light."
+
+"Oh," she said. "I suppose."
+
+"Will it ever die?"
+
+She went silent for a moment, to make sense of what I was saying, or so I presumed. My eyes were still locked on the branches towering over me.
 
 "There's a chill in the air," she remarked, "Come in for a bit, and let the breeze settle."
 
-"I'll be right there," I told her, and she gave me a nod before heading back.
+"I'll be there soon," I told her, "Just give me another moment."
+
+She gave me a nod before heading back.
+
+---
 
 My jundman, Kipnu, was standing over the stove, wearing nothing more than his house shorts and a tired face. He looked up at me as I entere the room and cast a placid smile across his face - the kind that reminded me why I loved him. I walked up to hug and nuzzle him good morning. Melna was squatting at a table in the great room, reading her daily missive.
 
