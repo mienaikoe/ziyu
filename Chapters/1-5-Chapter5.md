@@ -1,12 +1,12 @@
 ## Chapter 5
 
-The city was carved from the body of a tall mountain, with massive veins of white marble meandering between the gray, banded rock. Every road and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest was the Senate, carved from the largest vein of marble and crowned in glimmering brass. I imagined being one of the settlers here, washing and cleaving a small piece of rock to make a home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
+The city was carved from the body of a tall mountain, with massive veins of white marble meandering between the gray, banded rock. Every road and every building, once hidden beneath the ground, now faced proudly toward the orange and red and infrared of Ara's light. High upon the mountain's crest were the senate grounds, carved from the largest vein of marble and crowned in glimmering brass. I imagined being one of the settlers here, washing and cleaving a small piece of rock to make a home. I didn't know much about Shaki then, but I did know that I preferred the soft luxury of grass and kelp to the hard vanity of marble.
 
 "Been a while for you?" Fajro asked me once we'd gotten off the train.
 
 "Yes," I said, in awe at the mess of people scurrying about in the station square. "I haven't been since Melna first became a fidelant."
 
-He was looking up toward the Senate, unmoved by the cacophony of people. "The beauty of Shaki never changes", he said. "In Holrag, we call this place "The diamond of Palinan."
+He was looking up toward the senate, unmoved by the cacophony of people. "The beauty of Shaki never changes", he said. "In Holrag, we call this place "The diamond of Palinan."
 
 "Even after years of coming here, it hasn't lost its luster?"
 
@@ -16,7 +16,7 @@ He was looking up toward the Senate, unmoved by the cacophony of people. "The be
 
 "Everyone has their own personal game that makes their life worth living. Like you keeping your bunds together."
 
-"That's not a game," I said. "That's my life."
+"That's my life. It's not a game," I said.
 
 "What's the difference?"
 
@@ -30,15 +30,15 @@ An air of bustle filled the area with hordes of ferriers carrying cargo in and o
 
 He paused to look around. "You know, I used to keep pace with the ferriers before I busted my knee."
 
-"Oh I bet you could run circles around them," I said. "I've never seen an exhausted fidelant."
+"I imagine your running to and fro is what busted your knee in the first place," I said.
 
 He laughed and said, "The fidelacy is a life dedicated to the pursuit of exhaustion, but none of us would ever dare to show it."
 
-We rode the funicular up the mountain and toward the Senate, making several stops along the way. At each one, I marveled at the beauty of the city from a different angle, and at the people who funneled in and out: the public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, and the occasional artist lost in thought. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry. But there was no time to eat. I had to prepare for what was to come.
+We rode a sort of cable-powered lift up the mountain and toward the senate, making several stops along the way. At each one, I marveled at the beauty of the city from a different angle, and at the people who funneled in and out: the public workers with their dusty canvas tunics, the scribes with their ink-blotted fingers, and the occasional artist lost in thought. Some were carrying their afternoon meal with them as if they had no time to eat, and it made me terribly hungry. But there was no time to eat. I had to prepare for what was to come.
 
 "Senate / Public Square. Last stop," called the operator.
 
-I helped Fajro off the funicular and he took a seat on the first bench he could find to rest his legs. All around the square were pots of dark gray stone filled with clay and desert plants from the east, likely the only things that could grow with in so much light.
+I helped Fajro out of the vehicle and led him to a stone bench a few steps away to rest his legs. All around the square were pots of dark gray stone filled with clay and desert plants from the east, likely the only things that could grow with in so much light.
 
 "Ah this brings me back," said Fajro. "You see that gate? I used to walk through it every day. I would round the left corner as I entered from the west. And the fountain - Oh I loved to perch on the side of that thing and rake my fingers through the cool mist."
 
@@ -52,15 +52,19 @@ I helped Fajro off the funicular and he took a seat on the first bench he could 
 
 "You?"
 
-"I brokered a treaty for the tribes of Holragi to work together in building a rail for all the world. It helped us become the manufacturing giant we are today, and led us to create the space rail."
+"I brokered a treaty for the tribes of Holragi to work together in building a rail for all the world. It helped us become the manufacturing giant we are today, and led us to create the great railway to the sky. The Ara Line."
 
-"You must be proud," I said, wanting to change the subject.
+"You must be proud," I said, not knowing what else to say.
 
-"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privilege. They wanted to expand the observer program; to send explorers with telescopes into space to see what can't be seen from the surface. By the end of our agreement, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privilege. They wanted to expand the observer program; to send observers into space to see what can't be seen from the surface. By the end of my tenure, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
 
-"Nothing in life goes according to plan," I said. "Even this city, I'm sure, is not what its founders had envisioned."
+"Nothing in life goes according to plan," I said, feeling reminiscent of my days as an observer. "There's always something out of your control that can ruin it all."
 
-He feigned agreement with a nod. After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
+He smirked and said, "There are some who search their whole lives for some defense against fate. But once in a generation, a man comes along whose hands fit comfortably upon the lever of kismet, and in doing so becomes an unstoppable force."
+
+I glanced at him as he looked vacantly into the square and felt a strange sense of discomfort at being near him. It seemed there was more to his arrogance than just his ego, but what that was I couldn't be sure. At any rate, my thoughts were focused on calming myself down and observing the area around me, leaving no energy to spend psychoanalyzing a stranger.
+
+After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
 
 Before us was the arch of a gate carved into a massive marble wall, tall enough to fit ten of me underneath. Its edges were decorated with black iron strands, branching and twisting elegantly into ornate patterns that resembled kelp under the ocean. At the base of the gateway a man and a woman stood guard with polished steel spears and a lightweight armor composed of matte black scales.
 
@@ -70,27 +74,25 @@ With cold hands I reached into my shoulder bag for Thimlu's badge, but before I 
 
 "I am Fajro, retired fidelant of Holrag. I have been summoned to deliver a message to the Heiko fidelant that is vital to their deliberations today."
 
-The guard was unmoved. "No one is permitted into the Senate while deliberations are under way. It is an offense to–"
+The guard was unmoved. "No one is permitted into the senate while deliberations are under way. It is an offense to–"
 
 "Yes, I understand. I am delivering this message to her assistant."
 
 "Pomri? She hasn't mentioned this to us."
 
-"I was summoned by the speaker this morning, as the matter is unexpected and urgent."
+"I was summoned by her this morning, as the matter is unexpected and urgent."
 
-She deliberated with her partner, and glanced at me once, sending a shock of worry through my bones. I was getting cold again.
+She whispered a conversatino with her partner, and glanced at me once, sending a shock of worry through my bones. I was getting cold again.
 
 "You are permitted to go, but your attendant cannot come with you."
 
-_NO_
-
-He replied, "My attendant helps me walk on account of my injured knee. I could barely walk here without hae help, much less make it to Pomri."
+I panicked and was prepared to rattle off a list of complaints, but Fajro had already prepared a response far more effective than mine would have been. "My attendant helps me walk on account of my injured knee. I could barely walk here without hae help, much less make it to Pomri."
 
 The man glanced at his partner and begrudgingly walked over to me. I dared not to protest as he slid the bag off my shoulder in one quick movement and rummaged through it before throwing it back at me and gesturing to the other guard.
 
 "Make it quick," said the woman.
 
-We walked under the gate and my eyes grew wide as we walked into a wide circular clearing of gardens and pools and walkways as broad and as wide as all of the farm plots I tended to in Heiko. All around us were flowers and bushes and trees from different parts of the world that could certainly not live in such a hot and dry place without the help of the mamen carrying water to and fro in their fine vinegrass frocks. I wished to venture through the plants and speak to the mamen, but I thought it best not to draw attention to myself.
+We walked under the gate and my eyes grew wide as we walked into a wide circular clearing of gardens and pools and walkways as broad and as wide as all of the farm plots I tended to in Heiko. All around us were flowers and bushes and trees from different parts of the world that could certainly not live in such a hot and dry place without the help of the mamen, dressed in fine robes and strange heabands covering their ears, carrying water to and fro in their fine vinegrass frocks. I wished to venture through the plants and speak to the gardeners, but I thought it best not to draw attention to myself.
 
 As I took in the rest of this place, I was surprised to see that the stone structure that I believed to be a thick wall was more of a circle of rooms, as was unapparent from the outside. The inner-facing wall was full of tall arches, each emblazoned with the crest of one of the seven provinces, and between them were several openings that overlooked the area. Standing prominently at the center was a massive ovoid building standing prominently in the center of the circle and illuminated by the light through the gate we'd come through.
 
@@ -116,7 +118,7 @@ A pang of anger welled up in me, "What sort of plan is that?"
 
 "Alas," he uttered. "The power of law lies in its enforcement. And trust me when I say these guards know the importance of their duty. Not even rascal like me can sway them from the path of justice."
 
-"Noble," I said. "But annoying." I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed only barely possible and only for one of my shorter stature. "What shall I do if they notice me?" I asked.
+"Noble," I said. "But annoying." I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed only barely possible despite my quiet feet and smaller figure. "What should I do if they notice me?" I asked.
 
 "Keep going," he said. "You'll be imprisoned either way."
 

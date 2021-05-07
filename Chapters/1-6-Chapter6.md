@@ -16,7 +16,7 @@ The eyes of the fidelants were locked upon me now, shocked at my mere presence. 
 
 "Yes, I know, but I–"
 
-"You are in corruption of the Senate. You do not belong here. Leave or you will be forced to leave."
+"You are in corruption of the senate. You do not belong here. Leave or you will be forced to leave."
 
 _The mediator was shutting me up, as expected. But I was too far from Melna to get her help._
 
@@ -60,7 +60,7 @@ The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, 
 
 The holding area was dark save for a lantern on a distant wall. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time.
 
-I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the Senate would believe Melna. If they would ridicule her for allowing her jund to break into the Senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
+I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for allowing her jund to break into the senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
 
 A door opened in the next room, waking me from the drone of the cell. I heard a female voice start to talk to the watchman and I listened intently through the wall. It might have been Melna's voice, but I couldn't be sure. The voices moved to the inner door which opened with a mechanical clink, and footsteps began to ring off the gray stone walls. I stood up to see their faces, glowing by the lanterns they held to see me.
 
@@ -194,7 +194,7 @@ When he had finally closed the door on his way out, Melna came in closer to me a
 
 "But then why would he help me?"
 
-"To embarrass me and lower my status in the Senate. Or perhaps he's working some other angle with the senate. Whatever it is you stay away from whatever he's offering, no matter how good he makes it sound. Do you understand?"
+"To embarrass me and lower my status in the senate. Or perhaps he's working some other angle with the senate. Whatever it is you stay away from whatever he's offering, no matter how good he makes it sound. Do you understand?"
 
 "I understand."
 

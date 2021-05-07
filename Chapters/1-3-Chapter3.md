@@ -76,7 +76,7 @@ A couple other callers delivered a message over the line, but the Shaki conduit 
 
 "Heiko, this is Shaki. Please remember to speak in your turn."
 
-Jathi switched to his authoritative voice. "Shaki, we are requesting priority. This is an urgent call to the Senate."
+Jathi switched to his authoritative voice. "Shaki, we are requesting priority. This is an urgent call to the senate."
 
 There was silence for a moment as all of the operators paused to listen in.
 
@@ -144,7 +144,7 @@ There was a moment of silent thought between the two of them, but I'd already de
 
 Jathi shot me a glance. "What are you talking about?" he asked.
 
-"I'll interrupt the Senate," I said. Thimlu chuckled, but Jathi was unamused.
+"I'll interrupt the senate," I said. Thimlu chuckled, but Jathi was unamused.
 
 "You heard Pomri," said Jathi. "You'll be sent to Ulukoma."
 
