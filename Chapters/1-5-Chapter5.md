@@ -92,11 +92,11 @@ The man glanced at his partner and begrudgingly walked over to me. I dared not t
 
 "Make it quick," said the woman.
 
-We walked under the gate and my eyes grew wide as we walked into a wide circular clearing of gardens and pools and walkways as broad and as wide as all of the farm plots I tended to in Heiko. All around us were flowers and bushes and trees from different parts of the world that could certainly not live in such a hot and dry place without the help of the mamen, dressed in fine robes and strange heabands covering their ears, carrying water to and fro in their fine vinegrass frocks. I wished to venture through the plants and speak to the gardeners, but I thought it best not to draw attention to myself.
+We walked under the gate and my eyes grew wide as we walked into a wide circular clearing of gardens and pools and walkways far wider than a Heikoi plot of land. All around us were flowers and bushes and trees from different parts of the world that could certainly not live in such a hot and dry place without the help of the mamen, dressed in fine robes and strange heabands covering their ears, carrying water to and fro in their fine vinegrass frocks. I wished to venture through the plants and speak to them, but I thought it best not to draw attention to myself.
 
-As I took in the rest of this place, I was surprised to see that the stone structure that I believed to be a thick wall was more of a circle of rooms, as was unapparent from the outside. The inner-facing wall was full of tall arches, each emblazoned with the crest of one of the seven provinces, and between them were several openings that overlooked the area. Standing prominently at the center was a massive ovoid building standing prominently in the center of the circle and illuminated by the light through the gate we'd come through.
+As I took in the rest of this place, I was surprised to see that the stone structure all around us that I believed to be a wall was more of a circle of rooms, as was unapparent from the outside. The inner-facing wall was full of tall arches, each emblazoned with the crest of one of the seven provinces, and between them were several openings that overlooked the area, filled with people reading or talking or staring out onto the garden. Standing prominently at the center was a massive ovoid building illuminated by the light of nearly a hundred mirrors at the far side of this place. Upon its white marble walls was an insignia: the seven-tailed halier of the senate with wings flung wide above its head and its talons clutching a scroll.
 
-Fajro interrupted my wonderment, unimpressed by the beauty he'd come to dismiss. "Perhaps it's best that we head towards the Heiko office so as not to seem suspicious. We'll want to enter through that side anyway."
+My wonderment was interrupted by an unimpressed Fajro. "Perhaps it's best that we head towards the Heiko division so as not to seem suspicious. We'll want to enter through that side anyway."
 
 "Good," I said. "I need to give the assistant something."
 
@@ -104,7 +104,7 @@ Fajro interrupted my wonderment, unimpressed by the beauty he'd come to dismiss.
 
 I paused, sensing that Fajro knew more than he was letting on. In any other situation I would stop everything and question him until there were no more lies to tell. But this was his world, as I was learning; a world where the truth had a price. And I was nothing more than a beggar.
 
-We followed the pathways toward the archway beneath the crest of Heiko, and turned the corner to face the building at the center. It was more shaded from this side, but still somehow as radiant as the rest of the city. A door of brass was set into the base of the building – far more modestly sized than the archways we'd seen everywhere else – but two guards stood watch nonetheless, armed with the same scale armor and spears as the ones outside and far more attentive to the world around them.
+We followed the pathways toward the arch beneath the crest of Heiko, and turned the corner to face the building at the center. A door of brass was set into the base of the building – far more modestly sized than the great arched gateways we'd come throough – but two guards stood watch nonetheless, armed with the same scale armor and spears as the ones outside and far more attentive to the world around them.
 
 "How can we get through?" I asked.
 
