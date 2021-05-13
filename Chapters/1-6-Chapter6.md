@@ -6,43 +6,37 @@ I presumed that Melna sat nearby, as the Heiko division of the senate was behind
 
 I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my body low and my eyes forward. My hearts rushed with anxiety as I counted every step toward the center of the hall to remain calm. I could see some people beginning to focus on me one-by-one. The speaker wasn't stopping for me, so I wasn't about to either. Once I'd cleared the wall I immediately rounded the marble wall and looked for Melna, but all that I saw was an empty seat. I turned to face the speaker, whose voice had since stopped, and saw the woman I'd come to find. Thirty paces would be close in any other circumstance, but today she was thirty paces too far.
 
-"Are you lost?" A different voice interrupted her and addressed me directly. His voice sounded as if it were coming from the inside of my own head. Every gaze was locked upon me now, shocked at my mere presence. My pounding hearts and ringing ears were deafening. I looked toward the brighter side of the room where a lantern illuminated the face of a scornful man. He looked back at me, emotionless, cold, intolerant. I had to say something.
+"Are you lost?" A different voice interrupted her and addressed me directly. Her voice sounded as if it were coming from the inside of my own head. Every gaze was locked upon me now, shocked at my mere presence. My pounding hearts and ringing ears were deafening. I looked toward the brighter side of the room where a lantern illuminated the face of a scornful woman. She looked back at me, emotionless, cold, intolerant.
 
-"I.. I've come with important news from observers in–"
+I struggled to begin, "I... I've come with important news from–"
 
-"It is illegal to interrupt the senate."
+"Your mere presence corrupts the senate," she said, her voice overpowering mine with ease. "Leave or you will be forced to leave."
 
-"Yes, I know, but I–"
+I was too far from Melna to get her help.
 
-"You are in corruption of the senate. You do not belong here. Leave or you will be forced to leave."
+"Your piety, mediator Tamna, if I may," Melna's voice boomed through the hall and commanded the attention of all in the room. "Please allow hae to speak."
 
-_The mediator was shutting me up, as expected. But I was too far from Melna to get her help._
+But the mediator was not convinced. "You're risking corruption by lending your voice to this maman," she challenged.
 
-"Your piety, if I may," Melna's voice boomed through the hall and commanded the attention of all in the room. "Please allow hae to speak."
-
-But the mediator was not convinced. "On what grounds?" she challenged.
-
-"I can vouch for whatever thi has to say. Liffa comes from Heiko with important news."
+"I assume responsibility for whatever thi has to say," said Melna with a calm voice. "Liffa comes from Heiko with important news for all of us to hear."
 
 A murmur filled the room, followed by a raised hand of the mediator for all to remain quiet.
 
-"Did you plan for this interruption, Melna?"
+"Why couldn't you announce this news yourself?" Tamna questioned Melna.
 
-"Of course not, your piety. But some news is too–"
+"Your piety," said Melna. "I don't know the details; only the importance of–"
 
-"Nothing. Shall. Interrupt. This. Council!"
+"Nothing is important enough to interrupt the Senate!"
 
-"Your piety, if I may," called another from the far end of the room. "The speaker from Pikshi was interrupted by your interjection, not by this maman's movements."
+"Your piety, if I may," called an older judge from another part of the room. "The senate was interrupted by your interjection, not by this maman's movements."
 
-The room began to rumble as the mediator paused in shock. I took the pause to move to Melna as quickly as possible.
+The room began to rumble as the mediator paused in shock. I took the distraction to move to Melna as quickly as possible.
 
-"Not another step!" The mediator called to me, but I continued.
+"Not another step!" The mediator roared at me, but I continued anyway.
 
-Melna walked out from her desk to receive me, and cast me a scowl of disappointment.
+Melna stepped down from the podium to receive me, and cast me a scowl of disappointment. "What are you doing here?!" She whispered loudly.
 
-"What are you doing here?!" She whispered loudly.
-
-I stayed silent but showed with my face that I knew what I was doing and needed her trust. With much trepidation, she stepped aside for me to walk down the desk aisle to her seat while she sat beside me. I spared no time digging through my bag for the paper message and set it on the desk in front of me. The mediator's anger was apparent, but no one else seemed to be outraged – just surprised and confused.
+I had no words that could express an answer but my face showed her that I knew what I was doing and needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. The mediator's anger was apparent, but no one else seemed to be outraged – just surprised and confused.
 
 As I was preparing to speak, the door I entered through suddenly opened in a loud thud, and the two guards I had snuck behind entered.
 
