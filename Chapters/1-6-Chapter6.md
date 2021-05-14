@@ -2,7 +2,7 @@
 
 Nestled in a walkway between two elevated seating areas, I stood in the shadows, observing all that took place in that grand hall. There was a constant reverberant murmur that filled the hall as a fidelant spoke. Her dialect was Shakii and her voice was far from boring or common, but it didn't have the conviction that Melna's had. Perhaps that's what Fajro meant when he spoke of her spice. To my right was a faint glow, where the mirrors outside had been focusing their light. The senate insignia appeared again upon that wall, in hills and grooves of thicker and thinner marble that played with the light. I took a step forward to see more but I stopped as a pair of eyes at the opposite end of the hall glanced in my direction. The man perused the walkway with his eyes while I dared not move, certain that movement would give me away before a sight of my face at that distant. After a moment he returned his eyes to the Seroai fidelant as if he'd seen nothing. I would have to find a more subtle way to get to Melna.
 
-I presumed that Melna sat nearby, as the Heiko division of the senate was behind me as I'd come through the door. I looked for the fidelants among all of the attendants I could see: the scriveners in their loose vinegrass robes, the judges in well-cut deep black kelp, and the horde of bureacrats in undyed white famba that faded into the marble. The fidelants were unlike the others in their colorful robes, sitting closest to the center. I surmised that Melna would be sitting just to the left of the end of this walkway and that I would have to enter that center circle, bringing all of the senate's attention to myself.
+I presumed that Melna sat nearby, as the Heiko division of the senate was behind me as I'd come through the door. I looked for the fidelants among all of the attendants I could see: the scriveners in their loose brown robes, the judges in well-cut deep black kelp, and the horde of bureacrats in undyed white famba that faded into the marble. The fidelants were unlike the others in their colorful robes, sitting closest to the center. I surmised that Melna would be sitting just to the left of the end of this walkway and that I would have to enter that center circle, bringing all of the senate's attention to myself.
 
 I hesitated, then proceeded with quiet steps along the side of the entryway, keeping my body low and my eyes forward. My hearts rushed with anxiety as I counted every step toward the center of the hall to remain calm. I could see some people beginning to focus on me one-by-one. The speaker wasn't stopping for me, so I wasn't about to either. Once I'd cleared the wall I immediately rounded the marble wall and looked for Melna, but all that I saw was an empty seat. I turned to face the speaker, whose voice had since stopped, and saw the woman I'd come to find. Thirty paces would be close in any other circumstance, but today she was thirty paces too far.
 
@@ -28,25 +28,27 @@ A murmur filled the room, followed by a raised hand of the mediator for all to r
 
 "Nothing is important enough to interrupt the Senate!"
 
-"Your piety, if I may," called an older judge from another part of the room. "The senate was interrupted by your interjection, not by this maman's movements."
+"Your piety, if I may," called an older judge from another part of the room. "The senate was interrupted by your interjection, not by this maman."
 
 The room began to rumble as the mediator paused in shock. I took the distraction to move to Melna as quickly as possible.
 
 "Not another step!" The mediator roared at me, but I continued anyway.
 
-Melna stepped down from the podium to receive me, and cast me a scowl of disappointment. "What are you doing here?!" She whispered loudly.
+Melna stepped down from the pedastal from which she was speaking and cast me a scowl of disappointment. "What are you doing here?!" She whispered with a harsh strain.
 
-I had no words that could express an answer but my face showed her that I knew what I was doing and needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. The mediator's anger was apparent, but no one else seemed to be outraged – just surprised and confused.
+The words that came to mind were inadequate but my face showed to her that I'd come in earnest and needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. She opened it up and perused the drawings before beginning to read. From the corner of my eye I noticed the door that I'd come through suddenly open, and the two heavily-clad guards I had snuck behind entered the senate.
 
-As I was preparing to speak, the door I entered through suddenly opened in a loud thud, and the two guards I had snuck behind entered.
+Padji, the one who was not Fajro's nephew walked to the center of the room and looked around. "Fidelants, judges, and renowned mediator," she said. "We apologize for the interruption, but we suspect that an intruder has infiltrated the senate. Has anyone seen a maman walking about?"
 
-"Pardon us, mediator. An intruder is suspected to be here. Have you seen hae?"
+The mediator pointed at me with a smug grin on her face, and the senate erupted in a clamor. I felt the room getting bigger, and me getting smaller, fading into the dark wall behind me.
 
-The mediator simply pointed, and the guards began walking toward me. I had to speak now before the guards arrived.
+"Stop!" Melna yelled at the guards. "Thi is here at my request!" But they ignored her command.
 
-"There is a growing object in space obstructing Ara. We have five days before it goes dark. We must-"
+Tinpo grabbed my arms and twisted me around, locking them behind me with a grip that was just shy of breaking my wrists. With a sharp thrust, he pulled me off of the wall and back into the empty center. Melna was walking at my side arguing for my freedom, her words filled to the brim with the fire I remembered. I wrested one of my hands free to reach for hers, but Tinpo's arm came quickly down upon mine and pinned it against my body.
 
-The senate was in an uproar as Tinpo and Padji came closer to me. Melna yelled, "Stop!" at them, but they ignored her commands. Tinpo grabbed my arms behind me and locked them with the tightest grip I had felt before, and he thrust me out of my chair and into the walkway. "No!" I screamed and wrested one of my hands free. I reached for the paper, but his hand came quickly down upon mine and locked it in twice as hard. Melna quickly grabbed the paper and chased after me. She said, "I'll finish your message, Liffa. And I'll find you after we adjourn." Padji turned around and held Melna back as gently as she could. My last view of the senate was of Melna, in her robes, standing strong as always, with that small paper slip grasped firmly in her hand.
+"I will tell them what you came here to say," she said. "And I'll come find you after we adjourn." Padji turned around and held Melna back as gently as she could.
+
+As we went through the door, I looked over my shoulder and told her that I loved her, or at least I believe that I did. But I'll always remember what she looked like in that moment, with her face full of determination and a small paper slip grasped firmly in her hand.
 
 ---
 
