@@ -175,10 +175,6 @@ I was surprised at how quickly he agreed, but it was too late to ask for more. W
 
 "We have a deal then," I said in a tone so enrobed in sweetness that I had nearly forgotten the pit in my stomach where a second cake was supposed to be.
 
-"Good. You wouldn't dare waste my time in this uncomfortable train for nothing."
-
-_Your time? What did you board this train for anyway?_
-
 "I also have a condition," he said. "I can get you into the senate, and put the guards at ease, but I will not follow you in or introduce you. Otherwise, I won't be able to bargain with the magistrate."
 
 "But I need you to help me find my way," I said. "You told me that it's like a second home to you."
@@ -187,7 +183,7 @@ _Your time? What did you board this train for anyway?_
 
 "I can survive Ulukoma."
 
-He bellowed a single laugh. "It's not surviving that's difficult. It's leaving that wretched place. The Shakii shout and holler a bunch about consciousness and philosophy but the minute you cause even a minor 'corruption', they send you to a lawless island in the middle of the ocean. Lanre would be ashamed of the legacy she left behind."
+He bellowed a single laugh. "It's not surviving that's difficult. It's leaving that wretched place. The Shakii shout and holler a bunch about consciousness and philosophy but the minute you cause even a minor 'corruption', they send you to a lawless island in the middle of the ocean. Lanre would be ashamed of the legacy he left behind."
 
 I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to sit at her side. But it all felt unnatural, forced. Melna had her own life when she came to Shaki. Didn't she? I imagined being dragged from the building, the paper dropping from my fingers, Melna's eyes turned away. This version of events felt far more palpable.
 

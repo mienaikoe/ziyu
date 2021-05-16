@@ -56,15 +56,37 @@ I helped Fajro out of the vehicle and led him to a stone bench a few steps away 
 
 "You must be proud," I said, not knowing what else to say.
 
-"It would be a sin not to be proud. Alas, the scientists who headed the program won't allow me that privilege. They wanted to expand the observer program; to send observers into space to see what can't be seen from the surface. By the end of my tenure, we still could only send lightweight things into orbit. Even the smallest craft they wanted to send would be too heavy."
+"It would be a sin not to be proud. Alas, the scientists who headed the program do not share my sentiment. They wanted to expand the observer program; to send observers into space to see what can't be seen from the surface. But my political rival, another Holragi, had stoked fear and doubt about the program amongst our observers and engineers. By the time we were ready to send people up, our candidates had all left the program."
 
 "Nothing in life goes according to plan," I said, feeling reminiscent of my days as an observer. "There's always something out of your control that can ruin it all."
 
-He smirked and said, "There are some who search their whole lives for some defense against fate. But once in a generation, a man comes along whose hands fit comfortably upon the lever of kismet, and in doing so becomes an unstoppable force."
+He smirked and said, "You can search your whole life for some defense against fate and never find it. But once in a generation, a man comes along whose hands fit comfortably upon the lever of kismet, and in doing so becomes an unstoppable force."
 
-I glanced at him as he looked vacantly into the square and felt a strange sense of discomfort at being near him. It seemed there was more to his arrogance than just his ego, but what that was I couldn't be sure. At any rate, my thoughts were focused on calming myself down and observing the area around me, leaving no energy to spend psychoanalyzing a stranger.
+"Just a man?" I asked in objection.
 
-After a moment wrapping up his thoughts, he put his hands on the bench, "Well, shall we?"
+"I suppose a woman would do just as well," he conceded.
+
+I was unsatisfied with his answer, but by now I'd known better than to try to convince him that mamen were just as competent as men and women. I looked vacantly into the marble square to the succulents that grew into their pebble beds and the people that must have planted them there lifetimes ago. I imagined the philospher, Lanre, walking these grounds, speaking to himself as one does while in the depths of thought.
+
+"Why are the laws of the senate so rigid?" I asked.
+
+"You mean to ask why you can't simply ask to be let in. Nothing but an odd cocktail of Shakii legalism and political posturing," he answered. "Why do you ask?"
+
+"I'm just noticing that everything in this place is so antiquated. If Lanre were here, watching us now, I think he'd understand that our world is a different place than it was in his time. He would think it mad to call every inconvenience a 'corruption of consciousness'."
+
+Fajro laughed, assenting to the truth. "That may be. But Lanre isn't here. All we have are his writings and the senate that codified these writings into law. The success of the Senate speaks to the success of his teachings."
+
+"And that's enough for you?" I asked. "We've survived, so the law must be good?"
+
+"It's far better than _not_ surviving, wouldn't you say?" He said.
+
+"Surely there's more than one alternative."
+
+"And for each alternative, a long list of side effects and loopholes that they would create. There are many ways write the law, but this is the way that was chosen for the senate. If you believe it is wrong, find a way around it. Or in our case, we break it and deal with the consequences later."
+
+"I do believe that I'm doing the right thing," I said.
+
+"Good," he said, moving his cane to rise from the bench. "You wouldn't dare waste my time for nothing."
 
 Before us was the arch of a gate carved into a massive marble wall, tall enough to fit ten of me underneath. Its edges were decorated with black iron strands, branching and twisting elegantly into ornate patterns that resembled kelp under the ocean. At the base of the gateway a man and a woman stood guard with polished steel spears and a lightweight armor composed of matte black scales.
 
@@ -96,7 +118,7 @@ We walked under the gate and my eyes grew wide as we walked into a wide circular
 
 As I took in the rest of this place, I was surprised to see that the stone structure all around us that I believed to be a wall was more of a circle of rooms, as was unapparent from the outside. The inner-facing wall was full of tall arches, each emblazoned with the crest of one of the seven provinces, and between them were several openings that overlooked the area, filled with people reading or talking or staring out onto the garden. Standing prominently at the center was a massive ovoid building illuminated by the light of nearly a hundred mirrors at the far side of this place. Upon its white marble walls was an insignia: the seven-tailed halier of the senate with wings flung wide above its head and its talons clutching a scroll.
 
-My wonderment was interrupted by an unimpressed Fajro. "Perhaps it's best that we head towards the Heiko division so as not to seem suspicious. We'll want to enter through that side anyway."
+My wonderment was interrupted by an unimpressed Fajro. "Perhaps it's best that we head towards the Heiko division so as not to seem suspicious. You'll want to enter through that side anyway."
 
 "Good," I said. "I need to give the assistant something."
 
@@ -116,9 +138,11 @@ A pang of anger welled up in me, "What sort of plan is that?"
 
 "Anyone can be distracting. But you're a fidelant. Can't you use that somehow to get me in?"
 
-"Alas," he uttered. "The power of law lies in its enforcement. And trust me when I say these guards know the importance of their duty. Not even rascal like me can sway them from the path of justice."
+"Alas," he uttered. "The law may be written with pen, but it is only made real with the spear. These guards know the importance of their duty. Not even a dignified gentleman like me can sway them from it."
 
-"Noble," I said. "But annoying." I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. It seemed only barely possible despite my quiet feet and smaller figure. "What should I do if they notice me?" I asked.
+"Noble," I said. "But annoying."
+
+I began to relish in Fajro's slow walking speed, imagining how I might slip by them unnoticed. My quiet feet and smaller figure might be an advantage in the dark, but I stood no chance in such a well-lit place. "What should I do if they notice me?" I asked.
 
 "Keep going," he said. "You'll be imprisoned either way."
 
