@@ -38,16 +38,12 @@ Melna stepped down from the speaking pedastal and cast me a scowl of disappointm
 
 The words that came to my mind were inadequate to explain but the determined look on my face showed to her that I needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. She opened it up and perused the drawings before beginning to read. She neared the end and raised her eyes from the paper to stop herself from reading. With her face flushed red, she looked out at the the senate thrown into chaos and for the first time I saw a look on her face I had never seen before. For the first time since I had known her, she was uncertain. It was an expression I'd have preferred never to have seen on the woman I loved, but I was proud to be with her in this moment, to hold her hand, to give her something that she could be sure of.
 
-From the corner of my eye I noticed the door that I'd come through suddenly open, and the two heavily-clad guards I had snuck past entered the senate.
+From the corner of my eye I noticed the door that I'd come through suddenly open, and the two heavily-clad guards I had snuck past entered the senate. Padji was in front, searching for me with a keen eye while Tinpo followed behind, trying to catch his breath.
 
-Padji, the one who was not Fajro's nephew walked to the center of the room and looked around. "Fidelants, judges, and renowned mediator," she said. "We apologize for the interruption, but we suspect that an intruder has infiltrated the senate. Has anyone seen a maman walking about?"
+"Fidelants, judges, and renowned mediator," she said as she moved the center of the room. "We apologize for the interruption, but we suspect that an intruder has infiltrated the senate. Has anyone seen a maman walking about?"
 
-The mediator pointed at me with a smug grin on her face, and the senate erupted in a clamor. I felt the room getting bigger, and me getting smaller, fading into the dark wall behind me.
+The mediator pointed at me with a smug grin on her face, and the senate erupted in a clamor. I felt myself becoming smaller as I stood against the wall with nowhere to run.
 
-"Stop!" Melna yelled at the guards. "Thi is here at my request!" But they ignored her command.
+Melna put herself between them and me. "The maman is here at my request," she said. "Do not take hae away." But they held her to the side, ignoring her commands and quickly closing their distance. Tinpo grabbed my arms and twisted me around, locking them behind me with a grip that was just shy of breaking my wrists. With a sharp thrust, he pulled me off of the wall and back into the empty center. Melna was walking at my side arguing for my freedom, her words filled to the brim with the fire I remembered. I wrested one of my hands free to reach for hers, but Tinpo's arm came quickly down upon mine and pinned it against my body with great strength.
 
-Tinpo grabbed my arms and twisted me around, locking them behind me with a grip that was just shy of breaking my wrists. With a sharp thrust, he pulled me off of the wall and back into the empty center. Melna was walking at my side arguing for my freedom, her words filled to the brim with the fire I remembered. I wrested one of my hands free to reach for hers, but Tinpo's arm came quickly down upon mine and pinned it against my body.
-
-"I will tell them what you came here to say," she said. "And I'll come find you after we adjourn." Padji turned around and held Melna back as gently as she could.
-
-As we went through the door, I looked over my shoulder and told her that I loved her, or at least I believe that I did. But I'll always remember what she looked like in that moment, with her face full of determination and a small paper slip grasped firmly in her hand.
+"I will tell them what you came here to say, and I'll come find you after we adjourn," she said. Padji turned around and held Melna away from me as I rounded the corner back on the path I'd come from. As we went through the door, I looked over my shoulder and dared not to say another word. And I'll never what she looked like in that moment: her brave eyes looking back at mine and a small paper slip grasped firmly in her hand.
