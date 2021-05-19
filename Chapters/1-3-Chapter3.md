@@ -32,7 +32,9 @@ I smiled, satisfied to have an unexpected moment of adventure with an old friend
 
 The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. All above us, the deep blue of the sky rose from Ulu like a giant wave from the ocean, and faded into the golden splendor of Ara. Trails of wispy clouds hung in the middle like the puffy fingers of a dark hand reaching for the crown of twilight.
 
-I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse, which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little holes in the blanket of the sky.
+I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse[^1], which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little holes in the blanket of the sky.
+
+[^1]: A day on Palinan takes approximately 3½ earth days.
 
 At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the office of the conduit and quickly hopped off of Laen. I gave him a thankful pat on the neck and he replied with a small cooing of acknowledgement.
 

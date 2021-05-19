@@ -1,34 +1,32 @@
 ## Chapter 7
 
-_"Do you hear it"_
+_"Do you hear it? The ziyu... do you hear it?"_
 
-I paused, listening intently for the sound.
+I looked up and saw my mother. Her smudged skin was illuminated by the low Ara-light of morning, and the leaves on the ziyu above us.
 
-_"The tree... do you hear it?"_
+_"The wind. It speaks,"_ she said.
 
-I looked up at my mother's chin, illuminated by the low Ara-light of morning, and then out to the leaves on the tree swaying in the dim light.
+"And we listen through the silence," I finished hae sentence.
 
-_"The ziyu speaks"_
+Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and her hands began to disintegrate into the wind.
 
-"In the silence," I finished hae sentence.
+_"silence,"_ thi whispered, hae voice now indistinguishable from the wind.
 
-Thi held me closer but felt cold and fragile, like oversaturated clay. Thi kept a smile on her face as thi began to disintegrate between my fingers.
+"Mama, Where are you going?!" I called for hae to stay but thi kept slipping through my fingers, hae body sublimating into a cloud as if it were never there. The dewy breeze picked up and the tree began to sing all around me. I listened closer to the sound; closer than before.
 
-_"silence,"_ thi whispered, and I could no longer distinguish her voice from the wind.
+_What am I listening for?_
 
-"Mama, Where are you going?!" I said, bewildered.
+"Liffa," whispered a voice.
 
-_"silence."_
+_Melna? Where are you?_
 
-Thi sublimated and coalesced into a cloud and vanished into the tree, turning its bark an earthen orange. The breeze picked up and the song of the Ziyu sang loudly all around me as I lay grasping the roots where my mother last spoke. I listened closer to the sound; closer than before. _What am I listening for?_
+"Liffa, wake up."
 
-"Good Morning, Liffa."
+I woke with an ache in my neck and my head resting on a hard surface. The room was dark save for a lantern on a distant wall.
 
-I woke in startled moans, _am I at home?_
+"Melna? Where are you?" I called to her.
 
-<!-- left off -->
-
-The holding area was dark save for a lantern on a distant wall. The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time.
+The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time.
 
 I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for allowing her jund to break into the senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
 
@@ -210,7 +208,7 @@ He continued, "I can come back once you're fully awake."
 
 "Suit yourself."
 
-The magistrate carried a lantern just as yesterday. He wore charcoal gray tightly-woven robes with a white inner layer and a red waist sash of the style of Shaki legalists. His facial expression showed the experience and clarity of at least a Ma'To as an orator.
+The magistrate carried a lantern just as yesterday. He wore charcoal gray tightly-woven robes with a white inner layer and a red waist sash in the style of Shaki legalists. His facial expression and confidence showed his lifetime of experience.
 
 He cleared his throat, mostly as a warmup, and began in a pronounced and regal tone.
 
@@ -310,7 +308,7 @@ He finished writing and folded the paper into an inner pocket of his robe.
 
 "Ok, I have to get all formal again, now."
 
-He took the lantern in his hand and reassumed his regal pose. It made me nervous even though it seemed silly.
+He took the lantern in his hand and assumed his regal pose. It made me nervous even though it seemed silly.
 
 "Liffa Um Heiko, I have gathered as many facts as I could and have reached a conclusion. I find you innocent of corruption of consciousness under the codex of Palinan and absolve you of all accusations of such claim."
 
@@ -320,7 +318,7 @@ I felt a slight relief, but knew the other was inescapable.
 
 The conviction was expected, but it still hurt.
 
-"The sentence shall be a period of three La'To in Ulukoma. Do you understa-"
+"The sentence shall be a period of thirty days in Ulukoma. Do you understa-"
 
 The door opened in a rush, and the magistrate paused to see who caused the disturbance. Two lanterns were in view.
 
@@ -364,27 +362,27 @@ Kipnu turned to the magistrate and pleaded to him, "Please sir. Liffa had every 
 
 Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is beneficial to both Liffa and all of Palinan."
 
-Kipnu and the magistrate turned to him to hear more.
+The magistrate butted in, "Absolutely not. The law does not allow–"
 
-"If Liffa is inclined, thi could work with me in Holrag on our observational study of the obstruction."
+"–I think you'll find that the law does allow alternative punishment if the senate itself should decide," said Fajro as he shoved a letter into the magistrate's chest. Fajro turned his head toward me now as if ensuring that I was paying attention.
+
+"If Liffa is inclined, thi could work with me in Holrag on our observational study of the obscura."
 
 I replied immediately, "I am not inclined."
 
-"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a few days[^1], then you can head back home to Heiko."
-
-[^1]: A day on Palinan takes approximately 3½ earth days.
+"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a few days, then you can head back home to Heiko."
 
 I retorted, "What use would a farmer be to scientists?"
 
-"An ex-engineer, you mean."
+"A farmer? Worthless. But you're more than that aren't you?"
 
 I was aghast. How could he possibly know that?
 
-"I know how you gave up your aspirations for the family business. Honorable, but such a waste of talent."
+"I've heard how you gave up your observer aspirations for the family trade. Honorable, but such a waste of talent."
 
-He was looking straight at me now, with a sincerity that was unmistakeable.
+He was looking straight at me now, with a sincerity that was unmistakable.
 
-"I've seen your eyes. The blood of Holrag is within you. It's been calling since you were born. You must have studied with the observers just to imagine your own _nul sa'am_ to the stars. This journey was meant for you."
+"I've seen your eyes. The blood of Holrag is within you. It's been calling since you were born. You studied with the observers to imagine your own _nul sa'am_ to the stars. This journey was meant for you."
 
 I thought of Jathi, surmised they would need his help to get a vehicle up there and back down again, but I wondered what would convince him. Then I remembered what Melna said about Fajro: his words were a cover for his actions.
 
@@ -400,19 +398,15 @@ The magistrate butted in, "I believe that Fajro's suggestion would be a fitting 
 
 I withdrew from the door and faced the wall. I had never felt so powerless before: my fate was being discussed by a room full of powerful men while I stood in a cell, listening, understanding, with only a choice between two terrible situations. The silence in this room surrounded me, stifled my mind, begged me for an answer. Only the pulse in my head and the gentle shifting of cloth were audible.
 
-"Let's give hae a moment, guys," I heard Kipnu say.
+"Gentlemen, let's give hae a moment," said the magistrate in a humbled tone.
 
-I turned around and found the back of his head and said "Wait, Kipnu. Just you."
+I rushed to turn around. "Wait, Kipnu," I said. "Stay with me. Just you."
 
 The others gathered their lanterns and moved to the other room, the magistrate wrapping his arm around Fajro to help. I walked toward Kipnu but didn't reach for him this time.
 
 "How many people know?" I asked him.
 
-"Know what?"
-
-"What I came here to announce."
-
-"Only the senate. Melna told me it's up to each province to decide that for itself. The governor of Heiko has decided to reveal by hierarchy."
+"Only the senate," he said. "Melna told me it's up to each province to decide that for itself. The governor of Heiko has decided to reveal by hierarchy."
 
 "What's that?"
 
@@ -424,7 +418,7 @@ The others gathered their lanterns and moved to the other room, the magistrate w
 
 "We are a proud bunch. When the steam lines and electric rails were coming up, we held on to tradition. There's a certain sense with crops that farmers have. No machine could ever copy it."
 
-"I beliieve it. I've seen it myself."
+"I believe it. I've seen it myself."
 
 I reached for his shoulders under a thin, tightly woven tunic that he usually wore under his medical aprons. It reached for comfort more than for attention.
 
@@ -512,7 +506,7 @@ He pushed Fajro and held him against the wall, with Fajro letting out a cry of p
 
 "You think you can prey on my family, punk?" He tightened his grip on Fajro's shirt. "Find someone else to murder. Liffa is staying here."
 
-"Kipnu. This is ridiculous. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
+"Kipnu. This is absurd. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
 
 "He's breathing, but unconscious. Kipnu, what were you thinking?"
 
@@ -556,25 +550,25 @@ He sipped some of the water and sat up, motioning to the magistrate for the clot
 
 "I'll be ok."
 
-"I'm going to have to leave. I'll take Kipnu with me. Are you going to be alright?"
+"I'm going to deal with Kipnu. I'll send for a doctor right away."
 
-"Yea I'll be fine."
+"No. No need. I'll be fine."
 
 I asked the magistrate, "What's going to happen to Kipnu?"
 
 He stood up and walked over to me.
 
-"He assaulted Fajro and interrupted his consciousness. He'll receive justice for -"
+"He assaulted Fajro and interrupted his consciousness. He'll receive justice for his crimes."
 
-"Just tell me straight."
+"Just tell me."
 
 "He's going to Ulukoma."
 
-My heart sank. _Dammit, you fool._.
+My heart sank. _Dammit, you fool._
 
 He turned to walk out the door and said to me, "I'm going to handle Kipnu's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
 
-Fajro and I sat in silence for a few va'ka, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kipnu had found something more important. Perhaps he is also doing the right thing.
+Fajro and I sat in silence for a few moments, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kipnu had found something more important. Perhaps he is also doing the right thing.
 
 "Your boy is strong," Fajro said to break the silence. I mended it.
 
@@ -652,7 +646,7 @@ He re-assumed his regal pose with paper and charcoal in hand, and cleared his th
 
 "I do."
 
-"Then I await your decision within the next 500 ticks of Ara's clock[^2]. I will be back to -"
+"Then I await your decision within the next 500 ticks of Ara[^2]. I will be back to -"
 
 [^2]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
 

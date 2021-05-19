@@ -54,39 +54,41 @@ The Ara-light and the wind that it brings had grown to its mid-day peak, but the
 
 I was amused by his choice of words. "Charming a young maman? At your age?"
 
-"I'm often told that I say too much of what I mean," he explained, "Some may consider it charming, I suppose."
+"Oh, pardon my forwardness. I'm often told that I say too much of what I mean," he explained.
 
-I smiled, understanding his view for once. "Too many of my generation are afraid to speak their minds. Perhaps they could learn something from you."
+I nodded, understanding his view. "Too many of my generation are afraid to speak their minds," I said. "Perhaps they could learn something from you."
 
-He chortled, "Charming an old man. At your age?" I laughed. It was loud and it was awkward, but I didn't mind.
+He pretended to be shocked. "Charming an old man. At your age?"
+
+I laughed but became suddenly conscious of the loud and awkward sound of my own voice. Luckily, he didn't seem to mind.
 
 He began again, "so what brings you to the capital?" I froze a bit, surprised that he could guess where I was going.
 
 "My jundwoman works there," I stuttered. "Just bringing her something."
 
-"Ahh. Surprising your jundwoman. I bet she'll be excited," he said.
+"Ahh. Coming all this way to surprise your jundwoman. How thoughtful," he said, almost patronizing.
 
-"Heh. Yea... I hope she receives it well."
+"Heh. Yea..." I trickled my words that I wouldn't say too much. "I hope she receives it well."
 
-"A good jundwoman would be happy that you thought to brighten her day," he said.
+"A good jundwoman would appreciate an attempt to brighten her day," he said.
 
 "We haven't been too happy with each other lately, so I hope you're right."
 
-"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my bundmaman about my son's first formal robe. We never even asked him what he wanted to wear; we were too bent on winning the fight. For weeks, It went on like an obsession or a fever. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
+"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my jundmaman about my son's first formal robe. We never even asked him what he wanted to wear; we were too bent on winning the fight. For weeks, It went on like an obsession. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
 
 "... what?" I asked. "One day, what?"
 
-"The fever was gone. Such an overwhelming impediment was nothing but a trifle. They all end the same way."
+"The fever was gone. Such an overwhelming impediment was reduced to a trifle. They all end the same way."
 
 "You've never had a fight that wouldn't stop?"
 
-He paused and looked at me as if he had seen a younger version of himself in me. "...Perhaps it's better if I don't talk about it."
+He paused and looked at me as if he had seen a younger version of himself in me. "...I'd rather not talk about such things."
 
-"I don't mean to pry. It's just... if you have any advice, it would be greatly appreciated."
+"I didn't mean to pry. It's just... if you have any advice, it would be greatly appreciated."
 
-"Perhaps your parents would give better advice than I can," he said.
+"Perhaps your parents would give better advice than a man like me," he said.
 
-"My mother died shortly before I got married. My father and nather... were never really present." I said. I hoped that opening up to him would make him do the same.
+"My mother died shortly before I got married. My father and nather... well I never knew them," I said. I hoped that opening up to him would make him do the same.
 
 "Oh, that's terrible..." He said, visibly uncomfortable. "Well you did a splendid job raising yourself. Must be those child-rearing instincts you maman have that got you through it."
 
@@ -98,7 +100,7 @@ He paused and looked at me as if he had seen a younger version of himself in me.
 
 He sighed, "We all have a place in society."
 
-The heat of anger and anxiety came to me again, as it had with Tiggu. I turned my eyes toward the curtain, staring between stitches at the dark void of Ulu, while he turned his toward Ara. And like a switch, we'd returned to being strangers on the train.
+The heat of anger came to me again, as it had with Tiggu. I turned my eyes toward the curtain, staring between stitches at the dark void of Ulu, while he turned his toward Ara. And like a switch, we'd returned to being strangers on the train.
 
 ---
 
@@ -137,23 +139,25 @@ We advise immediate action to stop this by any means necessary. We will continue
 
 "You ought to mind your tongue," he replied while looking away, with a grin that lavished in seeing anger.
 
-"Do you have something to say to me?" I asked pointedly, but he didn't seem bothered by my tone.
+"Do you have something to say to me?" I asked pointedly.
 
-"My name Fajro," he sighed and introduced himself. "I used to be a fidelant for Holragi a long time ago. I believe your fidelant, Melna, was just getting started near the end of my tenure. She was a real firebrand back then," he said with a smirk. "Her words had a sort of spice to them, and they took her quite far."
+He sighed and said, "A man by the name of Kipnu sent me to accompany you in your travels." _Dammit, Kip._ "I assume you know him?"
+
+The conversation had become poisoned with distrust. I turned my face away from him and toward the curtain beside me, hoping the silence would break the conversation.
+
+But he continued. "Let me start over. My name is Fajro, and I used to be a fidelant for Holragi a long time ago. Your provincial fidelant, Melna, was just getting started near the end of my tenure. She was a real firebrand back then," he said with a smirk. "Her words had a sort of spice to them, and they took her quite far."
 
 "I didn't ask for an introduction."
 
-"Patience, kaln," he retorted gently. "I promise this chat will be worth all the sleep you're missing." He adjusted his posture to face me a bit better and started again. "I heard you whisper her name as you read that paper of yours and then you went absolutely cold. It's fairly obvious to a keen eye like mine that you're trying to deliver a message to the senate: a message so important that you're willing to risk the island of darkness to deliver it."
+"Patience, kaln," he retorted gently. "I promise this chat will be worth all the sleep you're missing." He adjusted his posture to face me a bit better and started again. "I happened to be in Heiko earlier today, seeking a medical consultation about my leg when Kipnu told me. He said that you were trying to deliver a message to the senate: a message so important that you're willing to risk the island of darkness to deliver it."
 
-My frustration turned inward as I wondered how much else of the message had been accidentally spoken. But I re-centered my mind and affirmed my duty as an observer. "My business is not–"
+My frustration turned inward as I wondered how much else Kipnu told him about. But I re-centered my mind and affirmed my duty as an observer. "My business is–"
 
 "–not going so well. I can tell by the look on your face." He was persistent in his speech.
 
 I continued more forcefully than before, "As I was saying, my business is not yours to scrutinize."
 
 "Ah but it could so easily be," He said. "You see, delivering a message to a senate already in session is no small task. You'll need someone who's done it before."
-
-"How did you–?"
 
 My train of thought had come to a complete stop once I'd fully understood what he was saying. I considered his proposal: an ex-fidelant who knew the ins and outs of the senate would make this a lot easier. He could vouch for me, and maybe I would face a lesser sentence. But his constant smiling and insistent bigotry made my skin crawl. I had to know his angle.
 
