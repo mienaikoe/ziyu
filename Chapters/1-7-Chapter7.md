@@ -1,3 +1,17 @@
+<!--
+
+- Liffa, Fajro, and the Magistrate are meeting
+- Melna is stuck late in deliberation and so she can't come
+- Fajro gives the offer
+- Right as Liffa refuses shyly, Kipnu barges in and roughs Fajro up
+- Kipnu is held back, Magistrate leaves to call for a doctor and handle Kipnu
+- Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it.
+- Doctor enters with the magistrate and checks on Fajro
+- Liffa is more agreeable and magistrate is pleased
+- Liffa asks about Kipnu, but magistrate says nothing can be done. Fajro says "the law is the law. Nothing can be done", basically.
+
+-->
+
 ## Chapter 7
 
 _"Do you hear it? The ziyu... do you hear it?"_

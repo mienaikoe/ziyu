@@ -1,3 +1,16 @@
+<!--
+
+- Jathi arrives to support the journey
+- Fajro gives commands, shows he's in control now
+- Jathi expresses that he's excited for the task, that Melna had appointed him herself
+- They see the space rail and the accompanying clay buildings where their homes will be for the near future
+- "Why did you lie to me?"
+- "Did you really meet Kipnu yesterday?"
+- "Some fabrications are for the greater good"
+- "That's not for you to decide"
+- "Isn't it?"
+-->
+
 ## Interlogue
 
 The magistrate re-entered the room while the cell guard held Kipnu's hands behind his back. In the light, Kipnu could see that the magistrate's eyes were wholly uninterested in his job. They were disappointed in Kipnu, but not surprised.
