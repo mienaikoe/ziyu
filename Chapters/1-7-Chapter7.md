@@ -14,33 +14,29 @@
 
 ## Chapter 7
 
-_"Do you hear it? The ziyu... do you hear it?"_
+"Do you hear it? The ziyu... do you hear it?"
 
-I looked up and saw my mother. Her smudged skin was illuminated by the low Ara-light of morning, and the leaves on the ziyu above us.
+I looked up and saw my mother. Hae smudged skin was illuminated by the low Ara-light of morning, and the leaves on the ziyu above us.
 
-_"The wind. It speaks,"_ she said.
+"The wind. It speaks," thi said.
 
-"And we listen through the silence," I finished hae sentence.
+"And we listen through the silence," I said.
 
-Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and her hands began to disintegrate into the wind.
+Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and her hands began to disintegrate into the breeze.
 
-_"silence,"_ thi whispered, hae voice now indistinguishable from the wind.
+"listen," thi whispered, hae voice now indistinguishable from the wind.
 
-"Mama, Where are you going?!" I called for hae to stay but thi kept slipping through my fingers, hae body sublimating into a cloud as if it were never there. The dewy breeze picked up and the tree began to sing all around me. I listened closer to the sound; closer than before.
+"Mama, Where are you going?!" I called for hae to stay but thi kept slipping through my fingers, hae body sublimating into a cloud as if it were never there. The dewy breeze picked up and the tree began to sing all around me.
 
-_What am I listening for?_
+"What am I listening for, mama?
 
-"Liffa," whispered a voice.
+"Listen," said the breeze.
 
-_Melna? Where are you?_
+The whole world began to fade with her as I slowly came out of the dream. The room was dark save for a small curtained window on a distant wall that threw an infrared glow across the black marble floor. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My face still had a residue from the grief I'd spilled upon myself, so I must have fallen asleep like that. What a mess I'd been.
 
-"Liffa, wake up."
+The tiniest sounds were reverberating off the walls, loud enough to startle me: a short breeze through the window, a little milta scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. All these quiet sounds amplified the sticky feeling on my skin such that I'd have bathed in a trickle of water if I'd been afforded such a luxury.
 
-I woke with an ache in my neck and my head resting on a hard surface. The room was dark save for a lantern on a distant wall.
-
-"Melna? Where are you?" I called to her.
-
-The tiniest sounds became loud enough to startle me: a short breeze through the window outside, the family of miltas scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. I was tempted several times to lie on the dusty floor, but I knew that I wouldn't be able to bathe for a long time.
+<!-- left off -->
 
 I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for allowing her jund to break into the senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
 
