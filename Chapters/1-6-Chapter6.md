@@ -36,7 +36,9 @@ The room began to rumble with voices as the mediator paused in shock. I took the
 
 Melna stepped down from the speaking pedastal and cast me a scowl of disappointment. "What are you doing here?!" She whispered with a strained air.
 
-The words that came to my mind were inadequate to explain but the determined look on my face showed to her that I needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. She opened it up and perused the drawings before beginning to read. She neared the end and raised her eyes from the paper to stop herself from reading. With her face flushed red, she looked out at the the senate thrown into chaos and for the first time I saw a look on her face I had never seen before. For the first time since I had known her, she was uncertain. It was an expression I'd have preferred never to have seen on the woman I loved, but I was proud to be with her in this moment, to hold her hand, to give her something that she could be sure of.
+The words that came to my mind were inadequate to explain but the determined look on my face showed to her that I needed her trust. With cold shaking hands, I dug through my bag for the paper message and set it into her hand. She opened it up and perused the drawings before beginning to read.
+
+"Obscura?" she whispered. A look of worry overtook her as her eyes rose from the paper. She looked out at the the senate thrown into chaos and for the first time since I had known her, she looked uncertain. It pained me to see her this way, but I was glad to be with her in this moment, to hold her hand, to give her something that she could be sure of.
 
 From the corner of my eye I noticed the door that I'd come through suddenly open, and the two heavily-clad guards I had snuck past entered the senate. Padji was in front, searching for me with a keen eye while Tinpo followed behind, trying to catch his breath.
 

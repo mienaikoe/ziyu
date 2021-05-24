@@ -36,7 +36,7 @@ The train came rumbling in, its engines and brakes hissing with steam. Thi calle
 
 "Excuse me," a voice behind me called. "Would you help an old man?"
 
-He was a older man with a polished steel cane in his right hand that he was clearly making use of. Upon his face was a perfect Holragi smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
+He was a older man with a polished silver cane in his right hand that he was clearly making use of. Upon his face was a perfect Holragi smile – so perfect that I ought to have known better than to trust it. I obliged his request, lending my hand to him to climb the steps into the carriage.
 
 "Thank you, my kaln," he said. I had grown accustomed to condescension, being a maman that I was, but the endearment in his voice surprised me. It was as if he'd called me a child as a compliment.
 
