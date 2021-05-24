@@ -32,15 +32,13 @@ Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and he
 
 "Listen," said the breeze.
 
-The whole world began to fade with her as I slowly came out of the dream. The room was dark save for a small curtained window on a distant wall that threw an infrared glow across the black marble floor. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My face still had a residue from the grief I'd spilled upon myself, so I must have fallen asleep like that. What a mess I'd been.
+The whole world began to fade to darkess as the dream melted away and I slowly came back to reality. The room was dark save for a small curtained window on a distant wall that threw an infrared glow across the black marble floor. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My cheek was caked with dust from the floor I'd been sleeping on, affixed there by the sweat and grief I'd spilled before sleep took me away from all this. I'd have bathed in a trickle of water if I'd been afforded such a luxury.
 
-The tiniest sounds were reverberating off the walls, loud enough to startle me: a short breeze through the window, a little milta scurrying about in search of food. Even the racing thoughts in my mind made a cacophonous buzz. All these quiet sounds amplified the sticky feeling on my skin such that I'd have bathed in a trickle of water if I'd been afforded such a luxury.
+The tiniest sounds were reverberating off the walls: a short breeze through the window, a little milta scurrying about in search of food, and the buzz of thoughts running through my head. I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if all this silence was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for what I'd done. And where was the man who helped me? My accomplice, Fajro? Would he come to vouch for me as he'd promised?
+
+A door opened in the next room, waking me from the drone of the cell. I heard a man and a woman talking and I listened intently to their muffled voices through the door. Their tone and dialect were unfamiliar to me, but I'd already learned not to trust my own ears outside of Heiko. The two moved to the inner door and opened it with a mechanical clink, and footsteps began to ring off the gray stone walls. I stood up to see their faces, glowing by the lanterns they held to see me.
 
 <!-- left off -->
-
-I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if this silent time was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for allowing her jund to break into the senate and say such ridiculous things. And where was the man who helped me? My accomplice? How did he think this would work? He couldn't have stood there distracting them forever.
-
-A door opened in the next room, waking me from the drone of the cell. I heard a female voice start to talk to the watchman and I listened intently through the wall. It might have been Melna's voice, but I couldn't be sure. The voices moved to the inner door which opened with a mechanical clink, and footsteps began to ring off the gray stone walls. I stood up to see their faces, glowing by the lanterns they held to see me.
 
 "Liffa, you have a visitor," the watchman said.
 
