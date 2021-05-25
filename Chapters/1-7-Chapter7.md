@@ -36,7 +36,7 @@ The whole world began to fade to darkess as the dream melted away and I slowly c
 
 The tiniest sounds were reverberating off the walls: a short breeze through the window, a little milta scurrying about in search of food, and the buzz of thoughts running through my head. I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if all this silence was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for what I'd done. And where was the man who helped me? My accomplice, Fajro? Would he come to vouch for me as he'd promised?
 
-A door opened in the next room, waking me from the drone of the cell. I heard a man and a woman talking and I listened intently to their muffled voices. Their tone and dialect were unfamiliar to me, but I'd already learned not to trust my own ears outside of Heiko. The two moved toward the door that I could see from my cell and opened it with a mechanical clink. Two pairs of footsteps began to ring off the gray stone walls and I stood up to see the first figure, a man who was somewhere between young and old, robed in gray, with a face cast orange by the lantern he held in his hand. The other stood at length in the dark, but I could tell by his silver cane that it was Fajro.
+A door opened in the next room, waking me from the droning fog of a daydream. Two men were continuing a conversation as they moved through the room and I listened intently to their muffled voices. Their tone and dialect were unfamiliar to me, but I'd already learned not to trust my own ears outside of Heiko. Their voices approached the door of my room and it opened it with a mechanical clink. Their footsteps began to ring off the gray stone walls and I stood up to see the first figure, a man who was somewhere between young and old, robed in gray, with a face cast orange by the lantern he held in his hand. The other stood at length in the dark, but I could tell by his silver cane that it was Fajro.
 
 "Liffa, we've come to pay you a visit," said the robed man. He gifted me a genuine smile, the first I'd seen since leaving Heiko, and it set me at ease for the moment. "Hope we didn't wake you."
 
@@ -50,27 +50,45 @@ I hesitated, trying to remember. "The guard... Tinpo. He said you would be here 
 
 I felt disoriented. How could it be morning already?
 
-He continued, "We can come back once you're fully awake."
+The magistrate saw the bewildered expression on my face and said, "We can come back once you're ready."
 
-Fajro interjected, "If I may, magistrate, Liffa is quite awake, and clearly fit for a trial. A delay will only make this more difficult for Liffa."
+Fajro interjected in his boisterous tone. "If I may, your piety, a delay will only make this more difficult for Liffa. We should do what we can to get hae out of this dingy place."
 
-"I suppose," he said. The magistrate considered his words and looked toward me. I could see the confidence in his posture and facial expression that his lifetime of experience as a magistrate must have given him. "Does this suit you, Liffa?" he asked.
+"Perhaps," said the magistrate. He considered his words and looked toward me. I could see the confidence in his posture and facial expression that his lifetime of experience in law must have given him. "Liffa, how are you feeling?" he asked.
 
-He cleared his throat, and began to speak in a pronounced and regal tone. "Liffa Um Heiko, you have been charged with corruption of consciousness and interruption of the senate during its deliberation. Do you understand?"
+"I want to talk to Melna," I said.
+
+Fajro interrupted, "The senate has been in deliberation all night about the message you delivered. They've had a few breaks for rest and administration, but they're still debating this very moment. Melna won't be able to come here for a while."
+
+"They didn't sleep?" I asked.
+
+The magistrate spoke again with his calming voice, "I would love to wait until Melna is ready, but we don't yet know when that will happen."
+
+"Then I'll wait," I said, walking away. "I can wait here for her."
+
+He wore a pitied look. "I'm sorry Liffa. The law permits me but a day for a case like yours. Perhaps there's someone else who you'd like as a witness?"
+
+I looked at Fajro, and he gave me a nod of trust. Perhaps he really was true to his word.
+
+"No," I said. "Fajro will be sufficient."
+
+"Very good," said the magistrate. "Now then, shall we?"
+
+He cleared his throat, and began in a pronounced and regal tone. "Liffa Um Heiko, you have been charged with corruption of consciousness and interruption of the senate during its deliberation. Do you understand?"
+
+I hesitated, wondering why he was asking a rhetorical question at such a time. But he was patient and waited for me to respond on my own. "Y-Yes," I said.
+
+"As an instrument of the law, I am compelled to question every detail, that all the facts of a matter may see the light of Ara. Do you understand?"
+
+"Yes."
+
+"As an instrument of justice, it is my duty to decide a punishment that fits the facts. Do you understand?"
 
 "I do."
-
-"As a magistrate, it is my duty to uncover the facts surrounding a matter and deliver a just punishment under the law. Do you understand?"
-
-"I do."
-
-"Do you submit to questioning, that all truths and falsehoods may be uncovered for what they are."
-
-"I do."
-
-<!-- left off -->
 
 He broke into a more casual tone, "So at this point, I'm just gonna ask you some questions about yesterday, and make sure they check out with what I heard from the other interviews."
+
+<!-- left off -->
 
 I was a bit surprised, but stammered an "Okay" in my sleepy stupor. He hung the lantern up on a hook and produced a paper and charcoal.
 
