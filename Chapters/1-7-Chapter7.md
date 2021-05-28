@@ -40,21 +40,27 @@ A door opened in the next room, waking me from the droning fog of a daydream. Tw
 
 "Liffa, we've come to pay you a visit," said the robed man. He gifted me a genuine smile, the first I'd seen since leaving Heiko, and it set me at ease for the moment. "Hope we didn't wake you."
 
-"N-No, not at all," I stammered. I instinctively wrapped my arms around my belly.
+"N-No, not at all," I stammered. I instinctively put my hands on my belly.
 
 "I'm Sunte, and I'll be the magistrate for your case." He put his hands behind his back to reveal the red sash of Shaki legalists at his waist. "You were told that I would be here, no?"
 
 I hesitated, trying to remember. "The guard... Tinpo. He said you would be here in the morning."
 
-"Ah. I see. I hope this doesn't come as a shock to you, but we are in the mist of the morning."
+"Ah. I see. I hope this doesn't come as a shock to you, but we are... in the mist of the morning."
 
-I felt disoriented. How could it be morning already?
+I felt disoriented. How could it be morning already? The magistrate saw the bewildered expression on my face and said, "We can come back once you're ready."
 
-The magistrate saw the bewildered expression on my face and said, "We can come back once you're ready."
+"No, No, I'm fine," I said. "I just...I can't believe it."
 
-Fajro interjected in his boisterous tone. "If I may, your piety, a delay will only make this more difficult for Liffa. We should do what we can to get hae out of this dingy place."
+"The stay in these cells can be rather disorienting," he said. "This tiny window doesn't let much light through. Hard to tell the color of Ara."
 
-"Perhaps," said the magistrate. He considered his words and looked toward me. I could see the confidence in his posture and facial expression that his lifetime of experience in law must have given him. "Liffa, how are you feeling?" he asked.
+I could see the confidence in his posture and facial expression that his lifetime of experience in law must have given him. I grew curious. "You are... a magistrate?" I asked him. "Are all magistrates so nice?"
+
+He laughed and said "I find these things go smoother when I'm not judging you from my shining pedestal on high. We all do strange things. Whether we feel convinced it's the right thing, or a fit of anger compelled us. I'm not here to judge you personally. I'm just here to translate the law as it pertains to you."
+
+I would have liked to say something more eloquent than "Thank you", but that is unfortunately the chain of words that my tongue had decided to express. The extent of my exhaustion had become awkwardly clear, but thankfully he changed the subject.
+
+"How are you feeling?" he asked. "Do you need anything before we begin?"
 
 "I want to talk to Melna," I said.
 
@@ -86,89 +92,77 @@ I hesitated, wondering why he was asking a rhetorical question at such a time. B
 
 "I do."
 
-He broke into a more casual tone, "So at this point, I'm just gonna ask you some questions about yesterday, and make sure they check out with what I heard from the other interviews."
+He broke his regal posture into a more casual stance and said, "So, now I just need to ask you some questions about yesterday, and make sure they check out with what I've heard from others. Answer what you can, but if you don't remember or don't know something, simply say so and I won't push any further. If at any time you feel compelled or overwhelmed you can refuse to answer, but remember that this is your opportunity to plead your version of the story. I cannot change the law, nor can I change the past, but I can reduce the severity of your punishment."
 
-<!-- left off -->
+I was a bit confused by the ceremony of it all, but I stammered an "Okay" anyway, hoping to be done with all this questioning. He hung his lantern up on a thick steel peg that was hiding in the shadows and produced a small slab of marble with a leaf of paper affixed to it, and a well-used charcoal-ink pen from a small case tied around his wrist.
 
-I was a bit surprised, but stammered an "Okay" in my sleepy stupor. He hung the lantern up on a hook and produced a paper and charcoal.
+"Let's begin with the main question at hand. Did you do it?"
 
-"All right. Question one -"
+I paused, wondering if his question was a joke. "There were hundreds of witnesses. I couldn't lie my way out of that if I wanted to."
 
-"Wait.. Why are you being so nice to me? I'm a criminal."
+He smiled and said, "I'm just ensuring common ground, that's all. Now, tell me what led you to the interruption. What was the initial spark for all this?"
 
-"I find these things go smoother when I'm not judging you from my shining pedestal on high. We all do strange stuff. Whether we feel convinced it's the right thing, or a fit of passion compelled us. I'm not here to judge you personally. I'm just here to translate the law."
+"I had to announce some news," I said.
 
-"Oh. That makes sense."
+He started to write on his paper. "It couldn't wait until after deliberation?" he asked as he finished his writing.
 
-"So anyway, Question one. What did you barge into the senate for?"
+"It was urgent," I explained. "I had to get it out before they adjourned and left for the day."
 
-"I had to announce some news."
+"Did you try asking anyone for help?"
 
-"It couldn't wait until after deliberation?"
+"I did," I said. "I asked Melna's assistant Pomri from the conduit in Heiko."
 
-"It was highly urgent; I had to get it out before they locked themselves into a spending decision or adjourned and left for the day."
+"And what happened?"
 
-"Did the senate agree?"
+"She declined to help. She didn't want to be sent to Ulukoma."
 
-"It's uncertain. I think you'll find many who did."
+I looked toward him, saw the warmth in his eyes despite his calculated words. There was no judgment in them, just observation. I'd never spoken to someone who was so attentive, or so charmingly intimidating. An affable paradox.
 
-He finished jotting his notes and then turned the page for the next question.
+He finished jotting his notes and then turned the page for the next question. "How did you come upon this news?" he asked.
 
-"Question two. How did you come upon this news?"
-
-"It was hand-delivered to me by the lead Ara observer of Heiko."
-
-"Why wasn't the observer the one to deliver it?"
-
-"He had to continue his observations."
-
-"And your job?"
-
-"I'm just a farmer. I can skip a day and make it up later."
-
-"Well, not anymore," he said under his breath, and continued.
-
-"So why was this message delivery delegated to you, Liffa?"
-
-"It was intended for Melna, my jundwoman."
+"An observer in Heiko intended for a message to be delivered to Melna in the morning. But she was gone when he tried to deliver it."
 
 "Melna? As in žah-Melna, the Heiko fidelant?"
 
 "Yes."
 
-"Ah. I see."
+"And you were there when they showed up?"
 
-He wrote some more notes and turned the page again.
+"Ah, yes. Melna is my jundwoman," I said.
 
-"So that leads to question 3. How did you get into the deliberation hall in the first place?"
+"I see," he said, scribbling his notes quicker now. "And then?"
 
-"I was helping a disabled ex-fidelant who was traveling to the senate."
+"The observer and I went to the conduit and we spoke to Pomri who refused us. We talked about what to do, and then... I volunteered to deliver it."
 
-"My, you certainly walk in high circles. You have a name?"
+"Did you know what you were delivering at the time?" he asked.
 
-He stared at me, while I hesitated.
+"Well, no, but I trusted them," I said. I pondered showing my badge, to show him that my trust was not misplaced. But I wanted to keep the observatory out of it. "It was imperative that they continue their work and I was available."
 
-He said, "Come on, Liffa. I've got no intention of nabbing your friend. There's nothing illegal about an ex-fidelant walking the grounds."
+"Were you being coerced or blackmailed?" he asked plainly.
 
-I thought about what Melna said about him. To never trust Fajro. Perhaps the truth would help me more than protecting him would.
+"No!" I said, surprised. "Absolutely not! They're my friends. They would never do such a thing to me!"
 
-"Fajro. He was a fidelant for Holrag."
+He smiled as he wrote. "I just needed to check, that's all," he said. He turned the page again with a deep breath. "So that leads to my next question: how did you get into the deliberation hall?"
 
-"Fajro, eh? That explains why he was so eager to ask about you."
+I thought of glancing at Fajro to ask for help or a sign, but the magistrate's all-seeing eyes were so apparent that I was afraid he would see even the faintest of movements. So I looked squarely at Sunte and told him the truth. "I was helping a disabled man who was traveling to the senate."
 
-"He asked about me?"
+"Do you have a name?"
 
-"You could say that. But we'll talk about that later. You were saying?"
+I was taken aback. "Don't you know already?" I asked.
 
-"Oh. Yes, I was helping him walk on account of his injured leg, and he was helping me get to the deliberation hall. He believed in the importance of the news too."
+The magistrate was amused. "I may, I may not," he said. "I have neither the inclination nor the liberty to say. My questions are simply a way for me to understand you."
 
-"And how exactly did he help you?"
+"I see," I said. In a frantic hesitation, I tried to manufacture a name so as not to incriminate the one person who could bring an end to this mess, but my mind had frozen in time with the magistrate's eye upon me.
 
-"He distracted the guards while I... snuck in."
+Fajro interrupted. "Your piety," he said. "It's quite stressful for the maman to be asked to reveal the name of a... close friend. Perhaps we should move to another question and revisit this later."
 
-"Ah, that makes sense."
+The magistrate turned to face the ex-fidelant and looked him in the eye. There was a moment of understanding, and perhaps hostility between the two of them as they stared at each other for a brief moment. "No need," he said quietly, almost submissively. "I think I have what I came for." He folded the paper into an inner pocket of his robe and glanced at me, unable to look me in the eye. "I'll be back shortly for your sentencing."
 
-He finished writing and folded the paper into an inner pocket of his robe.
+"I'll follow you out," said Fajro. "I insist."
+
+"Very well," said the magistrate. His eyes were no longer taking in the world around him but were mired by his own mind. The two left me alone again, Fajro's hand solidly on Sunte's arm, and I wondered what unspoken words had been exchanged just in front of me.
+
+<!-- cut from elsewhere, needs a home -->
 
 "Ok, I have to get all formal again, now."
 
