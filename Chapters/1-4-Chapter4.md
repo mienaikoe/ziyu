@@ -187,7 +187,7 @@ I was surprised at how quickly he agreed, but it was too late to ask for more. W
 
 "I can survive Ulukoma."
 
-He bellowed a single laugh. "It's not surviving that's difficult. It's leaving that wretched place. The Shakii shout and holler a bunch about consciousness and philosophy but the minute you cause even a minor 'corruption', they send you to a lawless island in the middle of the ocean. Lanre would be ashamed of the legacy he left behind."
+He bellowed a single laugh. "It's not surviving that's difficult – it's leaving that wretched place. A lawless island in the middle of the ocean where the damned lead the foolish. The ones who come back are never the same again. I'm no legalist but I am certain that Lanre would be ashamed."
 
 I stared at the thatched seat in front of me and imagined Melna there, comforting me, inviting me to sit at her side. But it all felt unnatural, forced. Melna had her own life when she came to Shaki. Didn't she? I imagined being dragged from the building, the paper dropping from my fingers, Melna's eyes turned away. This version of events felt far more palpable.
 

@@ -32,7 +32,7 @@ Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and he
 
 "Listen," said the breeze.
 
-The whole world began to fade to darkess as the dream melted away and I slowly came back to reality. The room was dark save for a small curtained window on a distant wall that threw an infrared glow across the black marble floor. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My cheek was caked with dust from the floor I'd been sleeping on, affixed there by the sweat and grief I'd spilled before sleep took me away from all this. I'd have bathed in a trickle of water if I'd been afforded such a luxury.
+The whole world began to fade to darkess as the dream melted away and I slowly came back to reality. The room was dark save for a small window that faced toward another wall with just a hint of Ara-light coming in from above. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My cheek was caked with dust from the floor I'd been sleeping on, affixed there by the sweat and grief I'd spilled before sleep took me away from all this. I'd have bathed in a trickle of water if I'd been afforded such a luxury.
 
 The tiniest sounds were reverberating off the walls: a short breeze through the window, a little milta scurrying about in search of food, and the buzz of thoughts running through my head. I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if all this silence was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for what I'd done. And where was the man who helped me? My accomplice, Fajro? Would he come to vouch for me as he'd promised?
 
@@ -156,105 +156,59 @@ The magistrate was amused. "I may, I may not," he said. "I have neither the incl
 
 Fajro interrupted. "Your piety," he said. "It's quite stressful for the maman to be asked to reveal the name of a... close friend. Perhaps we should move to another question and revisit this later."
 
-The magistrate turned to face the ex-fidelant and looked him in the eye. There was a moment of understanding, and perhaps hostility between the two of them as they stared at each other for a brief moment. "No need," he said quietly, almost submissively. "I think I have what I came for." He folded the paper into an inner pocket of his robe and glanced at me, unable to look me in the eye. "I'll be back shortly for your sentencing."
+The magistrate turned to face the ex-fidelant and looked him in the eye. There was a moment of understanding, and perhaps hostility between the two of them as they stared at each other for a brief moment. "No need," he said quietly, almost submissively. "I think I have the facts I was looking for." He folded the paper into an inner pocket of his robe and glanced at me, unable to look me in the eye. "I'll be back shortly for your sentencing," he said as he hurried toward the door. I wondered what unspoken words had been exchanged between them.
 
-"I'll follow you out," said Fajro. "I insist."
+Fajro hollered behind him, "Don't take too long, now. Our brave messenger from Heiko deserves better."
 
-"Very well," said the magistrate. His eyes were no longer taking in the world around him but were mired by his own mind. The two left me alone again, Fajro's hand solidly on Sunte's arm, and I wondered what unspoken words had been exchanged just in front of me.
+The magistrate held the door open for a moment, no longer observing but thinking deeply, as if his all-seeing eyes had turned inward and saw nothing but darkness. "Yes, of course," he said, and he passed through the door as it seemed to close gently under its own weight.
 
-<!-- cut from elsewhere, needs a home -->
+<!-- liffa and fajro alone -->
 
-"Ok, I have to get all formal again, now."
+"What a pleasant man, Sunte," said Fajro. "A keen eye and a sharp mind. He'd do well as an observer, wouldn't you say?"
 
-He took the lantern in his hand and assumed his regal pose. It made me nervous even though it seemed silly.
+"Maybe," I replied. "I-I'm not sure."
 
-"Liffa Um Heiko, I have gathered as many facts as I could and have reached a conclusion. I find you innocent of corruption of consciousness under the codex of Palinan and absolve you of all accusations of such claim."
+"But aren't you?" he said, in a puzzling way.
 
-I felt a slight relief, but knew the other was inescapable.
+"Listen, I need your help," I said, focusing on the subject at hand. "I don't want to go to Ulukoma."
 
-"However, the codex of the senate makes clear that any interruption of any kind during deliberation is illegal. For this reason, I find you guilty of interruption of the senate during its deliberation."
+"My help?" he laughed. "As I recall, you said you could survive Ulukoma just fine without my help."
 
-The conviction was expected, but it still hurt.
+"I've changed my mind. After seeing Melna react the way she did... I need to be here. For her."
 
-"The sentence shall be a period of thirty days in Ulukoma. Do you understa-"
+He looked toward the small window facing the wall and looked slightly upward at nothing in particular. "The law is the law," he said. "I cannot stop the magistrate from handing down a punishment."
 
-The door opened in a rush, and the magistrate paused to see who caused the disturbance. Two lanterns were in view.
+I pleaded to him, "There must be another way, I–"
 
-"Fajro? What are you doing here?" the magistrate asked.
+"-But... perhaps an alternative arrangement can be made."
 
-I was thinking the same thing, but I quickly changed my mind when I saw the other face.
+"What sort of arrangement?" I asked him.
 
-"Kipnu! You came!" I shouted.
+He broke from his trance and walked toward me. "If you are inclined, you could come with me to Holrag to work with our scientists. It would take no more than a few days, then you can head back home to Heiko."
 
-He rushed to me and reached for my face with his free hand. Fajro walked in his slower pace toward us and attempted to bow to the magistrate.
+I retorted, "What use would a farmer be to a bunch of scientists?"
 
-"Oh there isn't any need of that," the magistrate said.
+"A farmer? Worthless. But you're more than that aren't you? I've heard how you gave up your observer aspirations to follow in your mother's footsteps. Honorable, but such a waste of talent."
 
-"Pardon my old habits. They've taken a permanent residence with me." He responded.
+I was aghast. How could he possibly know so much about me?
 
-He reached the other side of Kipnu and looked closely at me, trying to telegraph something but I did not know what.
+"I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara. I want you to go on the journey that you've been waiting for your whole life: to be the first throngia to traverse the Ara line."
 
-"I hope we came in time to defend Liffa," he said.
+[^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
-The magistrate responded, "Well, it's a little bit late, but I'll permit it if you have something to say worth adding."
+Frisson flowed through my body as he said my dreams back to me as if he'd known me my whole life. I had wanted everything that he was offering since I was born, but not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance if I were to say yes.
 
-The magistrate turned to me and asked, "Liffa, do you approve of Fajro's testimony?"
+"That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
 
-"Only if Kipnu is allowed to speak as well."
+He responded as if he'd rehearsed the answer. "As we speak, we are preparing to send an empty capsule to see how the obscura reacts to it. We wouldn't dare send a living thing until we know for sure what would happen."
 
-"Yes, that would be fine."
+But I was still apprehensive. "And if it does get destroyed, you would have me sit around twiddling my thumbs for a few days? I find that hard to believe."
 
-The magistrate took his paper and charcoal out again and turned to Fajro, motioning for him to speak.
+"Think of it this way," he explained. "If something were to harm you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be a disaster for our entire project. You will surely be in safe hands. A few days making a name for yourself is surely much better than a much longer time in Ulukoma."
 
-Fajro began, "Liffa was helping me walk. I intended to interrupt the senate myself, and unwittingly inspired hae to finish the job when I was stopped by guards."
+I withdrew from him and faced the wall behind me. I had never felt so powerless before: my fate was being decided by politics while I stood in a cell, listening, understanding, with only a choice between two terrible situations. The silence in the room surrounded me, stifled my mind, begged me for an answer. Only the pulses in my head and the gentle shifting of cloth were audible.
 
-I was aghast. He was taking the blame? For what?
-
-The magistrate stopped writing and laid his forehead into his hand. "That's quite a thing to admit, Fajro, but Liffa was still the one who actually interrupted the deliberation."
-
-He replied, "I understand. My only hope for my testimony is that you give a lighter sentence to a maman who was acting under my orders."
-
-"Well, the codex of the senate has pretty clear guidelines on sentencing for interruption. I would be risking my post if I let hae free without punishment."
-
-Kipnu turned to the magistrate and pleaded to him, "Please sir. Liffa had every positive intention. Thi doesn't deserve to be shipped off."
-
-Fajro chimed in, "Perhaps an alternative arrangement can be made. One that is beneficial to both Liffa and all of Palinan."
-
-The magistrate butted in, "Absolutely not. The law does not allow–"
-
-"–I think you'll find that the law does allow alternative punishment if the senate itself should decide," said Fajro as he shoved a letter into the magistrate's chest. Fajro turned his head toward me now as if ensuring that I was paying attention.
-
-"If Liffa is inclined, thi could work with me in Holrag on our observational study of the obscura."
-
-I replied immediately, "I am not inclined."
-
-"Hold on, Liffa, let me finish. You would be working with our scientists to send a spacecraft up and figure out what we're dealing with. It would take no more than a few days, then you can head back home to Heiko."
-
-I retorted, "What use would a farmer be to scientists?"
-
-"A farmer? Worthless. But you're more than that aren't you?"
-
-I was aghast. How could he possibly know that?
-
-"I've heard how you gave up your observer aspirations for the family trade. Honorable, but such a waste of talent."
-
-He was looking straight at me now, with a sincerity that was unmistakable.
-
-"I've seen your eyes. The blood of Holrag is within you. It's been calling since you were born. You studied with the observers to imagine your own _nul sa'am_ to the stars. This journey was meant for you."
-
-I thought of Jathi, surmised they would need his help to get a vehicle up there and back down again, but I wondered what would convince him. Then I remembered what Melna said about Fajro: his words were a cover for his actions.
-
-"I don't trust you. You could do anything with me," I said.
-
-"You're right. You can't trust me. But you also can't trust any of the criminals in that detestable Ulukoma either."
-
-He took a step closer and I stepped back.
-
-"Think of it this way," he explained. "If something were to harm the you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be disastrous for our entire project. You will surely be in safe hands. A few days on the frontlines of our very species is surely much better than whatever you would get in Ulukoma."
-
-The magistrate butted in, "I believe that Fajro's suggestion would be a fitting alternative and that the state would see more use in applying you to the problem than sending you someplace where you mindlessly twiddle your thumbs in the cold.."
-
-I withdrew from the door and faced the wall. I had never felt so powerless before: my fate was being discussed by a room full of powerful men while I stood in a cell, listening, understanding, with only a choice between two terrible situations. The silence in this room surrounded me, stifled my mind, begged me for an answer. Only the pulse in my head and the gentle shifting of cloth were audible.
+<!-- left off -->
 
 "Gentlemen, let's give hae a moment," said the magistrate in a humbled tone.
 
@@ -351,6 +305,64 @@ He sighed and looked at the lantern light against the dusty ground.
 Our eyes met and he looked at me intently. "We need you up there, Liffa."
 
 In my flood of imagination, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head.
+
+<!-- Liffa is sentenced -->
+
+"Ok, I have to get all formal again, now."
+
+He took the lantern in his hand and assumed his regal pose. It made me nervous even though it seemed silly.
+
+"Liffa Um Heiko, I have gathered as many facts as I could and have reached a conclusion. I find you innocent of corruption of consciousness under the codex of Palinan and absolve you of all accusations of such claim."
+
+I felt a slight relief, but knew the other was inescapable.
+
+"However, the codex of the senate makes clear that any interruption of any kind during deliberation is illegal. For this reason, I find you guilty of interruption of the senate during its deliberation."
+
+The conviction was expected, but it still hurt.
+
+"The sentence shall be a period of thirty days in Ulukoma. Do you understa-"
+
+The door opened in a rush, and the magistrate paused to see who caused the disturbance. Two lanterns were in view.
+
+"Fajro? What are you doing here?" the magistrate asked.
+
+I was thinking the same thing, but I quickly changed my mind when I saw the other face.
+
+"Kipnu! You came!" I shouted.
+
+He rushed to me and reached for my face with his free hand. Fajro walked in his slower pace toward us and attempted to bow to the magistrate.
+
+"Oh there isn't any need of that," the magistrate said.
+
+"Pardon my old habits. They've taken a permanent residence with me." He responded.
+
+He reached the other side of Kipnu and looked closely at me, trying to telegraph something but I did not know what.
+
+"I hope we came in time to defend Liffa," he said.
+
+The magistrate responded, "Well, it's a little bit late, but I'll permit it if you have something to say worth adding."
+
+The magistrate turned to me and asked, "Liffa, do you approve of Fajro's testimony?"
+
+"Only if Kipnu is allowed to speak as well."
+
+"Yes, that would be fine."
+
+The magistrate took his paper and charcoal out again and turned to Fajro, motioning for him to speak.
+
+Fajro began, "Liffa was helping me walk. I intended to interrupt the senate myself, and unwittingly inspired hae to finish the job when I was stopped by guards."
+
+I was aghast. He was taking the blame? For what?
+
+The magistrate stopped writing and laid his forehead into his hand. "That's quite a thing to admit, Fajro, but Liffa was still the one who actually interrupted the deliberation."
+
+He replied, "I understand. My only hope for my testimony is that you give a lighter sentence to a maman who was acting under my orders."
+
+"Well, the codex of the senate has pretty clear guidelines on sentencing for interruption. I would be risking my post if I let hae free without punishment."
+
+Kipnu turned to the magistrate and pleaded to him, "Please sir. Liffa had every positive intention. Thi doesn't deserve to be shipped off."
+
+<!-- kipnu gets angry -->
 
 Meanwhile, Kipnu had grown impatient. He grabbed Fajro by his tunic and got in his face.
 
@@ -504,9 +516,9 @@ He re-assumed his regal pose with paper and charcoal in hand, and cleared his th
 
 "I do."
 
-"Then I await your decision within the next 500 ticks of Ara[^2]. I will be back to -"
+"Then I await your decision within the next 500 ticks of Ara[^3]. I will be back to -"
 
-[^2]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
+[^3]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
 
 "Magistrate, I've already made my decision."
 
