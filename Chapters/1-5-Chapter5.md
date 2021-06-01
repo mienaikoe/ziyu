@@ -70,7 +70,7 @@ I was unsatisfied with his answer, but by now I'd known better than to try to co
 
 "Why are the laws of the senate so rigid?" I asked.
 
-"You mean to ask why you can't simply ask to be let in. Nothing but an odd cocktail of Shakii legalism and political posturing," he answered. "Why do you ask?"
+"You mean to ask why you can't simply ask to be let in. Nothing but an odd concoction of Shakii legalism and political posturing," he answered. "Why do you ask?"
 
 "I'm just noticing that everything in this place is so antiquated. If Lanre were here, watching us now, I think he'd understand that our world is a different place than it was in his time. He would think it mad to call every inconvenience a 'corruption of consciousness'."
 

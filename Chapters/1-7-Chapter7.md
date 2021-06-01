@@ -174,7 +174,7 @@ The magistrate held the door open for a moment, no longer observing but thinking
 
 "My help?" he laughed. "As I recall, you said you could survive Ulukoma just fine without my help."
 
-"I've changed my mind. After seeing Melna react the way she did... I need to be here. For her."
+"I've changed my mind. After seeing Melna react the way she did... I need to be here, with my family."
 
 He looked toward the small window facing the wall and looked slightly upward at nothing in particular. "The law is the law," he said. "I cannot stop the magistrate from handing down a punishment."
 
@@ -196,7 +196,7 @@ I was aghast. How could he possibly know so much about me?
 
 [^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
-Frisson flowed through my body as he said my dreams back to me as if he'd known me my whole life. I had wanted everything that he was offering since I was born, but not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance if I were to say yes.
+Frisson flowed through my body as he said my dreams back to me as if he'd known me my whole life. I had wanted everything that he was offering since I was born, but not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance.
 
 "That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
 
@@ -204,9 +204,17 @@ He responded as if he'd rehearsed the answer. "As we speak, we are preparing to 
 
 But I was still apprehensive. "And if it does get destroyed, you would have me sit around twiddling my thumbs for a few days? I find that hard to believe."
 
-"Think of it this way," he explained. "If something were to harm you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be a disaster for our entire project. You will surely be in safe hands. A few days making a name for yourself is surely much better than a much longer time in Ulukoma."
+"Think of it this way," he explained. "If something were to harm you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be a disaster for our entire project, for all the tribes of Holrag. You will be in safe hands. A few days making a name for yourself is surely better than spending your precious time in Ulukoma."
 
-I withdrew from him and faced the wall behind me. I had never felt so powerless before: my fate was being decided by politics while I stood in a cell, listening, understanding, with only a choice between two terrible situations. The silence in the room surrounded me, stifled my mind, begged me for an answer. Only the pulses in my head and the gentle shifting of cloth were audible.
+"But what am I to you? Why can't you send one of your own?"
+
+"I told you before. All of our candidates pulled out of the program."
+
+"There is surely at least one person in the whole world both willing and capable."
+
+"You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, brave, and in great physical shape. But most importantly, you have the guts to do this."
+
+I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. All I could do was stand there, listening, and then choose between two terrible situations. I imagined flying up there in that dark blue void, trying to communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: the danger, the importance, the honor. _I could die. I could die!_
 
 <!-- left off -->
 
@@ -298,13 +306,11 @@ I answered the magistrate, "I'd like to ask Fajro about the study he's conductin
 
 He sighed and looked at the lantern light against the dusty ground.
 
-"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. The candidates we're looking for have to be lightweight, agile, observant, quick-learning, brave, and in great physical shape. They also need to be willing to take the risk."
+"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. They also need to be willing to take the risk."
 
 "Risk? What risk?"
 
 Our eyes met and he looked at me intently. "We need you up there, Liffa."
-
-In my flood of imagination, I finally saw the dream that he saw. The danger, the pride. The whole planet. _I could die. I could die!_ I shouted inside my head.
 
 <!-- Liffa is sentenced -->
 
