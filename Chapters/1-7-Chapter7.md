@@ -184,11 +184,15 @@ I pleaded to him, "There must be another way, I–"
 
 "What sort of arrangement?" I asked him.
 
-He broke from his trance and walked toward me. "If you are inclined, you could come with me to Holrag to work with our scientists. It would take no more than a few days, then you can head back home to Heiko."
+He broke from his trance and walked toward me. "If you are inclined, you could come with me to Holrag for a few days, then you can head back home to Heiko."
 
-I retorted, "What use would a farmer be to a bunch of scientists?"
+"I am not inclined," I said.
 
-"A farmer? Worthless. But you're more than that aren't you? I've heard how you gave up your observer aspirations to follow in your mother's footsteps. Honorable, but such a waste of talent."
+"Perhaps I can change your inclination. You see, the world has changed overnight ever since you delivered that tiny slip of paper, and people are scrambling for answers. But the one question they can't answer is what this obscura is. I want you to answer it for them."
+
+"Me? What use could a farmer be to a problem like that?"
+
+"A farmer? Worthless. But you're more than that aren't you? I know that you were once an observer, and a good one at that, but you gave up your dream to pick up the farm where you mother left it. Honorable, but such a waste of talent."
 
 I was aghast. How could he possibly know so much about me?
 
@@ -196,7 +200,7 @@ I was aghast. How could he possibly know so much about me?
 
 [^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
-Frisson flowed through my body as he said my dreams back to me as if he'd known me my whole life. I had wanted everything that he was offering since I was born, but not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance.
+A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to travel to the sky since the day I was born. But not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance that I wasn't a tool for some other end.
 
 "That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
 
@@ -212,9 +216,9 @@ But I was still apprehensive. "And if it does get destroyed, you would have me s
 
 "There is surely at least one person in the whole world both willing and capable."
 
-"You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, brave, and in great physical shape. But most importantly, you have the guts to do this."
+"You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa. But most importantly, you understand how important the obscura is. That the future of our people lies far beyond this planet. You know that you belong there."
 
-I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. All I could do was stand there, listening, and then choose between two terrible situations. I imagined flying up there in that dark blue void, trying to communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: the danger, the importance, the honor. _I could die. I could die!_
+I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a small room in an empty sea. _I could die. I could die!_
 
 <!-- left off -->
 
