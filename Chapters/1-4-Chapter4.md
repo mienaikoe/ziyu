@@ -149,7 +149,7 @@ But he continued. "Let me start over. My name is Fajro, and I used to be a fidel
 
 "I didn't ask for an introduction."
 
-"Patience, kaln," he retorted gently. "I promise this chat will be worth all the sleep you're missing." He adjusted his posture to face me a bit better and started again. "I happened to be in Heiko earlier today, seeking a medical consultation about my leg when Kipnu told me. He said that you were trying to deliver a message to the senate: a message so important that you're willing to risk the island of darkness to deliver it."
+"Patience, kaln," he retorted gently. "I promise this chat will be worth all the sleep you're missing." He adjusted his posture to face me and started again. "I happened to be in Heiko earlier today, seeking a consultation about my leg when Kipnu told me. He said that you were trying to deliver a message to the senate: a message so important that you're willing to risk the island of darkness to deliver it."
 
 My frustration turned inward as I wondered how much else Kipnu told him about. But I re-centered my mind and affirmed my duty as an observer. "My business is–"
 

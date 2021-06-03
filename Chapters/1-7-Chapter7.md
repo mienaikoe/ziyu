@@ -1,10 +1,6 @@
 <!--
 
-- Liffa, Fajro, and the Magistrate are meeting
-- Melna is stuck late in deliberation and so she can't come
-- Fajro gives the offer
-- Right as Liffa refuses shyly, Kipnu barges in and roughs Fajro up
-- Kipnu is held back, Magistrate leaves to call for a doctor and handle Kipnu
+- Kipnu is held back by Liffa, Magistrate enters and handles things
 - Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it.
 - Doctor enters with the magistrate and checks on Fajro
 - Liffa is more agreeable and magistrate is pleased
@@ -35,6 +31,11 @@ Hae skin felt cold and fragile, like parched clay. Thi smiled down at me, and he
 The whole world began to fade to darkess as the dream melted away and I slowly came back to reality. The room was dark save for a small window that faced toward another wall with just a hint of Ara-light coming in from above. I touched the bruises from Tinpo's grip on my arm, still tender to the touch, and recalled his harsh voice as he locked me in this place. My cheek was caked with dust from the floor I'd been sleeping on, affixed there by the sweat and grief I'd spilled before sleep took me away from all this. I'd have bathed in a trickle of water if I'd been afforded such a luxury.
 
 The tiniest sounds were reverberating off the walls: a short breeze through the window, a little milta scurrying about in search of food, and the buzz of thoughts running through my head. I had prepared myself for Ulukoma, but not for the gnawing anxiety of sitting in a cell alone. The time was strewn together like a trance or a prayer, and I wondered if all this silence was meant to break the prisoner's perception of right and wrong before they were even spoken to. I wondered if the senate would believe Melna. If they would ridicule her for what I'd done. And where was the man who helped me? My accomplice, Fajro? Would he come to vouch for me as he'd promised?
+
+<!--
+- Liffa, Fajro, and the Magistrate are meeting
+- Melna is stuck late in deliberation and so she can't come
+-->
 
 A door opened in the next room, waking me from the droning fog of a daydream. Two men were continuing a conversation as they moved through the room and I listened intently to their muffled voices. Their tone and dialect were unfamiliar to me, but I'd already learned not to trust my own ears outside of Heiko. Their voices approached the door of my room and it opened it with a mechanical clink. Their footsteps began to ring off the gray stone walls and I stood up to see the first figure, a man who was somewhere between young and old, robed in gray, with a face cast orange by the lantern he held in his hand. The other stood at length in the dark, but I could tell by his silver cane that it was Fajro.
 
@@ -162,9 +163,9 @@ Fajro hollered behind him, "Don't take too long, now. Our brave messenger from H
 
 The magistrate held the door open for a moment, no longer observing but thinking deeply, as if his all-seeing eyes had turned inward and saw nothing but darkness. "Yes, of course," he said, and he passed through the door as it seemed to close gently under its own weight.
 
-<!-- liffa and fajro alone -->
+<!--  Fajro gives the offer -->
 
-"What a pleasant man, Sunte," said Fajro. "A keen eye and a sharp mind. He'd do well as an observer, wouldn't you say?"
+"Quite an agreeable man, Sunte," said Fajro. "With a keen eye and a sharp mind. He'd do well as an observer, wouldn't you say?"
 
 "Maybe," I replied. "I-I'm not sure."
 
@@ -219,6 +220,82 @@ But I was still apprehensive. "And if it does get destroyed, you would have me s
 "You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa. But most importantly, you understand how important the obscura is. That the future of our people lies far beyond this planet. You know that you belong there."
 
 I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a small room in an empty sea. _I could die. I could die!_
+
+<!-- Kipnu barges in and roughs Fajro up -->
+
+A new voice entered the other room, a man, agitated and moving. I heard some shuffling of feet, and the magistrate's attempts to settle the man with diplomacy, but he did not stop. The voice came to the door and said my name "Liffa!", and I knew it was Kipnu. I ran to the door, to feel close to him but didn't dare say a thing. I wanted him to leave before he made any rash decisions.
+
+<!-- left off -->
+
+"Kipnu. Stop this," the magistrate tried to push Kipnu away, but wasn't succeeding.
+
+"Kipnu," I tried to calm him, but he didn't hear me.
+
+He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
+
+"You think you can prey on my family, punk?" He tightened his grip on Fajro's shirt. "Find someone else to murder. Liffa is staying here."
+
+"Kipnu. This is absurd. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
+
+"He's breathing, but unconscious. Kipnu, what were you thinking?"
+
+Kipnu wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walked slowly over to the magistrate, who was now anxious being around him, and checked Fajro's vitals. He was unconscious.
+
+The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kipnu by the arm and took him to the outer room.
+
+_Kip, what have you done?_
+
+"Fajro?" I called. He didn't answer.
+
+I stared at his sleeping face. It was wrinkled with the smiles of the past. _Were they genuine? Are you simply misunderstood?_.
+
+The magistrate came back in with a strong-scented cloth and some water in a small bowl.
+
+"He's still unconscious," I said.
+
+"Yes, and he might be after that scene. What was Kipnu thinking?"
+
+"He gets very protective sometimes."
+
+The magistrate dipped the cloth into the bowl and placed it on his lips. Fajro's lips started to move and then purse, and then he woke in a daze.
+
+"Wha. Wha," he panted through broken questions.
+
+"You passed out, Fajro," said the magistrate in a calming voice.
+
+"My head? Wha-"
+
+"It's a bruise, Fajro. Nothing major."
+
+"Kipnu. What happened?"
+
+"Just rest. He's gone now."
+
+I felt no pity for Fajro. My mind was focused on Kipnu.
+
+He sipped some of the water and sat up, motioning to the magistrate for the cloth. The magistrate handed it over and he put it behind his head.
+
+"How are you feeling, Fajro?" asked the magistrate.
+
+"I'll be ok."
+
+"I'm going to deal with Kipnu. I'll send for a doctor right away."
+
+"No. No need. I'll be fine."
+
+I asked the magistrate, "What's going to happen to Kipnu?"
+
+He stood up and walked over to me.
+
+"He assaulted Fajro and interrupted his consciousness. He'll receive justice for his crimes."
+
+"Just tell me."
+
+"He's going to Ulukoma."
+
+My heart sank. _Dammit, you fool._
+
+He turned to walk out the door and said to me, "I'm going to handle Kipnu's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
 
 <!-- left off -->
 
@@ -378,75 +455,7 @@ Meanwhile, Kipnu had grown impatient. He grabbed Fajro by his tunic and got in h
 
 "That's a death sentence, you piece of shit."
 
-"Kipnu. Stop this," the magistrate tried to push Kipnu away, but wasn't succeeding.
-
-"Kipnu," I tried to calm him, but he didn't hear me.
-
-He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
-
-"You think you can prey on my family, punk?" He tightened his grip on Fajro's shirt. "Find someone else to murder. Liffa is staying here."
-
-"Kipnu. This is absurd. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
-
-"He's breathing, but unconscious. Kipnu, what were you thinking?"
-
-Kipnu wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walked slowly over to the magistrate, who was now anxious being around him, and checked Fajro's vitals. He was unconscious.
-
-The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kipnu by the arm and took him to the outer room.
-
-_Kip, what have you done?_
-
-"Fajro?" I called. He didn't answer.
-
-I stared at his sleeping face. It was wrinkled with the smiles of the past. _Were they genuine? Are you simply misunderstood?_.
-
-The magistrate came back in with a strong-scented cloth and some water in a small bowl.
-
-"He's still unconscious," I said.
-
-"Yes, and he might be after that scene. What was Kipnu thinking?"
-
-"He gets very protective sometimes."
-
-The magistrate dipped the cloth into the bowl and placed it on his lips. Fajro's lips started to move and then purse, and then he woke in a daze.
-
-"Wha. Wha," he panted through broken questions.
-
-"You passed out, Fajro," said the magistrate in a calming voice.
-
-"My head? Wha-"
-
-"It's a bruise, Fajro. Nothing major."
-
-"Kipnu. What happened?"
-
-"Just rest. He's gone now."
-
-I felt no pity for Fajro. My mind was focused on Kipnu.
-
-He sipped some of the water and sat up, motioning to the magistrate for the cloth. The magistrate handed it over and he put it behind his head.
-
-"How are you feeling, Fajro?" asked the magistrate.
-
-"I'll be ok."
-
-"I'm going to deal with Kipnu. I'll send for a doctor right away."
-
-"No. No need. I'll be fine."
-
-I asked the magistrate, "What's going to happen to Kipnu?"
-
-He stood up and walked over to me.
-
-"He assaulted Fajro and interrupted his consciousness. He'll receive justice for his crimes."
-
-"Just tell me."
-
-"He's going to Ulukoma."
-
-My heart sank. _Dammit, you fool._
-
-He turned to walk out the door and said to me, "I'm going to handle Kipnu's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
+<!-- Fajro convinces Liffa again -->
 
 Fajro and I sat in silence for a few moments, staring everywhere but at each other. A feeling of guilt and embarrassment pervaded me. I acknowledged the senselessness of feeling self-aware about something I hadn't done, but it sustained nonetheless. There were qualities about the gray stone walls that I hadn't noticed without the lanterns. Deep chisel markings and pits where the stone's roughness hadn't been softened yet. What an enormous endeavor it must have been to carve this city by hand. To know that you would never reap all of its benefits, but add your effort anyway. Our whole society was founded on the glorification of works for the greater good, but Kipnu had found something more important. Perhaps he is also doing the right thing.
 
