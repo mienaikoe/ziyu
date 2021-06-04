@@ -223,7 +223,15 @@ I withdrew and faced the wall behind me. The room felt much smaller with an impa
 
 <!-- Kipnu barges in and roughs Fajro up -->
 
-A new voice entered the other room, a man, agitated and moving. I heard some shuffling of feet, and the magistrate's attempts to settle the man with diplomacy, but he did not stop. The voice came to the door and said my name "Liffa!", and I knew it was Kipnu. I ran to the door, to feel close to him but didn't dare say a thing. I wanted him to leave before he made any rash decisions.
+A new voice entered the other room: a man, agitated and moving about. I heard some shuffling of feet, and some failed attempts by the magistrate to calm him down. The man to the door and identified himself by my name. "Liffa!" Kipnu yelled for me.
+
+I ran to the door to feel his presence though I didn't say a word out of fear for his safety. I wanted him to leave before he made any rash decisions. The door rattled under his strength as he said my name again. He knew that I was here, and he wasn't going to leave until he saw me.
+
+"Kipnu!" I yelled through the door. "What are you doing? Get out of here!"
+
+Fajro stirred, uneasy at the sound of his name. "Your jundman?" he asked. "What's gotten into him?"
+
+There were sounds of shuffling and shouting as the magistrate fled to call for help. I backed away from the door, anticipating some movement, and with a sudden clink the door flung wide and brought Kipnu into the holding cell. I ran into his arms, his warmth, and he held me in a way that I so desperately needed in that moment.
 
 <!-- left off -->
 
