@@ -231,11 +231,17 @@ I ran to the door to feel his presence though I didn't say a word out of fear fo
 
 Fajro stirred, uneasy at the sound of his name. "Your jundman?" he asked. "What's gotten into him?"
 
-There were sounds of shuffling and shouting as the magistrate fled to call for help. I backed away from the door, anticipating some movement, and with a sudden clink the door flung wide and brought Kipnu into the holding cell. I ran into his arms, his warmth, and he held me in a way that I so desperately needed in that moment.
+There were sounds of shuffling and shouting as the magistrate fled to call for help. I backed away from the door, anticipating some movement, and with a sudden clink the door flung wide and brought Kipnu into the holding cell. I ran into his arms, his warmth, and he held me in a way that I so desperately needed.
+
+The magistrate barged in after him. "Touching, but you need to leave," he said. But Kipnu wouldn't move an inch.
+
+"Liffa needs a witness," said Kipnu. "You can't have a hearing without a witness."
+
+Fajro moved a step forward, closer to the light of the lantern. "Liffa does have a witness," he said. "Thi doesn't need you around."
 
 <!-- left off -->
 
-"Kipnu. Stop this," the magistrate tried to push Kipnu away, but wasn't succeeding.
+the magistrate tried to push Kipnu away, but wasn't succeeding.
 
 "Kipnu," I tried to calm him, but he didn't hear me.
 

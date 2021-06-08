@@ -52,13 +52,13 @@ The Ara-light and the wind that it brings had grown to its mid-day peak, but the
 
 "There are many of us in the world. A sliver of empathy and an old man like me could sit in peace. Instead, a patient sweet maman like you has to bear my complaints."
 
-I was amused by his choice of words. "Charming a young maman? At your age?"
+I was surprised by his choice of words. "I've passed the age where charm has an effect, I'm afraid."
 
 "Oh, pardon my forwardness. I'm often told that I say too much of what I mean," he explained.
 
 I nodded, understanding his view. "Too many of my generation are afraid to speak their minds," I said. "Perhaps they could learn something from you."
 
-He pretended to be shocked. "Charming an old man. At your age?"
+He smirked. "Charm still has an effect to me, in spite of my age."
 
 I laughed but became suddenly conscious of the loud and awkward sound of my own voice. Luckily, he didn't seem to mind.
 
