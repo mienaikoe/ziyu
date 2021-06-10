@@ -73,7 +73,7 @@ The magistrate spoke again with his calming voice, "I would love to wait until M
 
 "Then I'll wait," I said, walking away. "I can wait here for her."
 
-He wore a pitied look. "I'm sorry Liffa. The law permits me but a day for a case like yours. Perhaps there's someone else who you'd like as a witness?"
+He wore a pitied look. "I'm sorry Liffa. The law permits me but a day for a case like yours. Perhaps there's someone else who you'd like as a advocate?"
 
 I looked at Fajro, and he gave me a nod of trust. Perhaps he really was true to his word.
 
@@ -233,17 +233,35 @@ Fajro stirred, uneasy at the sound of his name. "Your jundman?" he asked. "What'
 
 There were sounds of shuffling and shouting as the magistrate fled to call for help. I backed away from the door, anticipating some movement, and with a sudden clink the door flung wide and brought Kipnu into the holding cell. I ran into his arms, his warmth, and he held me in a way that I so desperately needed.
 
-The magistrate barged in after him. "Touching, but you need to leave," he said. But Kipnu wouldn't move an inch.
+The magistrate barged in after him. "You're in corruption of a hearing," he said. "I urge you to leave, or you'll be put in a cell yourself."
 
-"Liffa needs a witness," said Kipnu. "You can't have a hearing without a witness."
+But Kipnu wouldn't move an inch. "Liffa needs an advocate," said Kipnu. "You're not administering the law without an advocate for the accused."
 
-Fajro moved a step forward, closer to the light of the lantern. "Liffa does have a witness," he said. "Thi doesn't need you around."
+"Liffa already has advocate," said the magistrate. "Now please remove yourself from this place."
+
+Kipnu's hands dropped from my arms as he looked back at the magistrate with suspicious eyes. "Who?" he asked. The magistrate looked past him toward the window, and he turned around to look the same way. His eyes spotted Fajro's silhouette in a dark corner near the window, seeming to hide from view. "Come into the light," Kipnu demanded. "Show yourself."
+
+The magistrate moved to stop Kipnu from advancing, but Fajro held his hands up calmly as he stepped into the light. "Kipnu," said Fajro. "Lovely to meet your acquaintence."
+
+Kipnu turned to me in confusion. "Who is this?"
+
+"You... you met him today," I said. "He told me that he came to–"
+
+Fajro butted in, "–Alas, I didn't have time to meet the greatest physician in all of Heiko. There was a much more pressing matter to attend to at the senate."
+
+"How do you know Liffa?" Kipnu asked him.
+
+"I did not know hae before yesterday. But kismet has a tendency to bring strangers together in serendipitous ways."
+
+"You can't fool me with mysticism. You had a hand in all this."
+
+Fajro paused with a deep breath and began to pace around the lamplight. "A hand? No. There were things that had to be done for the greater good of the world. Liffa knew that and thi took a sacrifice no one else was willing to take. My role was not to coerce Liffa, that would be unnecessary. It was to ease hae mind and give hae strength. And now I've come to lend my help again."
+
+"Is that true?" he asked me, but my confidence in the truth had eroded. I stared at him, unable to prouce an answer.
+
+Kipnu looked Fajro dead in the eyes.
 
 <!-- left off -->
-
-the magistrate tried to push Kipnu away, but wasn't succeeding.
-
-"Kipnu," I tried to calm him, but he didn't hear me.
 
 He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
 
