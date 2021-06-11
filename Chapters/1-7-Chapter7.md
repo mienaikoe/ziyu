@@ -239,7 +239,7 @@ But Kipnu wouldn't move an inch. "Liffa needs an advocate," said Kipnu. "You're 
 
 "Liffa already has advocate," said the magistrate. "Now please remove yourself from this place."
 
-Kipnu's hands dropped from my arms as he looked back at the magistrate with suspicious eyes. "Who?" he asked. The magistrate looked past him toward the window, and he turned around to look the same way. His eyes spotted Fajro's silhouette in a dark corner near the window, seeming to hide from view. "Come into the light," Kipnu demanded. "Show yourself."
+Kipnu's hands dropped from my arms as he looked back at the magistrate with suspicious eyes. "Who?" he asked. The magistrate looked past him toward the window, and he turned around to look the same way. His eyes spotted Fajro's silhouette in a dark corner near the window, seeming to hide from view. "You claim to advocate for Liffa," Kipnu said. "Then show yourself."
 
 The magistrate moved to stop Kipnu from advancing, but Fajro held his hands up calmly as he stepped into the light. "Kipnu," said Fajro. "Lovely to meet your acquaintence."
 
@@ -253,19 +253,23 @@ Fajro butted in, "–Alas, I didn't have time to meet the greatest physician in 
 
 "I did not know hae before yesterday. But kismet has a tendency to bring strangers together in serendipitous ways."
 
-"You can't fool me with mysticism. You had a hand in all this."
+"You had a hand in this, didn't you?" Kipnu surmised. "Did he put you up to this?" he asked me without turning his eyes.
 
-Fajro paused with a deep breath and began to pace around the lamplight. "A hand? No. There were things that had to be done for the greater good of the world. Liffa knew that and thi took a sacrifice no one else was willing to take. My role was not to coerce Liffa, that would be unnecessary. It was to ease hae mind and give hae strength. And now I've come to lend my help again."
+Fajro paused with a deep breath and began to pace around the lamplight. "A hand? No. Liffa understood that hae message had to be delivered for the greater good of the world and thi took a sacrifice no one else around hae was willing to take. I did not coerce hae; thi had already done that for haeself. My role was to calm hae spirits and ease hae journey. And now I've come to lend my help again."
 
-"Is that true?" he asked me, but my confidence in the truth had eroded. I stared at him, unable to prouce an answer.
+"Is that true?" he asked me, but my confidence in the truth had eroded. I stared at him, unable to prouce an answer. He turned back to Fajro. "What help you've already given has landed hae here. There is no more need for you."
 
-Kipnu looked Fajro dead in the eyes.
+"Oh I beg to differ," Fajro retorted. "Magistrate, I presume you've reached a sentencing decision."
+
+Kipnu turned back to the magistrate who stood behind us with an uncomfortable look about him.
+
+"Y-Yes, sir," said the magistrate as he entered the room again. He looked at both Kipnu and Fajro as if to glean some prediction, his sharp eyes were now mired in worry. He began, "The senate has delivered a message regarding Liffa's sentence. It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag for a period of three days."
+
+_How did Fajro know before the magistrate?_
+
+Kipnu looked Fajro dead in the eyes and rushed toward him, holding him against the wall. Fajro let out a cry of pain as his head hit the stone. "You think you can prey on my family?" He tightened his grip on Fajro's shirt. "Find someone else to mess with. Liffa is staying here."
 
 <!-- left off -->
-
-He pushed Fajro and held him against the wall, with Fajro letting out a cry of pain as his head batted against the stone.
-
-"You think you can prey on my family, punk?" He tightened his grip on Fajro's shirt. "Find someone else to murder. Liffa is staying here."
 
 "Kipnu. This is absurd. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
 
