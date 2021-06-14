@@ -1,7 +1,5 @@
 <!--
 
-- Kipnu is held back by Liffa, Magistrate enters and handles things
-- Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it.
 - Doctor enters with the magistrate and checks on Fajro
 - Liffa is more agreeable and magistrate is pleased
 - Liffa asks about Kipnu, but magistrate says nothing can be done. Fajro says "the law is the law. Nothing can be done", basically.
@@ -267,19 +265,23 @@ Kipnu turned back to the magistrate who stood behind us with an uncomfortable lo
 
 _How did Fajro know before the magistrate?_
 
-Kipnu looked Fajro dead in the eyes and rushed toward him, holding him against the wall. Fajro let out a cry of pain as his head hit the stone. "You think you can prey on my family?" He tightened his grip on Fajro's shirt. "Find someone else to mess with. Liffa is staying here."
+Kipnu rushed toward Fajro and held him against the wall with a terrifying look in his eyes. Fajro let out a cry of pain as his head hit the stone. "You think I'm not onto you?"
 
-<!-- left off -->
+"This is absurd. Stop this immediately!" The magistrate shouted.
 
-"Kipnu. This is absurd. Stop this immediately." The magistrate shouted, and Kipnu backed down. Fajro collapsed to the floor with a hand behind his head, and passed out. The magistrate rushed over to check on him.
+But Kipnu tightened his grip on Fajro's shirt. "Find someone else to mess with," he said. "Liffa is staying here."
 
-"He's breathing, but unconscious. Kipnu, what were you thinking?"
+"Kip," I uttered in a broken voice. He let go and Fajro collapsed to the floor while the magistrate rushed over to check on him.
 
-Kipnu wasn't amused, "Oh come on. He's faking it," but was growing unsure. He walked slowly over to the magistrate, who was now anxious being around him, and checked Fajro's vitals. He was unconscious.
+"He's breathing, but unconscious," said the magistrate. "What were you thinking?"
 
-The magistrate turned to me and quickly said, "Liffa, let's return to this after we come back," while he grabbed Kipnu by the arm and took him to the outer room.
+Kipnu looked back at them, his anger turning to concern. He knew there was no going back; that he'd damned himself to the dark island.
+
+The magistrate turned to me and said, "I'll return shortly. Keep an eye on him." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
 
 _Kip, what have you done?_
+
+<!-- Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it. -->
 
 "Fajro?" I called. He didn't answer.
 
