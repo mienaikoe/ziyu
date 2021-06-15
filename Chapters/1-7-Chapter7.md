@@ -171,7 +171,7 @@ The magistrate held the door open for a moment, no longer observing but thinking
 
 "Listen, I need your help," I said, focusing on the subject at hand. "I don't want to go to Ulukoma."
 
-"My help?" he laughed. "As I recall, you said you could survive Ulukoma just fine without my help."
+"My help?" he laughed. "As I recall, you said you could survive Ulukoma just fine without me getting in the way."
 
 "I've changed my mind. After seeing Melna react the way she did... I need to be here, with my family."
 
@@ -179,45 +179,41 @@ He looked toward the small window facing the wall and looked slightly upward at 
 
 I pleaded to him, "There must be another way, I–"
 
-"-But... perhaps an alternative arrangement can be made."
+"-But... perhaps an alternative punishment can be arranged."
 
-"What sort of arrangement?" I asked him.
+I went quiet. "I'm listening," I said.
 
-He broke from his trance and walked toward me. "If you are inclined, you could come with me to Holrag for a few days, then you can head back home to Heiko."
+He broke from his trance at the window and walked toward me. "If you are inclined, you could come with me to Holrag for a few days, then you can head back home to Heiko."
 
 "I am not inclined," I said.
 
-"Perhaps I can change your inclination. You see, the world has changed overnight ever since you delivered that tiny slip of paper, and people are scrambling for answers. But the one question they can't answer is what this obscura is. I want you to answer it for them."
+"Perhaps I can change your inclination. You see, the world has changed overnight. Ever since you delivered that tiny slip of paper everyone's been scrambling for answers. But the one question they can't answer is what this obscura is. I want you to answer it for them."
 
-"Me? What use could a farmer be to a problem like that?"
+"Me?" I exclaimed. "What use could a farmer be to a problem like that?"
 
-"A farmer? Worthless. But you're more than that aren't you? I know that you were once an observer, and a good one at that, but you gave up your dream to pick up the farm where you mother left it. Honorable, but such a waste of talent."
+"A farmer? Worthless. But you're more than that aren't you? You were once an observer, and a good one at that, but you gave up your dream to pick up the farm where you mother left it. Honorable, but such a waste of talent."
 
-I was aghast. How could he possibly know so much about me?
+I was aghast. How could he possibly know so much about me? There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance that I wasn't a tool for some other end.
 
-"I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara. I want you to go on the journey that you've been waiting for your whole life: to be the first throngia to traverse the Ara line."
+"If you really wanted someone with the credentials you could get Jathi or Thimlu, or some other observer. What do you _really_ need me for?"
+
+He chuckled and looked at the lantern light against the dusty ground. "Liffa, you don't miss a thing do you? You're right, I need you for more than just your mind. You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa. But most importantly, you understand how important the obscura is. That the future of our people lies far beyond this planet. You know that you belong there, and you would be willing to risk anything to go."
+
+My eyes narrowed in suspicion. "That depends on the risk."
+
+"I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara." The light from the window glimmered against his face, showed the fire in his eyes as he looked into mine. "I want you to go on the journey that you've been waiting for your whole life: to travel beyond our planet into that great unknown, and return to tell everyone what you saw there."
 
 [^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
-A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to travel to the sky since the day I was born. But not now, not like this. There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance that I wasn't a tool for some other end.
+A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to explore the sky since the day I was born. But this was not how I imagined it. "That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
 
-"That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
+"As we speak, we are sending an empty capsule to see how the obscura reacts to it. We wouldn't dare send a living thing until we know for sure what would happen."
 
-He responded as if he'd rehearsed the answer. "As we speak, we are preparing to send an empty capsule to see how the obscura reacts to it. We wouldn't dare send a living thing until we know for sure what would happen."
+"And if it does get destroyed, you would have me sit around twiddling my thumbs for a few days?"
 
-But I was still apprehensive. "And if it does get destroyed, you would have me sit around twiddling my thumbs for a few days? I find that hard to believe."
+"Think of it this way," he explained. "If something were to harm you under my watch – the selfless hero-messenger, the Heiko fidelant's maman – it would be a disaster for our entire project, for all the tribes of Holrag. You will be in safe hands. A few days making a name for yourself is surely better than spending your precious time in Ulukoma."
 
-"Think of it this way," he explained. "If something were to harm you under my watch – the Heiko fidelant's maman, the selfless hero-messenger – it would be a disaster for our entire project, for all the tribes of Holrag. You will be in safe hands. A few days making a name for yourself is surely better than spending your precious time in Ulukoma."
-
-"But what am I to you? Why can't you send one of your own?"
-
-"I told you before. All of our candidates pulled out of the program."
-
-"There is surely at least one person in the whole world both willing and capable."
-
-"You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa. But most importantly, you understand how important the obscura is. That the future of our people lies far beyond this planet. You know that you belong there."
-
-I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a small room in an empty sea. _I could die. I could die!_
+I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a tiny metal capsule with nothing but the infinite empty sea and the never-ending light of Ara.
 
 <!-- Kipnu barges in and roughs Fajro up -->
 
@@ -283,6 +279,18 @@ _Kip, what have you done?_
 
 <!-- Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it. -->
 
+"Your man's got quite the arm to hold me against a wall like that," said Fajro.
+
+His voice startled me from my own trance, and I took that quiet moment of despair to walk back into the room and sit next to him. "I do not pity you. The same as I don't pity him. You both think you know what's better for me. But you don't. Not really."
+
+"Don't flatter yourself," he said. "I'm not doing this for you. Right now, the world needs a hero. We needed you before when you sacrificed your freedom to deliver the truth to us, and now we need you again. You and I can negotiate until we both freeze to death in the dark but I would be remiss not to keep trying."
+
+I imagined the end: parents, children, the wicked and the righteous, every loved one that ever loved or died trying. All of us huddled together like statues in some forgotten corner of the universe. What good would love do when we're all gone?
+
+"Do you love anyone, Fajro? The way that man loves me?"
+
+<!-- left off -->
+
 "Fajro?" I called. He didn't answer.
 
 I stared at his sleeping face. It was wrinkled with the smiles of the past. _Were they genuine? Are you simply misunderstood?_.
@@ -334,8 +342,6 @@ He stood up and walked over to me.
 My heart sank. _Dammit, you fool._
 
 He turned to walk out the door and said to me, "I'm going to handle Kipnu's case and I'll be right back again. Don't go anywhere," he said while walking out the door.
-
-<!-- left off -->
 
 "Gentlemen, let's give hae a moment," said the magistrate in a humbled tone.
 
@@ -423,11 +429,9 @@ I answered the magistrate, "I'd like to ask Fajro about the study he's conductin
 
 "I'm not much of a talker, and your Holragi accent isn't thick. What do you _really_ need me for?"
 
-He sighed and looked at the lantern light against the dusty ground.
+He chuckled and looked at the lantern light against the dusty ground. "Liffa, you don't miss a thing do you? You're right, I need you for more than just your arrogant mouth. I need someone who's willing to take a risk."
 
-"Liffa, you don't miss a thing do you. That's one of the reasons I think you'd be a good candidate for the job. They also need to be willing to take the risk."
-
-"Risk? What risk?"
+My eyes narrowed in suspicion. "What sort of risk?"
 
 Our eyes met and he looked at me intently. "We need you up there, Liffa."
 
