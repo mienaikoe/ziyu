@@ -269,7 +269,7 @@ But Kipnu tightened his grip on Fajro's shirt. "Find someone else to mess with,"
 
 "Kip," I uttered in a broken voice. He let go and Fajro collapsed to the floor while the magistrate rushed over to check on him.
 
-"He's breathing, but unconscious," said the magistrate. "What were you thinking?"
+"He's unconscious," said the magistrate. "What were you thinking?"
 
 Kipnu looked back at them, his anger turning to concern. He knew there was no going back; that he'd damned himself to the dark island.
 
@@ -279,11 +279,17 @@ _Kip, what have you done?_
 
 <!-- Fajro uses the alone time to convince Liffa that he alone can save Kip from Ulukoma. Liffa considers going to Ulukoma to be with Kip, but wants both of them to avoid it. -->
 
-"Your man's got quite the arm to hold me against a wall like that," said Fajro.
+A groan from behind startled me from my own trance at the door as Fajro roused himself awake. I took that quiet moment of despair to walk back into the room and check on him. He brought his left hand up and behind his head to feel for a wound and I followed it. There was a small welt but nothing seemed broken or bleeding.
 
-His voice startled me from my own trance, and I took that quiet moment of despair to walk back into the room and sit next to him. "I do not pity you. The same as I don't pity him. You both think you know what's better for me. But you don't. Not really."
+"Your man's got quite the arm to hold me against a wall like that," said Fajro sluggishly.
 
-"Don't flatter yourself," he said. "I'm not doing this for you. Right now, the world needs a hero. We needed you before when you sacrificed your freedom to deliver the truth to us, and now we need you again. You and I can negotiate until we both freeze to death in the dark but I would be remiss not to keep trying."
+"I do not pity you. And I do not pity him," I said as I slumped against the wall next to him. "You both think you know better than the other. But you don't. Not really."
+
+"I don't need your pity," he said. "I knew how people would respond to my ideas. I've been fighting that headwind for all of my life."
+
+"It's not your ideas that he's mad about; it's your scheming, your manipulation. You've made it clear that you will stop at nothing to get what you want."
+
+"What I want is for the world not to die off in the cold darkness. Right now, the world needs a hero. We needed you when you sacrificed your freedom to deliver the truth, and now we need you again. You can keep denying the force of kismet until the very end when we're both freezing to death in the dark: that is your choice. But I do not have that choice: I cannot bring myself to give up when the hero we need is right next to me."
 
 I imagined the end: parents, children, the wicked and the righteous, every loved one that ever loved or died trying. All of us huddled together like statues in some forgotten corner of the universe. What good would love do when we're all gone?
 
