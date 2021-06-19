@@ -249,7 +249,13 @@ Fajro paused with a deep breath and began to pace around the lamplight. "A hand?
 
 Kipnu turned back to the magistrate who stood behind us with an uncomfortable look about him.
 
-"Y-Yes, sir," said the magistrate as he entered the room again. He looked at both Kipnu and Fajro as if to glean some prediction, his sharp eyes were now mired in worry. He began, "The senate has delivered a message regarding Liffa's sentence. It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag for a period of three days."
+"I have," said the magistrate as he entered the room again. He looked at both Kipnu and Fajro as if to glean some prediction, his sharp eyes were now mired in worry.
+
+He began, "Liffa Um Heiko, I have gathered as many facts as I could and have reached a conclusion. The codex of the senate makes clear that any interruption during deliberation is a corruption of all who are there. For this reason, I find you guilty of corruption of the deliberation of the senate."
+
+"Guilty" carries a suffocating weight to it, as if the mere utterance of the word could fill a lake and drown you in it. But I'd been preparing for this moment since the first step of this journey: I took the pain but I knew that "guilty" did not define me.
+
+The magistrate paused to scan the room again, searching for some interruption or tangent to delay what he had to say next, but all of us were waiting anxiously to hear the rest. "The senate has delivered a message regarding Liffa's sentence," he said. "It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag for a period of three days."
 
 _How did Fajro know before the magistrate?_
 
@@ -331,97 +337,21 @@ _Kipnu, you idiot. What did you think you would accomplish by coming here?_
 
 <!-- Liffa is sentenced -->
 
-"Now, let's get back to your case." He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose.
+<!-- left off TODO: This is way too fast -->
 
-"Liffa Um Heiko, I have gathered as many facts as I could and have reached a conclusion. I find you innocent of corruption of consciousness under the codex of Palinan and absolve you of all accusations of such claim. However, the codex of the senate makes clear that any interruption of any kind during deliberation is illegal. For this reason, I find you guilty of interruption of the senate during its deliberation."
+The magistrate took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa, do you understand the choices that are before you?"
 
-<!-- left off -->
+"I do," I said.
 
-"Your boy is strong," Fajro said to break the silence. I mended it.
-
-"He takes care of his body, I can tell. Maybe he should take care of his mind too."
-
-He took a swatch of fabric from a pocket in his trousers and blotted his head with it.
-
-"I guess he's not a fan of the idea, then," he said.
-
-"You lied to me, Fajro. And you planned the lie before we even met. I have no reason to trust you, and all the more reason to assume that nothing you say is trustworthy. All of your plans seem to weave together in your favor a little too well."
-
-"I don't blame you. Us fidelants learn to think a certain way. We tend to treat words as incantations more than expressions. They do what we want them to."
-
-"Why are you doing any of this? What paradise awaits you at the end of all this?"
-
-"Oh don't mistake me. I might be a good liar, but I don't do it for the pleasure."
-
-"Then why?"
-
-"This project. It's the only way our species can survive."
-
-"What do you mean?"
-
-"This obstruction – the obscura. Whatever it is, it's hostile. Whoever is controlling it will not stop until Palinan goes permanently dark. You read it yourself. We need you to understand what this thing is so we can stop it from blotting us out completely."
-
-"And what makes you think we can do that?"
-
-"You think we built a space rail with dumb luck? It took negotiation and compromise to bring together the best minds in all the world. We learned everything we could from them and then we made breakthroughs with our knowledge of electricity and metals. We sent countless test ships into space. Many of them orbited and then softly landed on their own with timers. We had space travel down to a science by the sweat and the grit of tens of thousands people."
-
-"-and the blood of hundreds," I showed him that I knew of his reputation.
-
-"Great things take great sacrifice, it is true. But the Heikoi were too simple-minded to see this. By the time we'd made things better, they left the deal."
-
-"And you're still bitter about it."
-
-"There is so much we still don't know about space. Nobody knows what's up there, in the great beyond. I came to Heiko to work with your observers, to discover new things about the universe we live in, but they just wanted to track the same information they had been tracking forever. And now this... obscura, as your observers call it. We're huddling in the dark with no plan. We could have been so far ahead of these invaders by now, but politics got in the way."
-
-"So you're just doing this to prove you were right all along. And I'm your Heikoi hero for all the PR."
-
-"Liffa, none of our feelings or policies or quarrels matter if we're all dead. I know that our project is the only way to survive, and I'm using what skills I have to recruit the people we need."
-
-The argumentation side of my brain went quiet. He was right. Even if we were enemies now, it wouldn't matter once we're all freezing and starving to death.
-
-"Is it dangerous?" I asked.
-
-"Of course it is"
-
-"...Does it hurt?"
-
-"What, space?" he laughed. "I suppose you haven't learned what it's like. Imagine a place with no ground; no trees no ocean; no up or down, no sound at all. Just you, Ara, and infinite darkness. That's space."
-
-I struggled to comprehend what that was like, but I didn't have much time until the door opened again.
-
-"Fajro, how are you holding up," the magistrate asked.
-
-"Fine, sir, fine."
-
-He went over to Fajro to check on his head.
-
-"You still look a bit pale, but you're getting better. Let me finish with Liffa, and then we'll get you somewhere we can look closer at your injuries."
-
-"Thank you, magistrate."
-
-The magistrate stood up and moved closer to me.
-
-"Liffa, I realized that I might have been a bit too hasty in my decision to switch the sentence. I've decided to let you choose where to go. Does that sound fair?"
-
-I answered, "Yes, magistrate. It's a generous offer."
-
-"In that case, I'll continue where I left off."
-
-He re-assumed his regal pose with paper and charcoal in hand, and cleared his throat in preparation.
-
-"Liffa Um Heiko. I find you guilty of interruption of the senate during its deliberation. The sentence shall be a period of thirty days on Ulukoma _or_ a period of five days under the command of Fajro Um Holrag. Do you understand?"
-
-"I do."
-
-"Then I await your decision within the next 500 ticks of Ara[^3]. I will be back to -"
+"Then I await your decision within the next 500 ticks of Ara[^3]. I will be back to-"
 
 [^3]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
 
-"Magistrate, I've already made my decision."
+"Your piety, I've already made my decision," I said.
 
 "You have?"
 
-_I'm sorry, Melna._
+_I'm sorry, Kipnu._
 
 "I'm going to Holrag."
 
