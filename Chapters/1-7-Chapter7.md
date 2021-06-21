@@ -207,7 +207,7 @@ A chill flowed through my veins as he told my dreams back to me as if he'd known
 
 I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a tiny metal capsule with nothing but the infinite empty sea and the never-ending light of Ara.
 
-<!-- Kipnu barges in and roughs Fajro up -->
+<!-- Kipnu barges in -->
 
 A new voice entered the other room: a man, agitated and moving about. I heard some shuffling of feet, and some failed attempts by the magistrate to calm him down. The man to the door and identified himself by my name. "Liffa!" Kipnu yelled for me.
 
@@ -255,9 +255,29 @@ He began, "Liffa Um Heiko, I have gathered as many facts as I could and have rea
 
 "Guilty" carries a suffocating weight to it, as if the mere utterance of the word could fill a lake and drown you in it. But I'd been preparing for this moment since the first step of this journey: I took the pain but I knew that "guilty" did not define me.
 
-The magistrate paused to scan the room again, searching for some interruption or tangent to delay what he had to say next, but all of us were waiting anxiously to hear the rest. "The senate has delivered a message regarding Liffa's sentence," he said. "It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag for a period of three days."
+The magistrate paused to scan the room again, searching for some interruption or tangent to delay what he had to say next, but all of us were waiting anxiously to hear the rest. "The senate has delivered a message regarding Liffa's sentence," he said. "It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag as an observer for the Ara line for a period of three days."
 
-_How did Fajro know before the magistrate?_
+_How did Fajro tell the magistrate his wishes?_
+
+"Outrageous!" Kipnu interjected. He wasn't prone to rash decisions, but I could tell he was on edge. "This is corruption. An advocate with an interest in the punishment? Is this what you call justice in Shaki?"
+
+The magistrate did not move his eyes from me. "I've told you to leave. I will not tell you again."
+
+"Let's settle ourselves gentlemen," said Fajro. "Kipnu, you don't want Liffa to go to Ulukoma. Neither of us do. As an advocate, I'm giving hae a way out."
+
+Kipnu wasn't convinced. "You think I'm not onto you? I don't know what you plan to do with hae, but thi doesn't belong in Holrag."
+
+"You mistake my intentions. Liffa is a comrade, a hero of the people. Thi will be treated with utmost respect. Besides, the only arrangements I make are those that are mutually beneficial."
+
+"And what benefit does thi get from this arrangement?"
+
+"Thi and I have talked it over. Perhaps you can ask hae yourself."
+
+They looked at me and I froze. Kip would never understand why I wanted to go. I used to tell him how my days as an observer were the best of my life, how I grew up reading books about the little glimmers of light hiding in Ulu and wanted nothing more but to see them for all their glory. But he never understood why I would want to leave a place so perfect as the home we grew up in. Melna knew how painful it was for me but even if she were here she would undoubtedly think up some crafty way to sway my opinion.
+
+<!-- left off -->
+
+<!-- Kipnu roughs him up -->
 
 Kipnu rushed toward Fajro and held him against the wall with a terrifying look in his eyes. Fajro let out a cry of pain as his head hit the stone. "You think I'm not onto you?"
 
@@ -338,6 +358,14 @@ _Kipnu, you idiot. What did you think you would accomplish by coming here?_
 <!-- Liffa is sentenced -->
 
 <!-- left off TODO: This is way too fast -->
+<!--
+
+So at this point, Liffa has even more reason to go to Ulukoma
+
+
+
+
+-->
 
 The magistrate took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa, do you understand the choices that are before you?"
 

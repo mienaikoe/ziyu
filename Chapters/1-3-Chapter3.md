@@ -232,21 +232,11 @@ He pushed again, "If you won't tell me, then I'm going with you."
 
 "They can wait."
 
-"Kipnu-"
+"Kipnu..." His gaze cast doubt on my resolve. How easy it would have been to have him with me for the whole journey; to know that I wouldn't be alone in thinking I was doing what was right, what was needed. But my comfort wasn't worth Kipnu's safety. I could have run then: I wanted to run. My plan was already thought through: deliver the message, then serve my time in Ulukoma and come back. I could survive. But if Kipnu were with me, I wouldn't stop worrying about him, and he about me. We would never make it Shaki, much less the senate hall.
 
-_I could run now. I wanted to run. I had this all planned out: deliver the message, then serve my time in Ulukoma and come back. I could survive. But if Kipnu came with me? I would have to fend for both of us in Ulukoma. Kipnu couldn't find food in the wild, or fight off someone trying to steal from us. He doesn't know how to survive in a place like that._
+I lowered my voice and kept my voice from breaking. "It may take a while, but I'll be back. I promise."
 
-I lowered my voice and spoke resolutely. "It may take a while, but I'll be back. I promise."
-
-"What are you talking about? The trains run all day."
-
-I paused not knowing how to respond, and in that time his face turned to realization.
-
-"No," he said. "You're interrupting the senate?"
-
-His gaze cast doubt on my resolve. How easy it would have been to say yes; to have him next to me while I interrupted a room full of politicians to deliver a note. To know that I wouldn't be alone when I did what I felt was right. But my comfort wasn't worth Kipnu's safety. I had to keep him out of it.
-
-"Why?" he asked.
+He was confused. "Take a while? But the trains run all day." But then his face turned to suspicion. "What are you planning?"
 
 I couldn't hold back the moisture pooling on my cheeks, the "mist of grief" as my mother called it. I took a deep breath to cool myself down and wiped it away, and felt even more resolute.
 
