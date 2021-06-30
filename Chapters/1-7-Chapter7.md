@@ -199,11 +199,11 @@ My eyes narrowed in suspicion. "That depends on the risk."
 
 A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to explore the sky since the day I was born. But this was not how I imagined it. "That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
 
-"As we speak, we are sending an empty capsule to see how the obscura reacts to it. We wouldn't dare send a living thing until we know for sure what would happen."
+"As we speak, we are sending an empty capsule to see how the obscura reacts. We wouldn't dare send a living thing until we know for sure what would happen."
 
 "And if it does get destroyed, you would have me sit around twiddling my thumbs for a few days?"
 
-"Think of it this way," he explained. "If something were to harm you under my watch – the selfless hero-messenger, the Heiko fidelant's maman – it would be a disaster for our entire project, for all the tribes of Holrag. You will be in safe hands. A few days making a name for yourself is surely better than spending your precious time in Ulukoma."
+"Think of it this way," he explained. "If something were to harm you under my watch – the selfless hero-messenger, the Heiko fidelant's maman – it would be a disaster for our entire project, for all the tribes of Holrag. You will be in safe hands. A day to learn how to control the capsule and two more making first contact, giving the whole world valuable information. Surely that's better than spending our last days in Ulukoma."
 
 I withdrew and faced the wall behind me. The room felt much smaller with an impatient question hanging in the air. It surrounded me, stifled my thoughts, demanded an answer. I imagined flying up there in that dark blue void, trying to observe and communicate with some machination that no one had encountered before. I saw the dream that Fajro saw: not just preventing our own extinction, but unlocking our understanding of what's really waiting for us out there. A dream so big that it could be the death of me, alone in a tiny metal capsule with nothing but the infinite empty sea and the never-ending light of Ara.
 
@@ -255,7 +255,7 @@ He began, "Liffa Um Heiko, I have gathered as many facts as I could and have rea
 
 "Guilty" carries a suffocating weight to it, as if the mere utterance of the word could fill a lake and drown you in it. But I'd been preparing for this moment since the first step of this journey: I took the pain but I knew that "guilty" did not define me.
 
-The magistrate paused to scan the room again, searching for some interruption or tangent to delay what he had to say next, but all of us were waiting anxiously to hear the rest. "The senate has delivered a message regarding Liffa's sentence," he said. "It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag as an observer for the Ara line for a period of three days."
+The magistrate paused to scan the room again, searching for some interruption or tangent to delay what he had to say next, but all of us were waiting anxiously to hear the rest. "The senate has delivered a message regarding Liffa's sentence," he said. "It shall be hae choice between two paths. One: to send away to Ulukoma for a period of twenty days. Two: to send away to Holrag under the care of Fajro um Holrag for a period of three days as the first sky explorer on the Ara line."
 
 _How did Fajro tell the magistrate his wishes?_
 
@@ -273,25 +273,37 @@ Kipnu wasn't convinced. "You think I'm not onto you? I don't know what you plan 
 
 "Thi and I have talked it over. Perhaps you can ask hae yourself."
 
-They looked at me and I froze. Kip would never understand why I wanted to go. I used to tell him how my days as an observer were the best of my life, how I grew up reading books about the little glimmers of light hiding in Ulu and wanted nothing more but to see them for all their glory. But he never understood why I would want to leave a place so perfect as the home we grew up in. Melna knew how painful it was for me but even if she were here she would undoubtedly think up some crafty way to sway my opinion.
+They looked at me and I froze. Kip would never understand why I wanted to go. I used to tell him how my days as an observer were the best of my life, how I grew up reading books about the little glimmers of light hiding in Ulu and wanted nothing more but to see them for all their glory. But he never understood why I would want to leave a place so perfect as the home we grew up in. Melna knew how painful it was for me but I knew if she were here she would undoubtedly think up some crafty way to sway my opinion. I had grown more fond of the idea after Fajro planted it in my head. Despite his suspicious intentions, I believed there was sincerity at the core of Fajro's offer.
 
-<!-- left off -->
+"Kip..." I said his name, and he turned away. But I'd seen this before. I knew he was still listening. "We're all looking death in the eye right now. We need to look for a way out or we're all done for. And if there really is nothing that can be done, I want to be there with you and Melna, at the end. Not on some strange prisoners' island."
+
+"How can you be so sure that you'll be safe where up there? This is all just a big experiment and they want you to be the subject. Let them send one of their own."
+
+"I too am Holragi, if you've forgotten. My father taught me that life is so rarely blessed with a journey of purpose; that regret follows those who do not heed its call."
+
+"And your mother taught you that all life is sacred. Your journey is not more important than your life."
+
+"If this is really the end for all of us, then this journey may repay the debt of my life for each one I save."
+
+"No," he said. His voice was broken, filled with frustration. "You're throwing your life away on a hope." I looked at Kipnu's sullen face and for a moment I felt a sense of doubt come upon me. His eyes grew wide and wild with anger. "You did this," he raised his voice to Fajro. "You filled hae mind with these delusions."
+
+"I did no such thing," Fajro responded. "Liffa understands the gravity of our current situation and the bravery it will take to overcome it."
 
 <!-- Kipnu roughs him up -->
 
-Kipnu rushed toward Fajro and held him against the wall with a terrifying look in his eyes. Fajro let out a cry of pain as his head hit the stone. "You think I'm not onto you?"
+Kipnu rushed toward Fajro and held him against the wall with a terrifying look in his eyes. Fajro let out a cry of pain as his head hit the stone.
 
 "This is absurd. Stop this immediately!" The magistrate shouted.
 
-But Kipnu tightened his grip on Fajro's shirt. "Find someone else to mess with," he said. "Liffa is staying here."
+But Kipnu tightened his grip on Fajro's shirt. "I'm onto you," he said. "You will regret this."
 
-"Kip," I uttered in a broken voice. He let go and Fajro collapsed to the floor while the magistrate rushed over to check on him.
+"Kip, stop this!" I uttered in a flustered voice. He let go and Fajro collapsed to the floor while the magistrate rushed over to check on him.
 
 "He's unconscious," said the magistrate. "What were you thinking?"
 
-Kipnu looked back at them, his anger turning to concern. He knew there was no going back; that he'd damned himself to the dark island.
+Kipnu looked back at Fajro, and showed no signs of remorse. He knew he'd damned himself, but he didn't care.
 
-The magistrate turned to me and said, "I'll return shortly. Keep an eye on him." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
+The magistrate turned to me. "I'll return with a doctor shortly," he said. "Take care of Fajro." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
 
 _Kip, what have you done?_
 
@@ -305,9 +317,9 @@ A groan from behind startled me from my own trance at the door as Fajro roused h
 
 "I don't need your pity," he said. "I knew how people would respond to my ideas. I've been fighting that headwind for all of my life."
 
-"It's not your ideas that he's mad about; it's your scheming, your manipulation. You've made it clear that you will stop at nothing to get what you want."
+"It's not your ideas that he's mad about." I shuffled in the silence, trying to muster some bravery to ask a pointed question. "Is it true, what he said? That you have some other reason for choosing me?"
 
-"What I want is for the world not to die off in the cold darkness. Right now, the world needs a hero. We needed you when you sacrificed your freedom to deliver the truth, and now we need you again. You can choose to stay with the ones you love until the very end when we're all freezing to death in the dark. But I don't have that choice: I cannot bring myself to give up when the hero we need is right in front of me."
+"The only thing I want is for the world not to die off in the cold darkness. Right now, the world needs a hero. We needed you when you sacrificed your freedom to deliver the truth, and now we need you again. You can choose to stay with the ones you love until the very end when we're all freezing to death in the dark. But I don't have that choice: I cannot bring myself to give up when the hero we need is right in front of me."
 
 I imagined the end: parents, children, the wicked and the righteous, every loved one that ever loved or died trying. All of us huddled together like statues in some forgotten corner of the universe. What good would love do when we're all gone? Maybe he was right.
 
@@ -353,188 +365,36 @@ I asked the magistrate, "Sir, if I may ask, what will happen to Kipnu?"
 
 "–He's going to Ulukoma."
 
-_Kipnu, you idiot. What did you think you would accomplish by coming here?_
+_Kipnu, you idiot._
 
-<!-- Liffa is sentenced -->
+I contemplated changing my mind, following Kipnu to Ulukoma to live out our last days together. Surely Fajro would find someone else just as capable, wouldn't he?
 
-<!-- left off TODO: This is way too fast -->
-<!--
+"I request a condition if I am to go to Holrag," I said to the magistrate.
 
-So at this point, Liffa has even more reason to go to Ulukoma
+The magistrate balked. "You're in no position to ask for–"
 
+"-No, it's fine." Fajro interrupted. "Go on."
 
+I straightened my posture and steadied my breathing, scrounging what confidence I could muster. "I request Jathi um Heiko to go with me. I want him to review everything and approve it before I go up."
 
+"Jathi..." said Fajro. "And who might that be?"
 
--->
+"An observer," I said.
 
-The magistrate took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa, do you understand the choices that are before you?"
+"Ah. An old friend." He thought over my proposition for a moment. "Can he can keep up with us? He cannot interfere with the timeline."
+
+"He's very quick when he needs to be," I reassured him. I saw the magistrate about to dissent, and pre-empted him, "You don't have to ask. He will come."
+
+"How can you be so sure?"
+
+"He and I have a friendship that's... hard to describe. But I know that he'll be there."
+
+"A traveler needs a companion to trust," said Fajro. "I agree to your request."
+
+The magistrate had an uncertain expression on his face, as if law he believed he was protecting had laughed in his face. He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa, do you understand the choices that are before you?"
 
 "I do," I said.
 
-"Then I await your decision within the next 500 ticks of Ara[^3]. I will be back to-"
+"Then what is your decision?"
 
-[^3]: Clocks on Palinan track divisions of the day in 20,736 "ticks", divided into groups of 12, 144, and 1728. One tick is approximately fifteen Earth seconds.
-
-"Your piety, I've already made my decision," I said.
-
-"You have?"
-
-_I'm sorry, Kipnu._
-
-"I'm going to Holrag."
-
-<!--
-I kept looking until their faces came into view. It was Melna after all.
-
-I held a hand through the only gap in the wall and I plead to her, "Melna... before you say anything I–"
-
-"Shh...," She took my hands and calmed me with her gentle voice, "Liffa... you did the right thing today."
-
-The watchman left us to return to his post. I stared at her, confused, but then I looked into her eyes. There was a sort of relief there: the kind you get when a great weight of anguish has been liberated from the spirit.
-
-She said, "When I saw you here, I was furious. But when you mentioned the observatory, I realized that you must have been sent by Thimlu and that everything else the senate was deliberating was irrelevant. I read the message to the senate and I told them I had been talking with the observers. Some of them believed me, but others did not."
-
-"Melna, you aren't..."
-
-"Angry at you? No. I'm angry at the senate. The message has swayed its course and it's become difficult to negotiate for Heiko. A fidelant from Holrag accused me of keeping all of this a secret so we could stockpile and profit on the chaos. Now they want Heiko to distribute enough food for all of Palinan to subsist on for 20 days."
-
-"But we only stockpile enough for ourselves for 60 days. And what about their own stockpiles?"
-
-"I know. But we must do this if we are to maintain our position in the senate. We will focus on rebuilding our grain reserves in the steppe."
-
-"The steppe?" I scoffed. "Melna, you can't grow anything out there it's too hot."
-
-"Things will begin to cool quickly. We can no longer grow in the same places. We must keep up with the obscura and move to warmer places."
-
-"And what if the obscura decides to disperse one day while we're stuck out there?"
-
-"We will have starved to death long before that if we don't start growing there."
-
-"No! You can't let them push us around like this!"
-
-"It's not that easy."
-
-"Just refuse their demand!"
-
-"It would risk a war at a time when we can't afford that."
-
-I pounded on the walls and I retreated back into my cell, my arms throbbing from the pain I'd just caused them. Through the ringing in my ears, I heard the heavy beating of my hearts counting each moment as it passed in the depths of this wretched city.
-
-"This senate... These are the people who protect our civilization from destroying each other? A bunch of angry men and women making bets with their people?"
-
-"Liffa... It's complicated."
-
-I paced again. This cell seemed smaller than it was before. I didn't let her see that I was fighting countless compulsions to rattle the door and scream at the top of my lungs. But my mind gave up and pushed me deeper into a depressive mess.
-
-"So... what happens to me now?" I asked in a cracked voice.
-
-"Well, they are unlikely to forego sentencing. A magistrate will visit you tomorrow with whoever wants to plea your case. Then he'll sentence you and take you to wherever that sentence sends you."
-
-"And you'll be there, right?"
-
-"Liffa... if I could–"
-
-"Don't you dare twist your words on me."
-
-She sighed and glanced to the side. "The senate has a special session tomorrow about the obscura. I have to be there to negotiate for Heiko. Otherwise, we'll be hung out to dry."
-
-I took a step back and sighed. "I understand," I said.
-
-"I'll get Kipnu to come. And I'll send a letter to the magistrate in the morning arguing for a lighter sentence."
-
-"Thank you."
-
-"Liffa. If I don't see you before you leave. Remember that I love you. Wherever you go."
-
-I hadn't considered that this might be the last time I see her for a while. "I know your love. I know."
-
-"The three of us are responsible for each other," she said. "I'll be fighting for home to feel like home. So you'll have something to look forward to when you come back."
-
-"And I promise to bring my whole self back as well."
-
-"Promise me, Liffa–"
-
-The door opened again and the sound of broken footsteps caught our ears. They were slow, and intimated a slight limp that made his presence obvious.
-
-"Fajro, what are you doing here?" I called to him.
-
-Melna looked at me with confused and disdainful eyes. "Fajro?! What is that lecherous milta doing here?" she asked in a hushed tone.
-
-I was surprised at Melna's reaction. Before I could explain, he rounded the corner and their eyes met.
-
-"Did you put Liffa up to this?" she asked.
-
-"Absolutely not. This was Liffa's idea."
-
-"My apologies if I seem doubtful, but this is not the sort of idea thi would think of."
-
-"Melna, these are dark times. Thi knows it. Now we all know it. We need more selfless heroes like hae who transcend the law and the bureacracy to do the things that we cannot wait for."
-
-"Surely the untouchable ex-fidelant would make for a better hero."
-
-_Untouchable?_
-
-He scoffed. "You don't become untouchable by bringing attention to yourself, Melna. You know that."
-
-I butted in, "I'm guessing you two have met?"
-
-Melna was quick to snatch the response, "Regrettably, yes."
-
-"Surely you're joking, Melna. Let our squabbles stay in the past where they belong."
-
-"I know your game, Fajro." She didn't hesitate. "We're not playing it."
-
-Fajro leaned back with a serious face now, "We can agree to disagree, but we will get nowhere pointing fingers at each other. The fact of the matter is that we are now in a battle for our lives against an unknown enemy. We must do everything that we can to come together, understand this threat, and fight it back as quickly as we can."
-
-Melna paused to let his words die in the corners of the room.
-
-"You have no business being here," she said. "This decision is between me and Liffa, so I'll ask you once nicely to leave."
-
-"You're being ridiculous Melna, I only–"
-
-"Get out."
-
-He stared at her for a moment, with the same unfazed and perceptive look he always had, and then slowly turned around, slinging a glance my way.
-
-"We'll talk later," he said to me.
-
-Melna turned back to me, and said, "Another lie."
-
-When he had finally closed the door on his way out, Melna came in closer to me and asked me under her breath, "How did you meet Fajro?"
-
-"I met him on the train here. I couldn't have done this without his help."
-
-"Of course. Listen to me, Liffa, that man will do anything it takes to force his will and gain power. He tricked the entire senate into a bad trade deal back when I was a junior fidelant. Heiko and Shaki were stuck donating food and freshwater to some shady mining project in exchange for a rail network. Then when he retired, it was clear that his company used our resources as leverage against the tribes of Holrag just to make his stupid space rail."
-
-"I didn't know..." I said.
-
-"Fajro's words may be sweet, but he is a conniving, manipulative bastard. Do not listen to anything he says."
-
-"But then why would he help me?"
-
-"To embarrass me and lower my status in the senate. Or perhaps he's working some other angle with the senate. Whatever it is you stay away from whatever he's offering, no matter how good he makes it sound. Do you understand?"
-
-"I understand."
-
-Her free hand was holding hard on my shoulder now, and she saw that I was uncomfortable, so she slowly rose her head again and calmed down.
-
-"Good," she said. "I'm sorry I can't be at your hearing tomorrow. I'll send a message to Kipnu to see if he can come instead. Meanwhile you should get some rest."
-
-I felt scared and alone again. "Where are you going?"
-
-"I'm sorry. I have to prepare for tomorrow's session."
-
-"Stay with me. Just for one more minute."
-
-She looked at me for a bit, then hung her lantern on a hook in the wall and held my hand through the hole. This place smelled like piss and rust, but I didn't mind. I chose this woman and she chose me.
-
-"I love you, Liffa. Kipnu would say it too if he were here."
-
-"I know. You're here."
-
-I lifted my head and gazed at her through the hole in the wall.
-
-"I love you too."
-
----
- -->
+"I choose to go to Holrag."
