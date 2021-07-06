@@ -277,13 +277,13 @@ They looked at me and I froze. Kip would never understand why I wanted to go. I 
 
 "Kip..." I said his name, and he turned away. But I'd seen this before. I knew he was still listening. "We're all looking death in the eye right now. We need to look for a way out or we're all done for. And if there really is nothing that can be done, I want to be there with you and Melna, at the end. Not on some strange prisoners' island."
 
-"How can you be so sure that you'll be safe where up there? This is all just a big experiment and they want you to be the subject. Let them send one of their own."
+"How can you be so sure that you'll be safe where up there? This is all just a big experiment. Let them send one of their own if they believe in it this much."
 
-"I too am Holragi, if you've forgotten. My father taught me that life is so rarely blessed with a journey of purpose; that regret follows those who do not heed its call."
+"I am not just Heikoi, Kip. I am Holragi, too. Have you forgotten? My father taught me that life is so rarely blessed with a journey of purpose; that regret follows those who do not heed its call."
 
-"And your mother taught you that all life is sacred. Your journey is not more important than your life."
+"And our village taught us that all life is sacred. There is nothing in your journey that is more important than your life."
 
-"If this is really the end for all of us, then this journey may repay the debt of my life for each one I save."
+"If this is really the end for all of us, then it very well may be. What I find out there may save everyone, repaying the debt of my life millions of times over."
 
 "No," he said. His voice was broken, filled with frustration. "You're throwing your life away on a hope." I looked at Kipnu's sullen face and for a moment I felt a sense of doubt come upon me. His eyes grew wide and wild with anger. "You did this," he raised his voice to Fajro. "You filled hae mind with these delusions."
 
@@ -295,13 +295,13 @@ Kipnu rushed toward Fajro and held him against the wall with a terrifying look i
 
 "This is absurd. Stop this immediately!" The magistrate shouted.
 
-But Kipnu tightened his grip on Fajro's shirt. "I'm onto you," he said. "You will regret this."
+But Kipnu tightened his grip on Fajro's shirt. "You will regret this," he said.
 
 "Kip, stop this!" I uttered in a flustered voice. He let go and Fajro collapsed to the floor while the magistrate rushed over to check on him.
 
 "He's unconscious," said the magistrate. "What were you thinking?"
 
-Kipnu looked back at Fajro, and showed no signs of remorse. He knew he'd damned himself, but he didn't care.
+Kipnu looked back at Fajro, and showed no signs of remorse. He knew he'd damned himself, but he was too angry to care.
 
 The magistrate turned to me. "I'll return with a doctor shortly," he said. "Take care of Fajro." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
 
@@ -387,14 +387,14 @@ I straightened my posture and steadied my breathing, scrounging what confidence 
 
 "How can you be so sure?"
 
-"He and I have a friendship that's... hard to describe. But I know that he'll be there."
+"Him and I have a special... It's a long story. Just trust me. I know he'll be there."
 
-"A traveler needs a companion to trust," said Fajro. "I agree to your request."
+"A traveler needs a companion that can be trusted," said Fajro. "I respect that, and I agree to your request."
 
-The magistrate had an uncertain expression on his face, as if law he believed he was protecting had laughed in his face. He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa, do you understand the choices that are before you?"
+The magistrate wore an expression of uncertainty on his face, as if they very law he had sworn to uphold was laughing in his face. He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa um Heiko, the law has granted you a choice between two punishments: a rare gift that only the senate itself may bestow. Have you taken the time to consider the choices before you?"
 
-"I do," I said.
+"I have," I said.
 
-"Then what is your decision?"
+"Then, pray, tell us your decision."
 
 "I choose to go to Holrag."
