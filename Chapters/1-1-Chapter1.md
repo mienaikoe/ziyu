@@ -92,19 +92,19 @@ She moved to the mirror and I followed her. The growing light of Ara had been sh
 
 She proceeded to wrap her cape around her shoulders and I took up the tying of her waistbelt behind her. The mauve color shined proudly in the daylight. I remembered dying them in a vat full of sedepin root, ensuring that the color was consistent and fast to the cloth. But still whenever I held it in my handsd, all I could see was its imperfections. Melna didn't seem to mind.
 
-"This morning, you mentioned the cold air," I spoke hesitantly.
+"This morning, you mentioned the cold air," I spoke hesitantly. She didn't respond. "The farmers have a responsibility, you know," I tried again to persuade her, "If a temperature drift is coming, we need to know so we aren't caught by an early-"
 
-She didn't respond.
+"If I had evidence of drift, I would tell you."
 
-"The farmers have a responsibility, you know," I tried again to persuade her, "If a temperature drift is coming, we need to know so we aren't caught by an early-"
-
-"Liffa... we've been over this. If I had evidence of drift, I would tell you."
-
-She was a stone wall of secrets, and I, the climbing vine, would be unsatisfied until I had broken through. It was unfair for me to keep pushing when I knew she was bound to her duties, but I couldn't let her go without a promise
+She was a stone wall of secrets, and I, the climbing vine. My mind would never be satisfied until it had broken through. I knew that I was being unfair, pushing when I knew she was bound to her duties, but I couldn't let her go without a promise.
 
 I placed a hand on her bare shoulder, "Look me in the eye," I pleaded. "Look at me and tell me you are not keeping secrets from the people of your province – from me."
 
-She looked at me through the mirror for a moment, searching for motives in an innocent face. "I don't have time for this," she said coldly.
+She looked at me through the mirror for a moment, searching for the source of my pleading. "Liffa," she sighed my name, "I know it's been difficult since you left the observatory. If anything is the matter, you know that Thimlu will tell us. You of all people should know that."
+
+I was incensed that she'd trivialized my concerns, that she thought of me as a hopeless romantic chasing the dream that got away. I replied, "A maman will dream. But a sixth cold isn't about me. As farmers, we would have to prepare more than anyone else. It's always been that way."
+
+"I've said what I said," she sternly replied. "I need to head out."
 
 I let out a frustrated sigh and fled to the doorway to stop myself from saying something I'd regret.
 
