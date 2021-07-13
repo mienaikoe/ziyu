@@ -187,17 +187,15 @@ He broke from his trance at the window and walked toward me. "If you are incline
 
 I was aghast. How could he possibly know so much about me? There was a sense of mistrust for Fajro that was brewing deep within me. Everything was too perfect, too convenient for coincidence. I needed assurance that I wasn't a tool for some other end.
 
-"If you really wanted someone with the credentials you could get Jathi or Thimlu, or some other observer. What do you _really_ need me for?"
+"You could ask any observer in the world. Most of them have more experience than me. What do you _really_ need me for?"
 
-He chuckled and looked at the lantern light against the dusty ground. "Liffa, you don't miss a thing do you? You're right, I need you for more than just your mind. You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa. But most importantly, you understand how important the obscura is. That the future of our people lies far beyond this planet. You know that you belong there, and you would be willing to risk anything to go."
+He chuckled and looked at the lantern light against the dusty ground. "Liffa, you don't miss a thing do you? You're right, I need you for more than just your mind. You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa, thanks to your time in the fields. But most importantly, you understand how important this is – more than just an academic triviality. This is proof that something else is out there; something ripe for discovery. The future of our people lies far beyond this planet and you belong there; leading us all into that great unknown."
 
-My eyes narrowed in suspicion. "That depends on the risk."
-
-"I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara." The light from the window glimmered against his face, showed the fire in his eyes as he looked into mine. "I want you to go on the journey that you've been waiting for your whole life: to travel beyond our planet into that great unknown, and return to tell everyone what you saw there."
+He knealed to my height and spoke in hushed tones with a familiar vigor of a man eager to convince me. "I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara." The light from the window glimmered against his face, showed the fire in his eyes as he looked into mine. "I want you to go on the journey that you've been waiting for your whole life: to travel beyond our planet into that great unknown, and return to tell everyone what you saw there."
 
 [^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
-A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to explore the sky since the day I was born. But this was not how I imagined it. "That's a suicide mission," I said. "What if the obscura is hostile or armed? It could be something we can't even fathom."
+A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to explore the sky since the day I was born. But this was not how I imagined it. My eyes narrowed in suspicion. "You're right that this is important, but I will not be reckless with my own life," I said. "What if the obscura is hostile or armed? It could be a thing we can't even fathom yet."
 
 "As we speak, we are sending an empty capsule to see how the obscura reacts. We wouldn't dare send a living thing until we know for sure what would happen."
 
@@ -367,7 +365,7 @@ I asked the magistrate, "Sir, if I may ask, what will happen to Kipnu?"
 
 _Kipnu, you idiot._
 
-I contemplated changing my mind, following Kipnu to Ulukoma to live out our last days together. Surely Fajro would find someone else just as capable, wouldn't he?
+I contemplated changing my mind, following Kipnu to Ulukoma to live out our last days together. Surely Fajro would find someone else just as capable, wouldn't he? I imagined someone else .
 
 "I request a condition if I am to go to Holrag," I said to the magistrate.
 
@@ -389,7 +387,7 @@ I straightened my posture and steadied my breathing, scrounging what confidence 
 
 "Him and I have a special... It's a long story. Just trust me. I know he'll be there."
 
-"A traveler needs a companion that can be trusted," said Fajro. "I respect that, and I agree to your request."
+"A traveler needs a companion that can be trusted," said Fajro, . "I respect that."
 
 The magistrate wore an expression of uncertainty on his face, as if they very law he had sworn to uphold was laughing in his face. He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa um Heiko, the law has granted you a choice between two punishments: a rare gift that only the senate itself may bestow. Have you taken the time to consider the choices before you?"
 

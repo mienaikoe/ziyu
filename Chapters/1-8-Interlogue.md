@@ -1,5 +1,8 @@
 <!--
 
+- Jathi is in the train
+-
+
 - Jathi arrives to support the journey
 - Fajro gives commands, shows he's in control now
 - Jathi expresses that he's excited for the task, that Melna had appointed him herself
@@ -12,3 +15,5 @@
 -->
 
 ## Interlogue
+
+Jathi looked over my shoulder toward the mountains of Seroa.
