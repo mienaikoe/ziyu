@@ -373,7 +373,15 @@ The magistrate balked. "You're in no position to ask for–"
 
 "-No, it's fine." Fajro interrupted. "Go on."
 
-I straightened my posture and steadied my breathing, scrounging what confidence I could muster. "I request Jathi um Heiko to go with me. I want him to review everything and approve it before I go up."
+I straightened my posture and steadied my breathing, scrounging what confidence I could muster. "I request that Kipnu goes with me."
+
+I had crossed a line with the magistrate and he vehemently denied my request. "Absolutely not," he said. "Beside the fact that he attacked Fajro and may do so again, the justice system of Shaki would be up in arms if I afforded a violent criminal the same respect as a trespasser in earnest.
+
+"A traveler needs a companion that can be trusted," said Fajro. "I respect that. But perhaps someone else would make our friend happier."
+
+I moved to the window to clear my mind, watching the wall stare back at me as I thought of who I could trust the most, who would be adventurous enough to say yes to something so dangerous. There was only ever one.
+
+"Jathi," I said with hesitation. "I want him to review everything and approve it before I go up.
 
 "Jathi..." said Fajro. "And who might that be?"
 
@@ -386,8 +394,6 @@ I straightened my posture and steadied my breathing, scrounging what confidence 
 "How can you be so sure?"
 
 "Him and I have a special... It's a long story. Just trust me. I know he'll be there."
-
-"A traveler needs a companion that can be trusted," said Fajro, . "I respect that."
 
 The magistrate wore an expression of uncertainty on his face, as if they very law he had sworn to uphold was laughing in his face. He took the nearly-empty lantern from its perch at the center of the room and assumed his regal pose. "Liffa um Heiko, the law has granted you a choice between two punishments: a rare gift that only the senate itself may bestow. Have you taken the time to consider the choices before you?"
 

@@ -1,6 +1,6 @@
 # Part II: Kipnu
 
-_None shall terminate the flow of consciousness_
+_None shall terminate the flow of the conscious mind_
 
 &nbsp;
 
@@ -24,4 +24,4 @@ _To destroy it is to destroy oneself._
 
 &nbsp;
 
-— The Code of Consciousness, Philosopher Lanre um Shaki, Day 17,528 after the Fifth Cold
+— The Code of the Mind, Philosopher Lanre um Shaki, Day 17,528 after the Fifth Cold
