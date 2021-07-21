@@ -36,6 +36,18 @@ I humored him. "To be honest, cake." He kept staring at the mountains, unmoved b
 
 He looked at me and said, "And you... You've got it all backward. Seroa and Chista used to be one big lawless province full of thieves and beggars. Travelers used to come from far and wide for promises of easy work in these lush valleys. Then when they'd done their time and made their way back, a pack of these would come off the mountain and rob them blind. Those fortresses you see up there were for spotting travelers on their way back to Holrag. It was k'aal, what they were doing."
 
+"Where do your people draw the line between k'aal and aal?" I asked. "Is it a simple law, or is it more nuanced than that?"
+
+Fajro laughed. "The law is written inside everyone. We learn a keen sense for this law as children and we carry it into everything that we do."
+
+"Did Holrag's armies carry it into these lands as they took children in as slaves?"
+
+"Shush, maman," said Fajro. "They were not slaves. Those children were savage and violent. The work and education they received were far better for them than a life spent waiting around for someone to rob."
+
+"I wonder what all can be taught to a child who longs for their parents."
+
+He frowned and looked away. "It was before your time," he said. "It would take ages to explain."
+
 Jathi looked back at the mountains again with a stern look on his face, changing his judgment of the Seroai from hermit fiefdom to selfish bandits. I was beginning to wonder if I'd made the right choice in bringing him as I resumed my look out the window, sending my scattered thoughts to the star I would soon share a home with.
 
 "What do you make of Kipnu?" Jathi asked me, his voice now tender and longing. "You think he'll be ok out there in the dark?"

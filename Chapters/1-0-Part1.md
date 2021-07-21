@@ -2,7 +2,7 @@
 
 &nbsp;
 
-_Love is a great force_
+_Love is a great force._
 
 &nbsp;
 
@@ -14,13 +14,13 @@ _and brings prosperity to the living spirit._
 
 _It leads us all through trial and mirth_
 
-_and brings us meaning when none remains._
+_and brings us meaning where none is found._
 
 &nbsp;
 
 _But the wicked know as well as the wise_
 
-_that love is vulnerable to corruption;_
+_that love may be corrupted;_
 
 _where by twisting and bending its weakest points_
 

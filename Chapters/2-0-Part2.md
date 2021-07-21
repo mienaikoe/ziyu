@@ -1,22 +1,22 @@
 # Part II: Kipnu
 
-_None shall terminate the flow of the conscious mind_
+_None shall terminate the flow of the conscious mind;_
 
 &nbsp;
 
-_whether their own or another's;_
+_neither for one's own mind nor that of another,_
 
-_whether temporarily or permanently;_
+_neither with intention nor by a failure to act,_
 
-_whether directly or indirectly;_
+_neither directly nor inductively,_
 
-_whether by force or by accident;_
+_neither by word nor by injury._
 
 &nbsp;
 
 _Consciousness is the sacred gift of life._
 
-_To manipulate it is to act contrary to the spirit._
+_To manipulate it is to be contrary to the spirit._
 
 _To squander it is to defy the will of nature._
 
