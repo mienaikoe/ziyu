@@ -148,17 +148,17 @@ Jathi shot me a glance. "What are you talking about?" he asked.
 
 "I'll interrupt the senate," I said. Thimlu chuckled, but Jathi was unamused.
 
-"You heard Pomri," said Jathi. "You'll be sent to Ulukoma."
+"You heard Pomri," he protested. "You'll be sent to Ulukoma. Who knows what happens out there in the dark."
 
-Thimlu smirked at me and said, "You've got guts, I'll give you that. Magistrate's a coin toss. On one hand, they get off on sending people to Ulukoma. On the other hand, they might be terrified of sending away the person who delivered a message like this."
+Thimlu smirked at me and said, "You've got guts, I'll give you that. Those Shaki magistrates are a coin toss. They get off on sending people to the dark island. On the other hand, they might be terrified of punishing the messenger for one of their less sensible laws. The public would be in an uproar."
 
-Jathi shouted back at him, "No! Ulukoma could get hae killed. I can't risk that." I was astonished. Jathi was always so calm and now he was the most animated I had ever seen him. He sighed and sat back, turning it over in his head while I rose from the desk and paced the floor between the two of them, pausing to admire the old wood floor that had heard countless messages of great significance in the ever-changing tides of time.
+"Well we won't have to test your theory because thi isn't going to Shaki, are you?" Jathi prodded me in opposition. I'd always known him as the boy who lived in the caverns of his mind, but now he was the most animated one in the room.
 
-Jathi stood up and spoke in a stoic tone. "I'll do it", he said.
+I rose from the desk and paced the floor between the two of them, pausing to admire the old wood floor that had heard countless messages of great significance in the ever-changing tides of time. I looked back at Jathi to wait for some alternative iidea he might propose and as if reading my mind, he stood up and spoke to us in a stoic tone. "I'll do it", he said.
 
 "Like hell you will," Thimlu interjected. "We've got a lot of work to do."
 
-But Jathi kept up his argument, "It's unfair to ask Liffa to do our job for us. Keeping an open line with fidelant is _our_ duty is observers."
+But Jathi kept up his argument, "It's unfair to ask Liffa to do our job for us. Keeping an open line with the fidelant is _our_ duty is observers."
 
 Thimlu hesitated, turning his head to me with a smirk on his face. "Liffa... what if I told you there was an opening in–."
 
@@ -232,7 +232,7 @@ He pushed again, "If you won't tell me, then I'm going with you."
 
 "They can wait."
 
-"Kipnu..." His gaze cast doubt on my resolve. How easy it would have been to have him with me for the whole journey; to know that I wouldn't be alone in thinking I was doing what was right, what was needed. But my comfort wasn't worth Kipnu's safety. I could have run then: I wanted to run. My plan was already thought through: deliver the message, then serve my time in Ulukoma and come back. I could survive. But if Kipnu were with me, I wouldn't stop worrying about him, and he about me. We would never make it Shaki, much less the senate hall.
+"Kipnu..." His gaze cast doubt on my resolve. How easy it would have been to have him with me for the whole journey; to know that I wouldn't be alone in thinking I was doing what was right, what was needed. But my comfort wasn't worth Kipnu's safety. I could have run then: I wanted to run. My plan was already thought through: deliver the message, then serve my time on Ulukoma and come back. I could survive. But if Kipnu were with me, I wouldn't stop worrying about him, and he about me. We would never make it Shaki, much less the senate hall.
 
 I lowered my voice and kept my voice from breaking. "It may take a while, but I'll be back. I promise."
 

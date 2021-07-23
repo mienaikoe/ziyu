@@ -60,4 +60,18 @@ A pang of anguish pursed my lungs. "He chose his path. And so did I. I'm not goi
 
 He looked at me intently, realizing the effect his words had had on me, and sighed. "Kipnu may not understand it now, but he will someday. I've seen the fire you bring out in each other. You'll both get through this."
 
-"Thank you, Jathi."
+"Thank you, Jathi," I said solemnly. "I can only hope that Kipnu finds someone as good as you in Ulukoma."
+
+Jathi nodded, then turned his attention to a window ahead of us. The rocky scene outside had turned into a broad river with flat arid grassland all around it. The grand mountain of the Ara line revealed itself on the horizon, standing proudly against the white hot sky of Holrag.
+
+"I've never seen anything like it!" he exclaimed, much to Fajro's satisfaction. Fajro's face seemed near drunk as he sang the praises of his greatest achievement to a man who understood its significance.
+
+And I too felt some pride to be there as I walked off the train and looked up at that colossal mass of limestone towering over the city below. But my gaze began to wander until it found its bearings down the path we'd come from. There was Kipnu. There was Melna.
+
+There was home.
+
+I took my binding pendant in hand, and whispered my mother's mantra into the ears of the universe.
+
+"The wind speaks," I said.
+
+A cool breeze spoke back.
