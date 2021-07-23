@@ -4,7 +4,7 @@ _None shall terminate the flow of the conscious mind;_
 
 &nbsp;
 
-_neither for one's own mind nor that of another,_
+_neither one's own mind nor that of another,_
 
 _neither with intention nor by a failure to act,_
 

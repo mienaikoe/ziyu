@@ -1,6 +1,6 @@
 ## Chapter 8
 
-The ship to Ulukoma looked like it was made by a generation of Throngia no longer living, and instead of being repaired correctly it was patched up with scrap boards and rusted nails. Despite its mostly ramshackle shape, it adorned a pair of thick, electrical risers built to press tightly against the rails above. Kipnu was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough.
+The rickety wooden ship to Ulukoma looked like it was made by a generation of Throngia no longer living. Instead of being repaired correctly it was patched up with scrap boards and rusted nails. Despite its mostly ramshackle shape, it adorned a pair of thick, electrical risers built to press tightly against the rails above. Kipnu was used to saffas and trains, not this ever-rocking monstrosity. But the trip wasn't long, and he might have believed he deserved such a punishment if he thought about it long enough.
 
 The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the escort call her. The ship had only a few exiles like him aboard, but each was accompanied by an armed escort. Most of them seemed mentally detached, their eyes staring blankly into the void of their own minds, and he wondered what each had been sent for. At the end of the line of exiles was a kaln, somewhere on the verge of being an adult. Thi had faint blue eyes: a sign of kanosin withdraw. He hoped that one of the others was a parent.
 
@@ -26,7 +26,7 @@ They got ashore, and Kipnu searched for a pulse.
 
 "Shit. No no no," he said. "Don't die. You're too young for that."
 
-He quickly moved onto the ground and lifted the kaln onto his own body. Hae skin had gone cold. In a cross-armed gesture, he set his arms in front of hae chest and rapidlly pulled down at a steady pace. The others gathered around them to watch what was happening.
+He quickly moved onto the ground and lifted the kaln onto his own body. Hae skin had gone cold. In a cross-armed gesture, he set his arms in front of hae chest and rapidly pulled down at a steady pace. The others gathered around them to watch what was happening.
 
 "The fire. We have to get hae to the fire," called a man from the crowd.
 
@@ -34,7 +34,7 @@ He quickly moved onto the ground and lifted the kaln onto his own body. Hae skin
 
 "Well this isn't working," the man responded.
 
-Kipnu butted in between pulses, "Everyone, gather kindling, from the forest. We'll start, a fire here."
+Kipnu butted in between pulses, "Everyone, gather kindling, from the forest. We'll start a fire here."
 
 Those who were able sprung into action while the kaln's mother lifted haeself out of the water and rushed over to Kipnu, still pushing on the child's hearts.
 
@@ -90,7 +90,7 @@ Casra laughed until thi noticed that Kipnu wasn't.
 
 "You're not joking about that, are you?" thi asked.
 
-He continued, "I got angry... and I pinned him against a wall. Told him, politely, to fuck off. Magistrate walks in, sentences me on the spot."
+He continued, "I got angry... and I pinned him against a wall. Told him, politely, that he'd made a big mistake."
 
 "Oh. That... must be a long story," thi said.
 
@@ -144,16 +144,10 @@ Kipnu was aghast imagining what this child's life might be like.
 
 "Waiting for what?"
 
-Kipnu looked into Linyu's eyes for answers, then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu flung himself around with his torch held high and caught the nose of a woman dressed in a thick robe of black kelp, her skin covered with blue luminescent flow tattoos. In her left hand was a wooden spear as tall as she was. She grunted with fury at the torch, and removed it from Kipnu's hand with ease. The two began to run, but the dark made it hard to see and Kipnu tripped on a root after only a few steps. The woman ran after Linyu, but in a desparate effort to save hae, Kipnu grabbed the woman's legs. She stumbled to the ground along with the torch and her spear. Her body twisted itself, wrestling free from Kipnu's grasp in an instant, and she jumped forward to search for the child but the darkness and the leaves had veiled hae path. The mysterious woman stood frustrated for a few moments, then turned and ambled toward Kipnu with a furious look on her face, crushing the the torch under her bare foot.
+Kipnu looked into Linyu's eyes for answers, then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu flung himself around with his torch held high and caught the nose of a woman. She was dressed in a thick coat of black kelp, her skin covered with luminescent blue markings. She grunted at the torch and quickly flicked a wooden pole to remove it from Kipnu's hand.
 
-She pinned him to the ground, demanded, "How do you know Linyu?!"
+He began to run, but he didn't notice a simple tree root at his feet that tumbled him onto the ground. The woman ran after Linyu, but Kipnu grabbed her ankles in an attempt to save hae. She stumbled to the ground with her pole beside her, but in an instant she freed herself from Kipnu's grasp and was back on her feet searching for the child. But much to her chagrin, the darkness and the leaves had veiled hae path. With a frustrated huff she ambled toward Kipnu, crushing the makeshift torch under her bare foot.
 
-Kipnu remained silent in shock. The luminescent ink in her skin was reflecting off of his terrified face and illuminating her own. He tried to wrestle free, but she drew her spear to his neck,
+"How do you know Linyu?!" she demanded. Her arm was pinning him to the ground. Kipnu remained silent in shock. The luminescent glow of her skin filled his eyes and illuminating her own. He tried to wrestle free, but she held the pole tightly against his neck to stop him.
 
-"Don't run. The other guardians won't be so forgiving."
-
-She smirked, "Besides, nobody here wants you dead."
-
-She leaned in closer to his face and smirked at him.
-
-"We like our prey alive."
+"Don't run," she said. "The other guardians won't be so forgiving. Besides, nobody here wants you dead." She leaned in closer to his face and smirked at him. "We like our prey alive."

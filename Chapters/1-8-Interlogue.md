@@ -70,7 +70,7 @@ And I too felt some pride to be there as I walked off the train and looked up at
 
 There was home.
 
-I took my binding pendant in hand, and whispered my mother's mantra into the ears of the universe.
+I closed my fingers around the binding pendant around my neck, a token of the love between us, and I whispered my hae mantra into the ears of the universe.
 
 "The wind speaks," I said.
 
