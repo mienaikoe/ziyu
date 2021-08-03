@@ -56,7 +56,7 @@ He did as she told and immediately winced at a stinging sensation covering his t
 
 "It's gone. What was it?" he asked.
 
-"Back at the pavilion, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdraw," Casra responded.
+"Back at the pavilion, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdrawal," Casra responded.
 
 "I see," he said. The substances were familiar to him but he had never had the experience of taking them.
 
@@ -90,7 +90,7 @@ Thi laughed, and paused to prepare haeself.
 
 "I guess I'll start where I left off. You remember I mentioned traditions. One of the traditions we used to have was the evening. It used to be a time of storytelling, singing, confessing of love, public mediation. Anyone could stand up and say or do anything they wanted. Then some would group up and explore their sexualities together before sleep, and others would just sleep if they weren't ready. The evening was a place and time where people weaved their lives together and apart and together again, and everyone grew closer to each other because of it. I had been under the addiction, but I had the faculty to understand their words and feel the love of a tribe more deeply than I knew of my junds."
 
-"On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, saw hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdraw, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
+"On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, saw hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdrawal, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
 
 "Setre..." Kipnu said hesitantly, "She's a guardian now, right?"
 

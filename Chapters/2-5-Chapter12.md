@@ -102,7 +102,7 @@ A single pair of hands began to clap from a fire far away. It was a man, standin
 
 He spoke mockingly into the breeze as if he himself was king of Ulukoma. "Such drama, Casra. It's a shame your talents are wasted on an addict."
 
-A young maman dressed in a tight black robe tugged on his arm to stop. The light blue tint in hae eyes showed that thi was in the worst stages of withdraw. He disregarded hae, pushed hae away with ease and stepped closer to Casra.
+A young maman dressed in a tight black robe tugged on his arm to stop. The light blue tint in hae eyes showed that thi was in the worst stages of withdrawal. He disregarded hae, pushed hae away with ease and stepped closer to Casra.
 
 The man was on a ridge of his own now, speaking to the crowd. "Shinna grants the wishes of those who have earned their place in society. Wealth beyond what the mainland can offer, attention from the other sexes, euphoria that expands your reality. Now, ask yourself if you've earned it. If you're one of those vile criminals from the second boat, then by all means, follow Casra to hae hole in the ground. But if you're an upstanding member of society and you've come here to find a haven from the obscura, then come with me to the Great Pavilion. You deserve to be a part of the new world order."
 
