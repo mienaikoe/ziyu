@@ -2,53 +2,48 @@
 
 The creaky wooden ship to Ulukoma looked like it was made by a generation no longer living. It was patched up with scrap boards and rusted nails that were raised from the boards they were meant to hold tightly to the beams below. Despite its mostly ramshackle shape the ship cut swiftly through the water under the power of an electric motor that hummed and rattled every plank and nail on the deck they stood upon. Kipnu was used to saffas and trains, not this ever-rocking monstrosity, but he took solace in knowing they would arrive shortly. He might have believed that he deserved to be on that ship if he thought about it long enough.
 
-The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the Shaki guard call her when he was taken aboard. The rest of the crew were rather unkempt men and women with stippled faces and miserable expressions. The ship's "cargo" – as the crew called them – was a handful exiles like him, their hands all bound with rope in front of them as they sat down in a line on the right side of the deck. Kipnu observed their expressions, watched all of them staring blankly into their own minds. Some were afraid and others were simply resigned. One peculiar guest caught his eye: a kaln with unbound hands (or was thi still a fully grown maman? He wondered if he wasn't the only one confused about hae age). Thi was standing at the bow, dressed in thick black kelp and peering out on the dark horizon. A faint blueish pattern shown on hae back. Some sort of marking made in kanosin? Kipnu couldn't be sure. But he knew that something was off about hae, as if no one else on the ship could see hae except for him.
+The captain was a tall, muscular woman by the name of Nanta, or at least that's what he overheard the Shaki guard call her when he was taken aboard. The rest of the crew were rather unkempt men and women with stippled faces and miserable expressions. The ship's "cargo" – as the crew called them – was a handful exiles like him, their hands all bound with rope in front of them as they sat down in a line on the right side of the deck. Kipnu observed their expressions, watched all of them staring blankly into their own minds. Some were afraid and others were simply resigned. And others had the blue haze in their eyes: a sign of kanosin withdrawal. He hadn't seen many cases, but Kipnu knew it when he saw it.
+
+One peculiar guest caught his eye: a kaln with unbound hands (or was thi still a fully grown maman? He wondered if he wasn't the only one confused about hae age). Thi was standing at the bow, dressed in thick black kelp and peering out on the dark horizon. Thi was too young to work the ship, much less be made a prisoner of Ulukoma. What thi was doing there, Kipnu couldn't be sure, but he knew that something was off about hae. It felt as if no one else on the ship could see hae except for him.
 
 The land behind them had disappeared by the time he noticed a dark silhouette before them: an island full of tall trees and nothing visible save for the sand along the shoreline illuminated by the reddish hue of Ara low on the horizon. The dusk of the sky made everything feel like evening, but Kipnu knew that the day was still at its peak.
 
 "Ballast!" called the captain, and all the crew rushed to the left side of the ship to wrap their wrists in bit of rope they'd prepared. Kipnu felt the ship begin to tilt to the right. "Turn!" cried the captain again as she pulled a steel lever on her left. The ship lurched violently to the left and began to roll onto its side. The others tried desperately to hold onto the railing, onto each other, but their hands were in no position to catch anything. One by one, they began to fall into the water as the ship continued to tip further and further. Kipnu tried to jam two fingers into a niche he'd found in the deck, but the gap was too small for his fingers to find a solid place to grasp. A large wave bared its breast before them and bore the weight of the ship on its back, creaking the deck beneath them. Kipnu knew the crash would wrest the last of his strength so with his last moments there he looked up at the captain as she smirked back at him and he vowed never to forget her face. With a boom the ship hit the water and his fingers released their grip on the deck. For a moment he was helpless, hanging in the air with nowhere to go but down. But as down is the most insistent of directions, his body met with the dark ocean below him.
 
-The cold water pierced his skin and covered his whole body with a feeling of needles.The shock disoriented him, scattered his sense of direction across the waves, but he remembered to hold his breath and let it come to him. Bubbles of air began trickling across his face as they fluttered to his left. _That is where up is_, he thought. With a sequence of kicks and jerking motions, he set his head upright and found the surface.
+The cold water pierced his skin and covered his whole body with a feeling of needles.The shock disoriented him, scattered his sense of direction across the waves, but he remembered to hold his breath and let it come to him. Bubbles of air began trickling and fluttering across his face from his right cheek to the left. _Floating up_, he thought. And with a sequence of kicks and jerking motions, he set his head upright and found the surface.
 
-"On your back!" A voice called to them. "Use your feet!". It was the strange kaln from the bow, treading water and calling out to the group as they struggled to stay afloat. Kipnu wanted to help them all, but he knew he could never help while his hands bound - he had to keep himself afloat and listen to the kaln. "This way!" the kaln called to them again from further away. Thi seemed to know the way to land.
+Kipnu breathed in the cool air and warmed his face with his exhales. He looked around and saw a sea of terrified faces struggling to stay afloat.
 
-The cold froze his skin numb as Kipnu did all he could to keep his head above the water as he followed the kaln's voice. The waves felt as if they would push him under if he stopped kicking. But he knew he wouldn't stop unless he gave up on himself. He trusted the mind he had trained to do nothing but think in critical situations like this.
+"On your back!" A voice called over the water. "Use your feet!". It was the strange kaln from the bow, treading on the waves and giving directions. Kipnu wanted to help but he knew that the kaln was in a far better place to do that - he had to focus on keeping himself afloat. "This way!" the kaln called to them again from further away. Thi was leading them to the shore.
+
+The cold in his skin turned to a dull pain as Kipnu fought to keep his head above the water and follow the kaln's voice. The waves were small but unrelentless, as if they would pull him out to sea if he didn't stop pushing. But he trusted his mind; he'd trained himself to think clearly in situations like this. His resolve to live and the rousing voice of a kaln were all he needed to stay alive.
+
+<!-- In medical training he was taught to repeat a phrase to keep himself calm; _Apathy kills. Agility cures._ -->
+
+"Where the waves begin to break, you can stand," said the kaln. Thi was waiting on the shallows, pulling people out of the water. "If you still have strength, come to me."
+
+With his toes pointing toward the ground, Kipnu could barely touch the pebbles below him but it was enough to stop and catch his breath while he pushed closer to the shore. The air struck his already-freezing body, but he carried on until he was close enough to get the kaln's attention. "Hey!" he yelled with his arms held high, hoping to catch the attention of the kaln. Thi noticed and spared not a moment running toward him. With quick movements, thi reached for Kipnu's wrists and cut each length of vinegrass with a small dagger that barely fit into his hands. The blade was smell, but effective in such deft hands.
+
+"Go help the others," the kaln said and Kipnu nodded in assent.
+
+He spotted a maman struggling in the water some twenty paces away, looking as though hae muscles were seizing in the cold. A surge of urgency rushed through him, as he jumped back into the depths with his arms now free to move his body where it needed to be. By the time he'd reached hae spot in the water, thi had become cataleptic and unresponsive to his calls. Without a thought, Kipnu latched hae chest under his arm, making sure thi was still above water. Thi looked at him with glazed eyes, confused and disoriented and no longer human. He knew that thi was close to hae last moments of consciouness, so he had to act fast. "Come on. Stay awake, kid," he said, and he started pulling hae back with all the strength that his body could manage. A wave overtook his head and filled his nose with that cold salty brine. And one after another, the waves crested over them with every pace they gained toward the land.
+
+Suddenly a hand pulled him forward, then another, and another until he felt a certain gravity toward the air, toward the land that only a team ten-strong could muster. They lifted hae body out of the water and laid hae out on the sand, waiting eagerly as Kipnu searched for a pulse. "No no no don't die," he pleaded with the heartbeats trickling slowly under his fingers.
+
+He quickly moved onto the ground and lifted the maman onto his own body, hae cold skin feeling like the ocean. In a cross-armed gesture, he set his arms in front of hae chest and pulled down, repeating at a steady pace to encourage hae hearts. By now his whole body was exhausted, but he knew he could endure it – he had to.
+
+The others gathered around to watch what was happening when the mysterious kaln, hae voice as confident as ever, called out over the crowd. "Everyone, gather kindling, from the forest," thi said. "The maman needs warmth, and so do we."
+
+The group sprung into action running toward the treeline while Kipnu remained with the maman, still pushing on hae hearts and warming hae up. Suddenly, he felt a writhing and a cough as the maman rolled onto hae side and took a sharp breath of air.
+
+"That's it," he said. "You're here, you're safe."
+
+Thi looked at him with kanosin eyes, dazed but slowly regaining consciousness. "You... your arms... warm," thi said, hae strength slowly coming back. Kipnu smiled and cajoled hae back into his arms to rest and warm up.
+
+A few who stayed behind started digging a pit in the sand, and soon people came trickling in, adding small twigs and branches to form a cone-like shape in the wood. The kaln produced a firestarter and a still-dry notebook from a peculiar bag at hae waist. Thi took the tip in hae hands and revved it up while pressing it to the paper, a crowd forming around hae to shield the flame from the light wind. Gently, thi breathed onto the paper until embers and smoke started to appear, and finally a small flame alighted from hae hands and thi moved it to the pile of wood they had built. The crowd hollered at the sight: a hint of warmth to come. Carefully, Kipnu moved the maman toward the newly forming fire and and set hae upright in front of it.
 
 <!-- left off -->
-
-He felt a tug at his leg in the middle of an exhale and his body went under while another person clambered over his submerged back, leaving him disoriented and deprived of oxygen. He panicked and flailed around in the water until his feet touched something solid. _The water isn't so deep here_, he thought. _I must be close_. He dug his toes into the pebble bed and pushed himself back toward his goal. He made it to standing depth and stopped to catch his breath while he looked for other people make it ashore. He spotted the young maman and hae mother, struggling together quite a ways out. It looked as though the kaln's muscles were seizing in the cold and hae mother didnt have the strength to pull both of them. A surge of urgency rushed through him, and he jumped back into the depths with his arms still bound in front of him. He had swam nearly 30 paces before he reached them. The kaln was unresponsive and hae mother was dazed, trying hae best to move both of their bodies to shore, but not making much progress. Without a thought, Kipnu latched the kaln's head under his arms, making sure thi was above water. He told the maman,
-
-"I'll get hae back. Focus on yourself."
-
-Thi looked at him with glazed over eyes, confused and disoriented, but Kipnu saw that the kaln had nearly become unconscious, so he had to move.
-
-"Come on. Stay awake, kid," he said, and he pushed the water with all his legs could push. Kipnu saw hae mother follow him, as if instinct had taken over.
-
-They got ashore, and Kipnu searched for a pulse.
-
-"Shit. No no no," he said. "Don't die. You're too young for that."
-
-He quickly moved onto the ground and lifted the kaln onto his own body. Hae skin had gone cold. In a cross-armed gesture, he set his arms in front of hae chest and rapidly pulled down at a steady pace. The others gathered around them to watch what was happening.
-
-"The fire. We have to get hae to the fire," called a man from the crowd.
-
-"That's thousands of paces away," said a woman.
-
-"Well this isn't working," the man responded.
-
-Kipnu butted in between pulses, "Everyone, gather kindling, from the forest. We'll start a fire here."
-
-Those who were able sprung into action while the kaln's mother lifted haeself out of the water and rushed over to Kipnu, still pushing on the child's hearts.
-
-Thi said, "I'm a doctor from Shaki. I can take over if you're tired."
-
-Kipnu responded between pushes. "Shouldn't...stop". Thi understood and started digging a pit in the pebbles near the two to construct a fire. The others had started to bring small twigs and place them in the pit, orienting them to form a cone. Suddenly, a cough was heard and everyone turned to find the child moving.
-
-"Linyu!" said the maman, and thi immediately pulled hae from Kipnu and laid hae on hae side.
-
-Kipnu remained still on his back, catching his breath from all the commotion that had just occurred.
-
-A woman in the crowd produced a firestarter and a still-dry notebook from a peculiar bag at her waist. She took the tip in her shaking hands and revved it up while pressing it into the paper while the people crowded around to shield her from the wind. The woman breathed gently onto the fire until embers and smoke started to appear. The crowd hollered at the smell: a hint of warmth to come. The maman carefully moved the child toward where the kindling was placed and set hae down on hae lap. The others started bring small dry leaves to the woman who was making good progress on smoldering paper.
+<!-- maman is Ginnu, Linyu is the commanding maman -->
 
 Kipnu had finally caught his breath and moved toward the maman and hae child.
 
