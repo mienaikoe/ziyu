@@ -60,6 +60,56 @@ He did as she told and immediately winced at a stinging sensation covering his t
 
 "I see," he said. The substances were familiar to him but he had never had the experience of taking them.
 
+<!-- copypasta begin from chapter 8 - this should be the first time he meets Casra -->
+
+Kipnu paused, wondering if he should mention the obscura.
+
+Thi changed the subject, "Where did you learn to do that?"
+
+"Learn to do...?"
+
+"Hypothermic chest compressions. That's not a common thing to know."
+
+"I'm a doctor. From Heiko."
+
+Casra laughed, "Two doctors in Ulukoma. What are the odds?"
+
+He smiled to himself - he was pondering the same thing.
+
+"So..." he asked, "How did you wind up here?"
+
+Thi hesitated. "If you don't mind, I'd prefer to ask you first."
+
+"Yes... of course." he said, embarassed.
+
+"No it's not that I think you're a bad person, I just–"
+
+"I get it. I'm a strange man in Ulukoma. And you have a kaln to look after. I'll give you the unfiltered version. There was this guy who wanted to send my jundmaman to space."
+
+Casra laughed until thi noticed that Kipnu wasn't.
+
+"You're not joking about that, are you?" thi asked.
+
+He continued, "I got angry... and I pinned him against a wall. Told him, politely, that he'd made a big mistake."
+
+"Oh. That... must be a long story," thi said.
+
+"No, that's basically it."
+
+Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again.
+
+"So how about you?" he asked. "Hope it's a bit less complicated."
+
+"It's...well I suppose it's a story best told elsewhere."
+
+"Sure."
+
+Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
+
+He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself.
+
+<!-- copypasta end -->
+
 "I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here with you yesterday, but we used to live here many ma'to before."
 
 Linyu handed Kipnu a wooden bowl of some sort of fish stew, and he eagerly took it with gratitude and started eating.

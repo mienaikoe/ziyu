@@ -28,88 +28,43 @@ With his toes pointing toward the ground, Kipnu could barely touch the pebbles b
 
 He spotted a maman struggling in the water some twenty paces away, looking as though hae muscles were seizing in the cold. A surge of urgency rushed through him, as he jumped back into the depths with his arms now free to move his body where it needed to be. By the time he'd reached hae spot in the water, thi had become cataleptic and unresponsive to his calls. Without a thought, Kipnu latched hae chest under his arm, making sure thi was still above water. Thi looked at him with glazed eyes, confused and disoriented and no longer human. He knew that thi was close to hae last moments of consciouness, so he had to act fast. "Come on. Stay awake, kid," he said, and he started pulling hae back with all the strength that his body could manage. A wave overtook his head and filled his nose with that cold salty brine. And one after another, the waves crested over them with every pace they gained toward the land.
 
-Suddenly a hand pulled him forward, then another, and another until he felt a certain gravity toward the air, toward the land that only a team ten-strong could muster. They lifted hae body out of the water and laid hae out on the sand, waiting eagerly as Kipnu searched for a pulse. "No no no don't die," he pleaded with the heartbeats trickling slowly under his fingers.
+Suddenly a hand pulled him forward, then another, and another until he felt a certain gravity toward the air, toward the land that only a team ten-strong could muster. They lifted hae body out of the water and laid hae out on the sand, waiting eagerly as Kipnu searched for a pulse. "No no no stay with me," he said, pleading with the heartbeats trickling slowly under his fingers.
 
-He quickly moved onto the ground and lifted the maman onto his own body, hae cold skin feeling like the ocean. In a cross-armed gesture, he set his arms in front of hae chest and pulled down, repeating at a steady pace to encourage hae hearts. By now his whole body was exhausted, but he knew he could endure it – he had to.
+He quickly moved onto the ground and lifted the maman onto his own body, hae cold skin feeling like the ocean. In a cross-armed gesture, he set his arms in front of hae chest and pulled down, repeating at a steady pace to encourage hae hearts. By now his whole body was exhausted, but he knew he could endure it – there was no other option.
 
-The others gathered around to watch what was happening when the mysterious kaln, hae voice as confident as ever, called out over the crowd. "Everyone, gather kindling, from the forest," thi said. "The maman needs warmth, and so do we."
+The others gathered around to watch what was happening when the mysterious kaln, hae voice as confident as ever, called out over the crowd. "We need kindling for a fire," thi said. "Everyone, to the forest. Find some dry pieces of wood."
 
-The group sprung into action running toward the treeline while Kipnu remained with the maman, still pushing on hae hearts and warming hae up. Suddenly, he felt a writhing and a cough as the maman rolled onto hae side and took a sharp breath of air.
+The group sprung into action running toward the treeline while the kaln started digging a shallow chasm in the sand - a place for the fire, Kipnu surmised. He was still with the maman, pushing on hae hearts and warming hae up. Suddenly, he felt a writhing and a cough as the maman rolled onto hae side and took a sharp breath of air. "That's it," he said, as thi breathed. "You're on land now. You're safe."
 
-"That's it," he said. "You're here, you're safe."
+Thi looked at him with kanosin-blue eyes, dazed and shivering but slowly regaining consciousness. "You... your arms are warm," thi said. Kipnu smiled, happy to see hae mind coming back to hae. He cajoled hae back into his arms to calm hae shivers, hoping not to give any misleading signals with his warmth.
 
-Thi looked at him with kanosin eyes, dazed but slowly regaining consciousness. "You... your arms... warm," thi said, hae strength slowly coming back. Kipnu smiled and cajoled hae back into his arms to rest and warm up.
+Soon people came trickling in, placing small twigs and branches in the recess the kaln built to form a cone-like shape. After the cone was sufficiently built, the kaln produced a firestarter and a dry notebook from a peculiar bag at hae waist. Thi took the firestarter in hae hand and turned its spinning magnetic rotor. After a seemingly calculated moment, thi pushed a lever to expose the hot center pole and pressed it to firmly the paper which began to darken and smolder. A crowd began forming around hae to shield the fledgling fire from the chilly breeze. Thi gently breathed onto the paper until smoke started to appear, then added a strange moss that smoldered even brighter, and finally a small flame alighted from hae hands. With careuly acuity, thi moved it to the bottom of the pile of sticks they had built and the flame grew bigger. The crowd hollered at the sight: a hint of warmth to come. Carefully, Kipnu helped the maman toward the newly forming fire and they sat down in front of it. He could feel that hae shivers had slowed and hae cognition was returning, and for the first time since leaving Heiko, he felt some bit of relief.
 
-A few who stayed behind started digging a pit in the sand, and soon people came trickling in, adding small twigs and branches to form a cone-like shape in the wood. The kaln produced a firestarter and a still-dry notebook from a peculiar bag at hae waist. Thi took the tip in hae hands and revved it up while pressing it to the paper, a crowd forming around hae to shield the flame from the light wind. Gently, thi breathed onto the paper until embers and smoke started to appear, and finally a small flame alighted from hae hands and thi moved it to the pile of wood they had built. The crowd hollered at the sight: a hint of warmth to come. Carefully, Kipnu moved the maman toward the newly forming fire and and set hae upright in front of it.
+"I'm Kipnu," he said.
 
-<!-- left off -->
-<!-- maman is Ginnu, Linyu is the commanding maman -->
+An anxious pause in the air between them. "G-Ginnu," thi finally said with a tremor in hae voice.
 
-Kipnu had finally caught his breath and moved toward the maman and hae child.
+"I was afraid you wouldn't make it," he said.
 
-"I'm Kipnu," he said to the maman.
+Thi laughed between shivers in a resigned sort of way. "Wouldn't be the f-first time someone said that". He wasn't sure what thi meant, but thought it best not to pry.
 
-The child murmured, "m-m-mh," but hae mother calmed hae down.
+Everyone was huddled closely around the fire now, squatting and staring at the only warmth in this place. He caught sight of the kaln, now warming haeself by the fire, and wondered at who thi was. How could a kid know so much about this place? Where did thi come from?
 
-"Casra," thi said abruptly, but warmly.
-
-"It's a miracle your kaln made it. Thi's resilient."
-
-Casra nodded in quiet agreement and kept hae arms and legs wrapped around the child while thi watched the smolders turned to flames and then fire. Slowly their shivers settled and their wet clothes dried. The whole group was huddled closely around the fire now, squatting and staring at the only light in this place.
-
-"Colder than I thought it would be," said Casra, trying to make small talk.
-
-Kipnu paused, wondering if he should mention the obscura.
-
-Thi changed the subject, "Where did you learn to do that?"
-
-"Learn to do...?"
-
-"Hypothermic chest compressions. That's not a common thing to know."
-
-"I'm a doctor. From Heiko."
-
-Casra laughed, "Two doctors in Ulukoma. What are the odds?"
-
-He smiled to himself - he was pondering the same thing.
-
-"So..." he asked, "How did you wind up here?"
-
-Thi hesitated. "If you don't mind, I'd prefer to ask you first."
-
-"Yes... of course." he said, embarassed.
-
-"No it's not that I think you're a bad person, I just–"
-
-"I get it. I'm a strange man in Ulukoma. And you have a kaln to look after. I'll give you the unfiltered version. There was this guy who wanted to send my jundmaman to space."
-
-Casra laughed until thi noticed that Kipnu wasn't.
-
-"You're not joking about that, are you?" thi asked.
-
-He continued, "I got angry... and I pinned him against a wall. Told him, politely, that he'd made a big mistake."
-
-"Oh. That... must be a long story," thi said.
-
-"No, that's basically it."
-
-Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again.
-
-"So how about you?" he asked. "Hope it's a bit less complicated."
-
-"It's...well I suppose it's a story best told elsewhere."
-
-"Sure."
-
-Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
-
-He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself.
+He looked over at Ginnu and saw hae already asleep next to him. Many of the others had started to do the same. "A moment's nap couldn't hurt", he said to himself. With heavy eyes he laid himself down at Ginnu's feet and let go of his thoughts for a short rest.
 
 ---
 
-Kipnu woke up in the darkness, cold from the death of the fire and his woven clothes holdnig fast to the damp. His belly grumbled and told him it had been at least a va'la since he ate. Slowly, he rose his aching back to an upright position, and then noticed that Casra and the child were gone. _Where would they have run off to in this darkness? I need to find them._ He moved to the fire and searched for a flame to rekindle from. He found some branches that were reserved for re-stoking the fire, and added the thicker ones to the fire, while he fashioned a handful of thinner ones into a makeshift torch. With the little bit of light from his torch, he followed the imprints of their feet until they disappeared at the treeline where thin leaves littered the ground and gave off a bittersweet aroma.
+Kipnu awoke in the darkness, cold from the distant Ara at the end of the day. Night was strangely dark here, with clouds forming above them and the light of Ara barely peeking over the horizon. The fire had died and his woven clothes were still holding fast to a few patches of dampness where the cool breeze had a bitter edge. His belly grumbled, wanting for any morsel of food he could find. Slowly, he rose again and looked around in the dark. Ginnu was sound asleep, breathing heavily with hae back to the sand. But the kaln seemed to be missing from where thi had been sitting before.
 
-The darkness of the beach was something he had anticipated, but the forest was of an entirely different class. The canopy was thick with leaves and branches, leaving very little light for ground-dwellers like him. He would have to track and plan his path: something he was wholly unprepared for. The stories of Ulukoma had painted a picture of a sprawling shanty town, with scarcely a mention of trees. But now was the time to focus; he carried the light into the towering forest, determined to find his new friends.
+Out of habit or concern, he wasn't sure, but he whispered to Ginnu, "I'll be right back," and stood up to go searching for the kaln.
+
+He moved to the remnants of fire, seeking some manner of fire to light his path. A few forgotten branches that had been reserved for stoking the fire had been left in the sand so he gathered all but a few thin sticks and added them to the embers in hopes that they might light. With the thinner ones and a bit of thick vinegrass cloth from his coat, he fashioned a makeshift torch and lit it from the embers of the fire. _This ought to last me,_ he thought. _Thi couldn't have gone far._
+
+With the little bit of light from his torch, he spotted imprints from the kaln's feet that disappeared at the treeline where thin leaves littered the ground.
+
+<!-- left off -->
+
+The darkness of the beach was something he had anticipated, but the forest was of an entirely different class. The canopy was thick with leaves and branches, leaving very little light for ground-dwellers like him. and gave off a bittersweet aroma. He would have to track and plan his path: something he was wholly unprepared for. The stories of Ulukoma had painted a picture of a sprawling shanty town, with scarcely a mention of trees. But now was the time to focus; he carried the light into the towering forest, determined to find his new friends.
 
 Kipnu listened closely for signs of life as he attempted to quiet his rustling footsteps. This was not a place for people. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
 
