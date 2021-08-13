@@ -28,7 +28,7 @@ With his toes pointing toward the ground, Kipnu could barely touch the pebbles b
 
 He spotted a maman struggling in the water some twenty paces away, looking as though hae muscles were seizing in the cold. A surge of urgency rushed through him, as he jumped back into the depths with his arms now free to move his body where it needed to be. By the time he'd reached hae spot in the water, thi had become cataleptic and unresponsive to his calls. Without a thought, Kipnu latched hae chest under his arm, making sure thi was still above water. Thi looked at him with glazed eyes, confused and disoriented and no longer human. He knew that thi was close to hae last moments of consciouness, so he had to act fast. "Come on. Stay awake, kid," he said, and he started pulling hae back with all the strength that his body could manage. A wave overtook his head and filled his nose with that cold salty brine. And one after another, the waves crested over them with every pace they gained toward the land.
 
-Suddenly a hand pulled him forward, then another, and another until he felt a certain gravity toward the air, toward the land that only a team ten-strong could muster. They lifted hae body out of the water and laid hae out on the sand, waiting eagerly as Kipnu searched for a pulse. "No no no stay with me," he said, pleading with the heartbeats trickling slowly under his fingers.
+Suddenly a hand pulled him forward, then another, and another until he felt a certain gravity toward the air, toward the land that only a team ten-strong could muster. They lifted hae body out of the water and laid hae out on the sand, waiting eagerly as Kipnu searched for signs of life. "No... no no," he said out loud, pleading with the sluggish heartbeats and shallow breaths trickling slowly under his fingers.
 
 He quickly moved onto the ground and lifted the maman onto his own body, hae cold skin feeling like the ocean. In a cross-armed gesture, he set his arms in front of hae chest and pulled down, repeating at a steady pace to encourage hae hearts. By now his whole body was exhausted, but he knew he could endure it – there was no other option.
 
@@ -58,23 +58,17 @@ Kipnu awoke in the darkness, cold from the distant Ara at the end of the day. Ni
 
 Out of habit or concern, he wasn't sure, but he whispered to Ginnu, "I'll be right back," and stood up to go searching for the kaln.
 
-He moved to the remnants of fire, seeking some manner of fire to light his path. A few forgotten branches that had been reserved for stoking the fire had been left in the sand so he gathered all but a few thin sticks and added them to the embers in hopes that they might light. With the thinner ones and a bit of thick vinegrass cloth from his coat, he fashioned a makeshift torch and lit it from the embers of the fire. _This ought to last me,_ he thought. _Thi couldn't have gone far._
+He moved to the remnants of fire, seeking some manner of fire to light his path. A few forgotten branches that had been reserved for stoking the fire had been left in the sand so he gathered all but a few thin sticks and added them to the embers in hopes that they might light. With the thinner ones and a bit of thick vinegrass cloth from his coat, he fashioned a makeshift torch and lit it from the embers of the fire. _This ought to last me,_ he thought. _Thi couldn't have gone far_.
 
-With the little bit of light from his torch, he spotted imprints from the kaln's feet that disappeared at the treeline where thin leaves littered the ground.
+With the little bit of light from his torch he traced the area, taking care to watch where he tread. He spotted an opening in the treeline, the ground around it littered with fragmented leaves and the distinctly tannic aroma of dampened anomin leaves. He hesitated, looking around for a more promising clue but nothing was certain to him in this unfamiliar place. So he took a step and let his feet lead him further into the dark.
 
-<!-- left off -->
+The canopy was thick with leaves and branches that danced against the dark blue sky above, leaving very little light for him to see with. This was not a place for people: there were no fruits to forage, no animals scurrying up and down the trees or whistling upon the air. It was unsettlingly silent. The stories of Ulukoma that he heard in passing had painted a picture of a rough-built village of even rougher people. He'd never heard mention of trees really, much less an entire forest. But now that he'd seen the place with his own eyes, it seemed to him that the entire island was covered in them. Perhaps the stories were made more grandiose by hyperbole, as most stories are. Or perhaps there was more to this island that was yet to be discovered.
 
-The darkness of the beach was something he had anticipated, but the forest was of an entirely different class. The canopy was thick with leaves and branches, leaving very little light for ground-dwellers like him. and gave off a bittersweet aroma. He would have to track and plan his path: something he was wholly unprepared for. The stories of Ulukoma had painted a picture of a sprawling shanty town, with scarcely a mention of trees. But now was the time to focus; he carried the light into the towering forest, determined to find his new friends.
-
-Kipnu listened closely for signs of life as he attempted to quiet his rustling footsteps. This was not a place for people. There were no shrubs to forage, no fruiting clusters in sight, no animals scurrying up and down trees or whistling upon the air. It was unsettlingly silent. He cleared a patch of ground looking for anything that might have fallen, but only roots and compacted leaves appeared.
-
-"There was smoke when we came in. That must be from the other exiles. They must have food somehow," he said to himself. His understanding of Ulukoma was hazy at best but he set out in the direction of Ulu, where he presumed the center of the island to be.
-
-There was a small clearing in the trees where he noticed a peculiar ornament on one of them. It was made of thin rings of copper, forming a spiral, and oxidized to a sea green patina by the salt water in the air. On the top end of the spiral, the metal straightened out and entered the tree's trunk. It looked to be some strange tool that he couldn't fathom. He stopped to study them, running his hands and fingers against the wires, imagining all the strange things it might be used for.
+Kipnu listened closely for signs of life as he walked along the path, attempting to quiet his rustling, muddy footsteps. He came to a small clearing where he noticed a peculiar ornament mounted to the trunk of a tree. It was made of thin strands of copper spun repeatedly into a ring the size of his hand, and oxidized to a dull green patina. A metallic bead was suspended at the center by thin threads loosely tied to the outer ring. He stopped to study it, running his hands and fingers against the wires, imagining all the strange things it might be used for.
 
 "Are you lost?" A voice suddenly called out.
 
-He turned around to find the child following his footsteps.
+He turned around to find the mysterious kaln behind him.
 
 "You've been following me?" Kipnu asked.
 
@@ -82,7 +76,7 @@ He turned around to find the child following his footsteps.
 
 "Who?"
 
-"The other exiles. They know the schedule. They wait for you to starve and then come to collect you when you're weak."
+"The ones who live here. They know the schedule. They wait for you to starve and then come to collect you when you're weak."
 
 "How do you know all this?"
 
@@ -90,16 +84,16 @@ He turned around to find the child following his footsteps.
 
 Kipnu was aghast imagining what this child's life might be like.
 
-"Where is your mother?" he asked.
+"Where are your parents?" he asked.
 
-"My mother is waiting."
+But the kaln hesitated to answer.
 
-"Waiting for what?"
+"Please," he pleaded. "I have no reason to–"
 
-Kipnu looked into Linyu's eyes for answers, then noticed that the kaln had been staring wide-eyed at something behind him. Kipnu flung himself around with his torch held high and caught the nose of a woman. She was dressed in a thick coat of black kelp, her skin covered with luminescent blue markings. She grunted at the torch and quickly flicked a wooden pole to remove it from Kipnu's hand.
+Kipnu saw the kaln shift hae gaze and widen hae eyes at something behind him. He flung himself around with his torch held high and nearly hit the nose of a woman. She was dressed in a thick coat of black kelp, her skin covered with luminescent blue markings. She grunted at the torch and quickly flicked a wooden pole to remove it from Kipnu's hand.
 
-He began to run, but he didn't notice a simple tree root at his feet that tumbled him onto the ground. The woman ran after Linyu, but Kipnu grabbed her ankles in an attempt to save hae. She stumbled to the ground with her pole beside her, but in an instant she freed herself from Kipnu's grasp and was back on her feet searching for the child. But much to her chagrin, the darkness and the leaves had veiled hae path. With a frustrated huff she ambled toward Kipnu, crushing the makeshift torch under her bare foot.
+He began to run, but he didn't notice a simple tree root at his feet that tripped his feet and he tumbled onto the ground with a clumsy thud. The woman ran after the kaln, but Kipnu grabbed her ankles to stop her. She too stumbled to the ground with her pole beside her, but in an instant she freed herself from Kipnu's grasp and was back on her feet searching for the child. Much to her chagrin, the darkness and the leaves had veiled the path around them. With a frustrated huff she ambled toward Kipnu, crushing the light from his makeshift torch under her bare foot.
 
-"How do you know Linyu?!" she demanded. Her arm was pinning him to the ground. Kipnu remained silent in shock. The luminescent glow of her skin filled his eyes and illuminating her own. He tried to wrestle free, but she held the pole tightly against his neck to stop him.
+"How do you know Linyu?!" she demanded. Her arm was pinning him to the ground with insuperable force. Kipnu was silent, shocked by the deathly gaze of this strange woman. The glowing patterns of her skin filled his eyes and illuminated her own. He tried to wrestle free, but she held the pole tightly against his neck to stop him.
 
-"Don't run," she said. "The other guardians won't be so forgiving. Besides, nobody here wants you dead." She leaned in closer to his face and smirked at him. "We like our prey alive."
+"Don't run," she said. "The others won't be so forgiving. Besides, nobody here wants you dead." She leaned in closer to his face and smirked at him. "We like our prey alive."

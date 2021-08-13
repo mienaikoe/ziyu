@@ -163,7 +163,7 @@ The magistrate held the door open for a moment, no longer observing but thinking
 
 "Listen, I need your help," I said, focusing on the subject at hand. "I don't want to go to Ulukoma."
 
-"My help?" he laughed. "As I recall, you said you could survive Ulukoma just fine without me getting in the way."
+"My help?" he laughed. "As I recall, you said you could get along just fine without me getting in the way."
 
 "I've changed my mind. After seeing Melna react the way she did... I need to be here, with my family."
 
@@ -365,7 +365,7 @@ I asked the magistrate, "Sir, if I may ask, what will happen to Kipnu?"
 
 _Kipnu, you idiot._
 
-I contemplated changing my mind, following Kipnu to Ulukoma to live out our last days together. Surely Fajro would find someone else just as capable, wouldn't he? I imagined someone else .
+I contemplated changing my mind, following Kipnu to Ulukoma to live out our last days together. Surely Fajro would find someone else just as capable, wouldn't he? I imagined someone else in that capsule, staying calm, trying to make sense of whatever was out there.
 
 "I request a condition if I am to go to Holrag," I said to the magistrate.
 
@@ -377,7 +377,7 @@ I straightened my posture and steadied my breathing, scrounging what confidence 
 
 I had crossed a line with the magistrate and he vehemently denied my request. "Absolutely not," he said. "Beside the fact that he attacked Fajro and may do so again, the justice system of Shaki would be up in arms if I afforded a violent criminal the same respect as a trespasser in earnest.
 
-"A traveler needs a companion that can be trusted," said Fajro. "I respect that. But perhaps someone else would make our friend happier."
+"A traveler needs a companion that can be trusted," said Fajro. "I respect that. But perhaps someone else would make our magistrate friend happier."
 
 I moved to the window to clear my mind, watching the wall stare back at me as I thought of who I could trust the most, who would be adventurous enough to say yes to something so dangerous. There was only ever one.
 
@@ -385,7 +385,7 @@ I moved to the window to clear my mind, watching the wall stare back at me as I 
 
 "Jathi..." said Fajro. "And who might that be?"
 
-"An observer," I said.
+"An observer," I said. "He works with Thimlu at the observatory in Heiko."
 
 "Ah. An old friend." He thought over my proposition for a moment. "Can he can keep up with us? He cannot interfere with the timeline."
 
