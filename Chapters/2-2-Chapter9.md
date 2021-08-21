@@ -1,48 +1,65 @@
+<!--
+
+OUTLINE FOR NEW CH 9
+
+The focus here will be on kanosin
+
+- Setre takes Kipnu past the firekeepers where he sees their eyes
+- Into the upper classes
+
+
+-->
+
 ## Chapter 9
 
-The woman walked behind Kipnu, guiding him at each turn with a push or shove of her pole. The darkness and the meandering path were like blindfolds to him, confusing his sense of direction so he couldn't trace his way back to the shoreline. <!-- left off --> The only tokens of familiarity were more of the strange copper baubles stuck to trees. _Copper is so rare. Why are they attaching it to trees?_ As they approached the fire, he could hear the familiar sounds of civilization: wood chopping, fire crackling, food sizzling, but very little conversation. In the darkness was the constant, low-pitched murmur of some sort of gathering.
+The woman walked behind Kipnu, guiding him at each turn with a push or shove of her staff. The blue glow of her skin dimly lit the branches around him, but his body cast a shadow in her light, obscuring the roots and rocks that tripped him in his stride. She led them along a meandering path that confused his sense of direction. The forest was like a blindfold, concealing the Ara-light that he never imagined would be gone. It gave him an unsettling feeling of smallness.
 
-The woman pushed him ever closer toward the noise and slowly he gathered the nature of this place. The fire was a behemoth, eating through branches as thick as his head. It would have escaped and eaten the entire village had it not been dug into the ground and surrounded by thick firebrick. The forge and oven were cleverly situated mere steps away, with their own fires stoked by the much larger one. There were people cooking fish and kelp on the other side simply by putting them directly on the brick and flipping them over occasionally. The smell made Kipnu lose all his focus and he briefly considered stealing a morsel. Either through experience or observation, Setre instinctively said, "Don't even think about it."
+The aroma of smoke stuck to the air and grew in complexity the further they walked, and finally he saw the orange glow of a large fire billowing in the distance. Between steps he listened to the familiar sounds of civilization: wood being chopped, logs crackling, food sizzling, but there was very little conversation. The woman turned him one last time toward the noise and step-by-step he gathered the nature of this place. The fire was a colossus eating through chunks of wood as thick as his head. He thought the flames would have eaten the entire forest had the fire not been contained by a pit as deep as a saffa is long. A series of clay ovens were situated at one side of the circle, with teams of people lazily filling and unfilling them with bread and fish and seaweed.
 
-Of the nearly hundreds of people mulling about, each one had glassy eyes that glowed faintly blue, just like the kaln from the boat. He had seen patients like this before but never had he seen so many people under the power of kanosin in one place, and he wondered if they were kept like this on purpose; clearly his new friend was different.
+"Keep moving, don't speak with them," said the woman in a harsh tone. He obeyed, not wanting to learn the pain of her weapon. As the woman guided him past, his eye caught sight of rheir glassy eyes glowing in a dull blue color. He had seen and heard of the bright blue eyes of kanosin addicts before but never had he seen so many actively working in that dreaded place called withdrawal. He wondered how they could even stand in such a state; he wondered if they were kept like this on purpose.
 
-"Who are these people?" he asked.
+As they moved out of hearing range, Kipnu decided to try learn from his captor. "Who are these people?" he asked.
 
-"The working class. They come here for the fix and work to earn it."
+She hesitated, then said, "Firekeepers. They come here for the fix."
 
 "What do they do after their sentence is up?"
 
-"Most of them never leave."
+The woman snickered dismissively. "Who said anything about a sentence?"
 
-Kipnu was incredulous, but was in no position to change a mind. He knew that the murmur of people had to be some other sort of group.
+"No sentence? Who would ever come to this place of their own volition?"
 
-"What about the others?"
+"You deaf?" she asked. "It's the fix."
+
+Kipnu was incredulous at the nonchalance this woman felt about the people who worked for her benefit. A sickening feeling came over him as he wondered where he would fit in this hierarchy.
+
+Ahead of them, a muffled cacophony of music and talking intermingled with the sweet aroma of burning anomin. A gathering of some sort, but muffled by some structure.
+
+"What do I hear?" he asked the woman again.
 
 "You'll see."
 
-At the far side of the fire a giant yurt stood proud, painted in long strokes of ochre on the same thick kelp that made up the woman's coat. Kipnu could hear the noises of a nearly a thousand people inside of it.
+<!--
+The only tokens of familiarity were more of the strange copper baubles stuck to trees. _Copper is so rare. Why are they attaching it to trees?_ -->
 
-The woman took his shoulder and said, "In here, you stay close to me."
+From a giant clearing of trees stood the outline of a giant yurt. The light of Ara illuminated the sky a dark shade of purple, made the kelpen cloth and woody soil seem otherworldly. Kipnu felt the rumble of a deep drum keeping time and the voices of nearly a thousand people, some of them singing and some talking. The woman took his arm in her hand and spoke in his ear. "In here, you stay close to me," she said. He nodded, knowing it was probably for the better. She moved to a fissure in the kelpen wall and glanced inside, then turned her head back to him. "Before we go in, what is your name and class?"
 
-He nodded. He didn't really have a choice.
+"Kipnu..." he said. She waited for the other answer, but Kipnu was unsure of what she meant.
 
-She moved to a fissure in the kelpen wall and glanced into the yurt, then turned her head back to him. "Before we go in, what is your name and class?"
+"Your duty?" she implored, "Your job?"
 
-"Kipnu. But Heiko doesn't have classes. I'm a doctor if that's what you mean... Why do you need to know this?"
+"I'm a physician if that's your meaning," he said. "What is it to you?"
 
-She looked him up and down again as if her eyes had seen him for the first time.
+She looked him up and down with a curious gaze as if her eyes had seen him for the first time. An acute feeling of discomfort grew within him as her eyes made their way back up to his. "Mark your words carefully, Kipnu. You have value, that much is certain. But what you do with your value is up to you."
 
-"I need to call you something when I introduce you."
+The woman led him by the hand under the flaps of the wall into a lustrous new world of blue. The room was a sea of skin and light, each woman, maman, and man baring the unique luminescent markings that meandered across their skin. He felt naked in his clothes and wholly opaque, but Setre pulled him ever deeper into the crowd, ever more lost in the blur. The deep drum grew louder as he grew nearer, rattling the ground with its droning meditation while dancers blurred into the sweet smoke of anomin. The rest were fully immersed in each other, drenched in the throws of erotic ecstasy. He looked at their eyes colored brightly with the light of kanosin, and for a moment, felt an inexplicable pang of envy.
 
-The two of them ducked under the flaps of the wall and entered a new world of blue. Everyone was nude or nearly so, and had ornately-patterned luminescent markings on their bodies, much like this woman's. A single drum pattern rattled the ground while musicians played their melodies and the dancers blurred into the sweet smelling smoke of anomin oil, their skin filling the air with an otherworldly glow. And still others were in the throws of erotic ecstasy, divining the truth in each other. Their eyes were brightly-colored with the same light, and he knew that they too were under the spell of kanosin.
+"Stay close," said Setre, or at least that's what he heard as she led him between gaps in the crowd, closer to the center of this grand hall. Upon a fine rug of blue light, a maman no more than Kipnu's age lay reclined in front of a broad post that held the weight of this place. Thi flirted and toyed with the men and women gathered around hae, but stopped as thi spotted Setre with a strange man. Thi looked him up and down and up again with lustful eyes, the only part of hae body that wasn't glowinig blue.
 
-She led him through the narrow spaces between people who were wholly unbothered by their presence. As they progressed deeper into the yurt, the air became thick with the odor of smoke. They came to the back, where a maman no more than Kipnu's age sat reclined in front of a broad post, smoking through a long pipe and laughing with the others around hae. Hae body was completely covered with the same blue luminescent flow tattoos the others were wearing, but hae eyes were clear.
+"Setre, you clever fiend," thi said in a salacious tone. "What a man you've brought me today."
 
-The woman whispered something in hae ear, and the maman looked Kipnu up and down with a mischievous smile. Thi motioned to him to join them on the other side of the cloth wall and she pushed him to go. With some hesitation, he followed. To his surprise, the other side wasn't the outside, but another smaller canopy with soft linens across the floor. He knew where this was going.
+Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove yourself, doctor." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-The maman spoke to him with a charming face.
-
-"Aey Kipnu. I see my faithful hunter, Setre, has found you. Welcome to the Great Pavilion of Ulukoma. My name is Shinna. I own this island and all the people on it, including you. If you do what is asked of you, all of your dreams will be fulfilled," thi said, hae voice trailing off into some other time and place.
+"Kipnu, welcome to the Great Dome of Ulukoma," thi said. "I am Shinna, and you will come to know me quite well. If you do what is asked of you, your dreams will will be fulfilled," thi said, hae voice trailing off into some other time and place.
 
 "If you choose not to... well you've seen what happens to those who misbehave."
 
@@ -64,7 +81,7 @@ Thi held up glowing blue syringe to Kipnu and encouraged him to take it. He took
 
 Setre moved the syringe to his abdomen, and punctured an artery, finishing the injection quicker than he realized. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Shinna lowered it, saying "There you go, my little Heikoi doctor. You'll start to feel it."
 
-He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immovable, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
+He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immobile, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
 
 "There you go," Shinna said while thi laid him down on the floor. The soft fabric was warm to the touch. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. His sense of self began to blur and he wasn't sure where his self ended and Shinna or Setre began. He put his hand around the pendant on his neck.
 
@@ -120,7 +137,7 @@ With a flick of the wrist, she made a shallow slice through a fatty part of his 
 
 She sighed and pulled out a cloth wrapping from her sling bag and threw it at him.
 
-"Bandage yourself up and come back into the Great Pavilion. Shinna will speak to you."
+"Bandage yourself up and come back into the Great Dome. Shinna will speak to you."
 
 "I have nothing to talk about."
 
@@ -130,7 +147,7 @@ She left the room, leaving a still-bleeding Kipnu barely standing. He bandaged t
 
 The room had nearly hundreds of people forming two lines that surrounded Shinna and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was some prize. _Why is everyone here? What are they looking at me for?_
 
-Shinna and hae crew sat where he entered the pavilion yesterday, the rest forming a two lines, a tunnel of people surrounding him on both sides.
+Shinna and hae crew sat where he entered the dome yesterday, the rest forming a two lines, a tunnel of people surrounding him on both sides.
 
 "Kipnu. Approach," Shinna commanded, hae voice carrying well from across the room. Setre was behind him, ensuring he didn't turn back.
 

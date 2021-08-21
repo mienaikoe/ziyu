@@ -4,7 +4,7 @@
 
 "I did what I had to."
 
-My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Pavilion of Ulukoma. This was the place where she last saw Kipnu; where a woman named Fanla had kept her alive.
+My nather and I sat in the darkness and the deafening snow, leaning against a Ziyu that stood watch above the reconstruction of the Great Dome of Ulukoma. This was the place where she last saw Kipnu; where a woman named Fanla had kept her alive.
 
 "And mom?"
 
@@ -112,7 +112,7 @@ Setre moved to stand upon the lip of the fire basin and took a blazing branch fr
 
 Her voice was strong, but carried the slightest hint of quiver. Unnoticeable to the crowd, but obvious to anyone who knew her well. _She still doesn't see herself as a leader._
 
-"You are currently sitting upon the grounds of the Great Pavilion of Ulukoma. You've been brought here by those who call this place home. Not as slaves, but as refugees."
+"You are currently sitting upon the grounds of the Great Dome of Ulukoma. You've been brought here by those who call this place home. Not as slaves, but as refugees."
 
 Her eyes darted across the area in an awkward silence, trying to think of what to say.
 
@@ -138,7 +138,7 @@ Kinsho and Senri nodded together in affirmation.
 
 "Kelpers with me! Kelpers!" called Senri with a higher pitch, but just as loud. They walked in opposite directions, drawing eager people away from their grief, their paralysis, leaving only the doctors and the infirm. Pomri and a few from her group stayed with the doctors, helping wherever she could.
 
-My nather's hand led me along toward the snow-covered pillars that would soon be the entrance of the new pavilion. Only a handful of Heikoi had joined her group of Ulukomai builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built. My mind wandered to Melna, seeing her and Fajro fall into the water. Of my nather keeping her ship a safe distance away while Pomri fought off solider after soldier on the shoreline, trying to get to Melna, but being pushed into the water instead.
+My nather's hand led me along toward the snow-covered pillars that would soon be the entrance of the new dome. Only a handful of Heikoi had joined her group of Ulukomai builders. I assumed that the rest must have stayed in Heiko, protecting the city they had built. My mind wandered to Melna, seeing her and Fajro fall into the water. Of my nather keeping her ship a safe distance away while Pomri fought off solider after soldier on the shoreline, trying to get to Melna, but being pushed into the water instead.
 
 "This is all we have?" she asked the group.
 
@@ -210,4 +210,4 @@ I glowered at her, at the ease with which she went behind my nather's back. But 
 
 _Why did I say that?!_, I thought. But I didn't stop myself. I wasn't bound by regret, only worry for my nather. She nodded back with that same intensity.
 
-Pomri returned to the maman she was monitoring to take hae vitals and ensure thi was warm. With a quick twist, I secured a cover onto the syringe and placed it in the basket with the others, giving a nod to the old guardian. A deep sense of guilt overshadowed my thoughts and drew my eyes toward the pavilion. Impatiently, she darted here and there like a tilmarim in the dark, teaching people how to construct a truss from tarred wooden posts. For the moment I let her fire into me, felt it cleanse the guilt from my heart. Our divergence was inevitable, but I remembered that we had the same goal: to outlast the obscura.
+Pomri returned to the maman she was monitoring to take hae vitals and ensure thi was warm. With a quick twist, I secured a cover onto the syringe and placed it in the basket with the others, giving a nod to the old guardian. A deep sense of guilt overshadowed my thoughts and drew my eyes toward the dome. Impatiently, she darted here and there like a tilmarim in the dark, teaching people how to construct a truss from tarred wooden posts. For the moment I let her fire into me, felt it cleanse the guilt from my heart. Our divergence was inevitable, but I remembered that we had the same goal: to outlast the obscura.

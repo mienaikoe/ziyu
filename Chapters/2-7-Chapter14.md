@@ -31,7 +31,7 @@
 
 ## Chapter 14
 
-Kipnu stopped them at the top of the hill overlooking the pavilion, smelling the first hints of fire in the air. Ara was but a reddish sliver on the horizon, a view that he never fathomed to see. He turned around and signaled to them to gather in close. Huddled to his right was Fanla, who held the length of rope binding Ginnu's hands. It was an unpleasant position for the both of them, but she understood the weight of the job.
+Kipnu stopped them at the top of the hill overlooking the dome, smelling the first hints of fire in the air. Ara was but a reddish sliver on the horizon, a view that he never fathomed to see. He turned around and signaled to them to gather in close. Huddled to his right was Fanla, who held the length of rope binding Ginnu's hands. It was an unpleasant position for the both of them, but she understood the weight of the job.
 
 "From this point on, we'll split into the two groups I mentioned before. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If you're about to be captured, destroy it. We cannot let them get a hold of one. And finally, we are not here to fight, we are here to liberate. Even if we have all of the weapons and antikan on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
 
@@ -39,7 +39,7 @@ They made a gesture with their hands in assent, a sort of salute of honor that K
 
 "Ground team, stay here until you hear us through your listeners. Sky team, let's move."
 
-Kipnu took him through the forest, ever closer to the fire until they came upon a tree with a slight lean toward the pavilion. Its roots looked as sturdy as any other tree and its trunk was littered with a coil here and there, a sign that Linyu had often climbed it.
+Kipnu took him through the forest, ever closer to the fire until they came upon a tree with a slight lean toward the dome. Its roots looked as sturdy as any other tree and its trunk was littered with a coil here and there, a sign that Linyu had often climbed it.
 
 "This one," he whispered, looking up into the dark abyss, imagining Linyu there among its branches. He tied a rope to himself, leaving two long ends free, and began the climb up the tree. The lean helped to support their weight on each vault to the next position. With such a large tree, Kipnu was struggling to secure his footing on the bark, but he learned to find the various crevasses that formed out of the bark and use them to his advantage.
 
@@ -51,7 +51,7 @@ This place was bathed in the light of Ara, a sprawling terrain of densely-packed
 
 He turned around to look toward Ulu. Through the darkness, Kipnu could see patches of clouds that faded into Ulu. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky, ever still, ever bright. Like the small children of Ara. He wondered at what they might be, how long they'd been just beyond the veil of Ara.
 
-Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the pavilion. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
+Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the dome. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
 
 Kipnu pulled a listener out of a satchel he was carrying and removed the coil assembly from the wooden puck. With a small tool he'd found in Casra's home, he cleaved a hole into the branch and inserted the end of the coil that stuck out, giving time for the fresh wet wood take to it. As they waited, they watched as the last sliver of light extinguished itself into the ground, and an eerie feeling overcame them. They knew that this strange new kind of darkness would soon be everywhere.
 
@@ -63,9 +63,9 @@ The maman with the listener nodded to him and he smiled, knowing Linyu's work ha
 
 "Seven guardians around the fire," he told the ground team. "Five near the armory. We'll approach from Ulu-side."
 
-And without a moment to pause, he led them in a sparse line through the forest, around the pavilion grounds and further into the dark.
+And without a moment to pause, he led them in a sparse line through the forest, around the dome grounds and further into the dark.
 
-Penyi's voice chimed in through the listener. "There's a commotion in the pavilion," thi said, "The guardians are leaving the armory."
+Penyi's voice chimed in through the listener. "There's a commotion in the dome," thi said, "The guardians are leaving the armory."
 
 "Now's our chance," he told them. "I need four volunteers to come with me. Walk silently and spread out."
 
@@ -113,7 +113,7 @@ He lunged at her, covering nearly half the room in a single step, but she moved 
 
 His voice boomed at her in a sort of low-pitched growl. "If you ever rush me again, you'll be the one locked in the cellar."
 
-She looked him up and down with a disgusted, dismissive look on her face and ran off back toward the pavilion, while Ramne picked up a spear of his own.
+She looked him up and down with a disgusted, dismissive look on her face and ran off back toward the dome, while Ramne picked up a spear of his own.
 
 "Time to bring a light back to Ulu," he said, and stepped out into the firelight.
 
@@ -217,15 +217,15 @@ Shinna lifted haeself out of the hole and carried Casra through that bustling cr
 
 Kipnu lifted himself out of the hole, caught his breath in the armory amongst the clamor of people scrambling for more antikan and spears. A pair of anomin lanterns had been lit but the air was not filled with their sweet smell, but the smell of smoke. He looked for Fanla, but couldn't find her. Nor did he find Ginnu.
 
-Penyi came upon the listener again. "Fire. There's a fire at the Pavilion!"
+Penyi came upon the listener again. "Fire. There's a fire at the Dome!"
 
-An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the pavilion, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
+An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the dome, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
 
-Some people were rushing out of the pavilion carrying limp bodies. Others were paired together, carrying crates of fish or kelp. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
+Some people were rushing out of the dome carrying limp bodies. Others were paired together, carrying crates of fish or kelp. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
 
-"Fanla! What's going on?" he asked her. Another woman came out of the burning pavilion, carrying two guardians on her shoulders, and set them gently on the ground next to the others.
+"Fanla! What's going on?" he asked her. Another woman came out of the burning dome, carrying two guardians on her shoulders, and set them gently on the ground next to the others.
 
-"We're pulling people out of the pavilion. I need your help."
+"We're pulling people out of the dome. I need your help."
 
 "Where is Setre?" he asked.
 
@@ -243,7 +243,7 @@ He called her name but could scarcely be heard above the rumble.
 
 A silhouette appeared on the ground. It was short, resembling a child, but through the lapping of flames and fabric, the silhouette moved and transformed into two figures. One on the ground, and the other hovering over.
 
-"Do you need help?" he said to them. But the kneeling figure ran off toward the back of the pavilion, staying low to the ground.
+"Do you need help?" he said to them. But the kneeling figure ran off toward the back of the dome, staying low to the ground.
 
 "Wait!" he said, but the figure had already disappeared. He turned to the person lying on the ground and found Setre.
 
@@ -255,7 +255,7 @@ When he had made it back to Fanla, he set her down gently and began examining he
 
 _I need to find Casra._
 
-"The pavilion is clear and the fighting has stopped," he said. "Keep giving antikan to addicts and kanosin to the ones who won't make it. I'm going after Casra."
+"The dome is clear and the fighting has stopped," he said. "Keep giving antikan to addicts and kanosin to the ones who won't make it. I'm going after Casra."
 
 Fanla, incredulous, averted her focus, "Where are you going?! We need you here!"
 

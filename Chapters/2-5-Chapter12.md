@@ -104,7 +104,7 @@ He spoke mockingly into the breeze as if he himself was king of Ulukoma. "Such d
 
 A young maman dressed in a tight black robe tugged on his arm to stop. The light blue tint in hae eyes showed that thi was in the worst stages of withdrawal. He disregarded hae, pushed hae away with ease and stepped closer to Casra.
 
-The man was on a ridge of his own now, speaking to the crowd. "Shinna grants the wishes of those who have earned their place in society. Wealth beyond what the mainland can offer, attention from the other sexes, euphoria that expands your reality. Now, ask yourself if you've earned it. If you're one of those vile criminals from the second boat, then by all means, follow Casra to hae hole in the ground. But if you're an upstanding member of society and you've come here to find a haven from the obscura, then come with me to the Great Pavilion. You deserve to be a part of the new world order."
+The man was on a ridge of his own now, speaking to the crowd. "Shinna grants the wishes of those who have earned their place in society. Wealth beyond what the mainland can offer, attention from the other sexes, euphoria that expands your reality. Now, ask yourself if you've earned it. If you're one of those vile criminals from the second boat, then by all means, follow Casra to hae hole in the ground. But if you're an upstanding member of society and you've come here to find a haven from the obscura, then come with me to the Great Dome. You deserve to be a part of the new world order."
 
 He spoke like a commander recruiting his troops from the ranks of children. There was clapping and wooing from some people behind him at the fire: his hired band of hypemakers. Thi realized now that the first boat was full of people fleeing the obscura. But why come here? Did they hear about...no...
 
@@ -114,7 +114,7 @@ Casra took his hand, accepting his apology.
 
 "Who's this guy, Casra?" said the man. He scoffed as he looked Kipnu up and down, but Kipnu didn't pay him any mind. The plan was more important than putting this man in his place.
 
-Casra continued speaking to the crowd with a rallying cry, "The Great Pavilion can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. For those who choose not to join us, may fate be gentle to you."
+Casra continued speaking to the crowd with a rallying cry, "The Great Dome can be a safe haven for all of us. But we must fight to make it so. If you would join us, then dry your clothes and finish your bread. For those who choose not to join us, may fate be gentle to you."
 
 The people began to hum and murmur with activity, while Casra and the man stood in the middle.
 
@@ -168,7 +168,7 @@ Kipnu clenched his fists around the spear as Ramne's brutes disappeared into the
 
 A tear came to his eye as he thought of Linyu. _"Bring Linyu with you,"_ Casra's request resounded in his head.
 
-"Know this. The Great Pavilion is not a prison, it is a kanosin cartel powered by the work of addict-slaves. Wherever you go here, you cannot escape from its reach. Here and now, you've made a choice that will affect the rest of your lives. You've rejected whatever miserable life you'll find with Shinna, and you've resolved to fight so that others may never know such a miserable fate."
+"Know this. The Great Dome is not a prison, it is a kanosin cartel powered by the work of addict-slaves. Wherever you go here, you cannot escape from its reach. Here and now, you've made a choice that will affect the rest of your lives. You've rejected whatever miserable life you'll find with Shinna, and you've resolved to fight so that others may never know such a miserable fate."
 
 "I choose to fight!" yelled a maman near him.
 

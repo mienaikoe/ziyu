@@ -1,6 +1,6 @@
 ## Chapter 30
 
-He picked a ziyu far enough way that climbing wouldn't alert anyone, but close enough that moving across the canopy wouldn't be difficult. From his sleeves, he produced two short kelp straps and signalled for me to climb first. I obliged. I went at my usual quick pace up the tree, and upon reaching the canopy, I plotted a path along the thick branches to reach an area above the pavilion. If I moved quickly, I could alert someone about Ramne.
+He picked a ziyu far enough way that climbing wouldn't alert anyone, but close enough that moving across the canopy wouldn't be difficult. From his sleeves, he produced two short kelp straps and signalled for me to climb first. I obliged. I went at my usual quick pace up the tree, and upon reaching the canopy, I plotted a path along the thick branches to reach an area above the dome. If I moved quickly, I could alert someone about Ramne.
 
 Being in the canopy again gave me a pang of familiarity that I didn't quite understand. I looked to the red stars for some shred of memory. Kipnu's face came to mind: a glimpse of something obscured from my memory. But as Ramne caught up with me, I had no more time to remember. Annu needed me now.
 

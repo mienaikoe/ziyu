@@ -156,7 +156,7 @@ Thi began to think, staring closely at my arm.
 
 "We never saw anyone. The crates were always waiting for us on the shore and Ramne would handle payment."
 
-"The Great Pavilion was a sight to behold. We had stockpiles of bread, kelp, and smoke-dried fish for our feasts. Much of the structure was reduced to ash in the fire but the stockpiles remain, buried underground."
+"The Great Dome was a sight to behold. We had stockpiles of bread, kelp, and smoke-dried fish for our feasts. Much of the structure was reduced to ash in the fire but the stockpiles remain, buried underground."
 
 "Made by slave labor, no doubt."
 

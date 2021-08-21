@@ -172,7 +172,7 @@ Setre spoke to him over the dish cleaning basin.
 
 "Kanosin is just a drug. There's not much to know."
 
-"You are terribly mistaken, Kipnu. You would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would parade his trophy around, inadvertently bringing more attention to hae. And thi was right. He came to the pavilion bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more steps to force a bloodless surrender: a small but knowledgeable resistance within the guardians, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
+"You are terribly mistaken, Kipnu. You would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would parade his trophy around, inadvertently bringing more attention to hae. And thi was right. He came to the dome bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more steps to force a bloodless surrender: a small but knowledgeable resistance within the guardians, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
 
 He stood up and faced the wall adjacent to the ladder.
 

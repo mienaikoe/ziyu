@@ -77,7 +77,7 @@ My face flushed at the memory of my mother. _This is what thi would have done_.
 
 Behind us, Shinna adressed hae crew.
 
-"Smell that?" thi sniffed the air catching particles of smoke from the fire that ravaged the great pavilion. "The feast awaits us!"
+"Smell that?" thi sniffed the air catching particles of smoke from the fire that ravaged the great dome. "The feast awaits us!"
 
 The crew howled their agreement in "Aii"s and "Ouu"s. Even Laen got into it with a long "Woooooo". All of these people deserved what they came for, but I worried about how Setre and the guardians might react to a sudden need to feed twenty sailors from Ramne's old smuggling outfit.
 

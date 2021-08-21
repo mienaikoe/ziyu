@@ -12,7 +12,7 @@ A hand fell upon Kipnu's back and stayed there - intentional, not accidental. He
 
 Thi stood up and looked at the crowd so as not to rouse suspicion.
 
-"Stay low and walk ahead of me," thi said and held hae hand out slightly for him to take it. He had no reason to trust this maman but was desperate for a way out, so he took hae hand and walked slowly and quietly out from the crowd. When they got well enough away, the maman bent down to him and whispered, "Keep running toward Ulu. Stop on the far side of the valley, under the fallen tree. Run!", pushing Kipnu out of the pavilion. He looked back for a second and saw nothing but a closed flap of black cloth. Naked and hungry, he made a break for some fallen tree he had never seen before in the darkest part of the island.
+"Stay low and walk ahead of me," thi said and held hae hand out slightly for him to take it. He had no reason to trust this maman but was desperate for a way out, so he took hae hand and walked slowly and quietly out from the crowd. When they got well enough away, the maman bent down to him and whispered, "Keep running toward Ulu. Stop on the far side of the valley, under the fallen tree. Run!", pushing Kipnu out of the dome. He looked back for a second and saw nothing but a closed flap of black cloth. Naked and hungry, he made a break for some fallen tree he had never seen before in the darkest part of the island.
 
 _I've escaped! But surely they'll be after me soon._
 
@@ -56,7 +56,7 @@ He did as she told and immediately winced at a stinging sensation covering his t
 
 "It's gone. What was it?" he asked.
 
-"Back at the pavilion, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdrawal," Casra responded.
+"Back at the dome, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdrawal," Casra responded.
 
 "I see," he said. The substances were familiar to him but he had never had the experience of taking them.
 
@@ -122,7 +122,7 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 
 "Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but they would try to uplift the addicted. Shinna changed all that, bastardized all of the traditions that kept this place livable for the addicted. Now death and addiction hang in this place."
 
-"I noticed... a class hierarchy back at the pavilion."
+"I noticed... a class hierarchy back at the dome."
 
 "Shinna was a chemist in Shaki who somehow stumbled upon an antidote for Kanosin. Then thi came here with hae stockpile of antikan, and instead of giving it to us, thi used it as leverage to gain power over me. Now the upper class use it to get high at night and by morning they're back to normal."
 
