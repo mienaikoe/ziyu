@@ -55,125 +55,108 @@ The woman led him by the hand under the flaps of the wall into a lustrous new wo
 
 "Stay close," said Setre, or at least that's what he heard as she led him between gaps in the crowd, closer to the center of this grand hall. Upon a fine rug of blue light, a maman no more than Kipnu's age lay reclined in front of a broad post that held the weight of this place. Thi flirted and toyed with the men and women gathered around hae, but stopped as thi spotted Setre with a strange man. Thi looked him up and down and up again with lustful eyes, the only part of hae body that wasn't glowinig blue.
 
-"Setre, you clever fiend," thi said in a salacious tone. "What a man you've brought me today."
+"Setre, you clever fiend," thi said in a salacious tone. "What a prize you've brought me today."
 
 Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove yourself, doctor." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-"Kipnu, welcome to the Great Dome of Ulukoma," thi said. "I am Shinna, and you will come to know me quite well. If you do what is asked of you, your dreams will will be fulfilled," thi said, hae voice trailing off into some other time and place.
+"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the guardians." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of this great yurt are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
 
-"If you choose not to... well you've seen what happens to those who misbehave."
+Kipnu stared at hae with cautious eyes. He thought of the people working the ovens outside, wondered how they had been deemed unworthy.
 
-Kipnu stared at hae with cautious eyes, wanting nothing more than to leave this place.
+"You seem a bit on-edge," said Shinna. "Come. Share the spirit with us." Thi turned toward the table, moving hae hands methodically and turned back with an ornately designed syringe in hae hands, blue through the glass. Thi placed hae fingers into its clever niches and placed hae other hand on his arm, gently at first but he flinched at the touch and started to back away. "Oh you like a chase," thi said. Setre stopped Kipnu in his path and held tightly to his arms while Shinna walked closer. In one fluid motion, thi climbed onto him, locking hae legs around him and pressing hae body against his. "Don't fight," whispered Shinna. "You are one of us now."
 
-Setre chimed in, "We hunt you down and kill you."
+Thi moved the syringe to his neck and punctured an artery, gently pouring its contents into his blood. A blue glow began to radiate out from his neck, down his shoulders and chest, filling them with a numbing cool.
 
-Shinna laughed and continued, "Anyway, just cooperate and we'll all have a great time."
+"What... what is this?" he whispered in a shallow breath.
 
-Thi observed him with a feigned frown.
+"I've given you enough kanosin to cross into the life beyond death," said Shinna as thi gently caressed his body. "We shall see the kind of man you really are on the other side. Until then, just enjoy the ride."
 
-"You seem a bit on-edge. Come. Share the spirit with us."
+His head rushed with countless thoughts and feelings that came and went as if they would slip away if he stopped to hold any of them for more than a moment. Setre laid him down, removed his clothes with ease, and laid her bare skin against his as Shinna took him inside hae warm body. He felt sparks in his muted nerves where their fingertips traveled across his skin, and Shinna's breaths still fluttering across his ear.
 
-Thi held up glowing blue syringe to Kipnu and encouraged him to take it. He took the device, familiar to him in touch but not in sight, and immediately tried to give it back.
+"Never forget..." thi whispered to him. "I own you."
 
-"See this is what I'm talking about," said Shinna, pulling out a dagger. Thi swiftly moved behind him and held it to his neck before he could move to escape. Realizing he wasn't going anywhere, he carefully looked closer at the syringe but an impatient Setre took it from him and held his arm tight enough to break it if he struggled any more.
+He watched his arms as they reached out to caress the blue patterns of Setre's body in a loving embrace. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and he saw a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them in euphoric to the metronomic beat of the drum against the ground.
 
-"Stop struggling!" she commanded, tightening her grip. Shinna was licking the rim of his ear while still holding a dagger to his neck.
+As for him, the kanosin had begun to close in the thoughts that lived inside his mind, cornering them into that place behind the eyes where only perception lives. He expected the bitter taste of shame to pervade him as he watched his body break his oath to Liffa and Melna. But he had no more command upon his mind to have such conviction, just as his muscles no longer had a will to fight and his eyes had no more energy to inform him.
 
-Setre moved the syringe to his abdomen, and punctured an artery, finishing the injection quicker than he realized. A blue glow began to radiate out from where the injection started, and immediately seized his lungs. He tried to cough without moving his neck into the dagger, and Shinna lowered it, saying "There you go, my little Heikoi doctor. You'll start to feel it."
+This is the way that kanosin takes you: first with the limbs and the chest, then with the mind and the eyes.
 
-He continued to cough uncontrollably, struggling to regain control of his breathing. But then he felt his muscles relaxing, almost to the point of being immobile, and his head was rushing with countless thoughts and feelings; if he stopped to consider any of them, they would slip away in the next moment. His breathing became automatic. A passenger in his own body.
+Then your breathing slows to whispers, and your hearts stutter to a stop.
 
-"There you go," Shinna said while thi laid him down on the floor. The soft fabric was warm to the touch. He could feel hae hands traveling across his skin and multiplying to eight, twelve hands. His sense of self began to blur and he wasn't sure where his self ended and Shinna or Setre began. He put his hand around the pendant on his neck.
+---
 
-"I want to leave," he whispered to the air.
+And then you awaken.
 
-"Shh," Shinna said as thi moved his hand away, "We are all children of Ulu."
+The memory Shinna's face was frozen in his mind when he found himself lying on the vinegrass floor where Shinna and Setre had been only a moment ago. A dull headache pounded at the space behind his eyes and he knew from the pain that this wasn't a dream.
 
-The floor became an ocean of silk and he was sinking deeper into it with every movement. _"All of your dreams."_ He reached out to touch the blue patterns in his eyes, his mind struggling to regain control of his newly autonomous body.
+The air had changed from sweet smoke and raucous voices to the distant sounds of treebreeze and people talking. He lifted his head to look around but when he opened his eyes he saw nothing but blue light wherever he looked. _Temporary blindness,_ he told himself. _A symptom of kanosin withdraw._ He tried to remember the last memories that he could but his mind was still foggy, trying to collect the fragments and put them together like a broken bowl. Then he remembered Shinna's hands pinning his legs to the ground and Setre's weight against him and he shuddered with a rush of disgust and shame.
 
-Thi said, "Never forget... I own you."
+"What have I done?" he said out loud as he began to weep and wring his hands in frustration. "What have I done?!"
 
-His memory of reality faded into the night, hidden forever from the mind where the luckiest of regretful memories live.
+A pair of footsteps approached him. "Kipnu! Get up!" A voice called. Setre burst into the room with her spear in hand, and pulled Kipnu up to his feet. The blood suddenly rushed out of his head and he swayed to and fro to gain his balance amidst the piercing pain in his head. His eyes were open yet he still saw nothing but the blank color of blue.
 
-In its place, a series of dreams.
+"It's time to go," she said in a hurried tone, taking his arm in her hand.
 
-_Where am I?_
+He pushed her away with what little strength he had. "How long has it been?"
 
-Kipnu opened his eyes and found himself floating alone on an ocean of thick black fluid. The dark of Ulu lie above him, and a faint halo of light surrounded the horizon. He tried to lift himself up, but the ocean held fast. _Is this the afterlife? Have I died? This feels too real to be a dream._ Slowly, the fluid turned into hundred hands and began to pull him down. He tried fighting against them, but they held on tighter. He held his breath while sinking into the abyss until he couldn't hold it any longer. _Drowning would be ok. Ending would be ok._ His lungs let go, and he let the dark flow in, permeating his blood, until he couldn't feel anything.
+"Two days, now we–" she replied.
 
-He woke up again, but this time he was suspended above Palinan with the full brightness of Ara behind him. Liffa was in a small metal capsule directly in front of him. Thi was screaming trying to tell him something, but he couldn't hear hae.
-
-"Liffa!" he called to hae, but thi couldn't hear him either. He tried to move toward hae, but there was nothing to push against. The heat and light from Ara was suddenly blotted out, and he twisted around to see a giant orb of the black liquid approaching them. It swallowed them both, and Kipnu tried to grab Liffa right as it swallowed him, but thi was lost in the darkness. Kipnu kept swimming through the dark, reaching for the next place Liffa could be, but he was getting nowhere. He lost all feeling before he gave up to the dark again.
-
-He woke up a third time, naked and alone in the luminescent cloth sky he remembered from last night. His clothes were nowhere to be found, and he felt a dull headache behind his right eye. He knew that this wasn't a dream: the pain was too realistic. Glancing downward at his body he saw a single luminescent blue line going down his chest, and knew that the few memories he had were not fantasies. Incessant chills and aches began to seep into his bones, so he dropped his head back down and tried to rest.
-
-"Shit, What did I do?" he said to himself. He was still confused, but he remembered Shinna's hands and an unending feeling of loss. His body lay lifeless as he struggled to muster the mental strength to move any part of it, even his breathing. He felt detached from his senses like he was still floating in a dream, but he couldn't see the dream unfolding. The darkness still held him.
-
-"Kipnu! Get up!" A voice called to him from behind the fabric. It was Setre.
-
-She burst into the room, in full armor and spear, and didn't hesitate to pull Kipnu up to his feet. The blood suddenly rushed out of his head and he swayed to and fro to gain his balance amidst the piercing pain in his head. His eyes were open yet he still saw nothing, not even the blue light from Setre's chest.
-
-"It's time to go," she said in a hurried tone.
-
-He pushed her away with what little strength he had.
-
-"What happened to me?" he shouted at her, holding his head in agony.
+"-Two days?!" he was incredulous, holding his head in agony. "Why? Why did you do this to me?"
 
 "The kanosin will wear off" she said, some trouble in her voice.
 
-"I need more... make it stop."
+"I need... I need more."
 
-"Nevermind that, you have to come out right now."
+"Nevermind that. Come. We don't have time to waste."
 
-"No," he responded harshly.
+"No!" he responded harshly.
 
-She pulled her spear on him, and he swatted it away.
+She held her spear to his chest, and he backed away, feeling the air that it moved. "You would threaten a blind man?" He chastised her with a incredulity. With a flick of the wrist, Setre made a small shallow slice through a fatty part of his hip, and Kipnu doubled over, shouting in pain.
 
-"How do you threaten me at a time like this?" He asked rhetorically.
-
-With a flick of the wrist, she made a shallow slice through a fatty part of his hip, making Kipnu shout in pain.
-
-"With a spear," she said.
-
-She sighed and pulled out a cloth wrapping from her sling bag and threw it at him.
-
-"Bandage yourself up and come back into the Great Dome. Shinna will speak to you."
+"Look at you wallowing in your own misery," she said. "I'd love to spear you clean through so I don't have to listen to you whine. You're lucky that physicians are valuable here otherwise we'd have you working the ovens like the rest of your group." With a pause and a sigh, she pulled out a cloth wrapping from her sling bag and kneeled to bandage up the wound. He flinched as she put her hand on his thigh and began winding the cloth tightly around his leg. "Finish the bandage then come with me. Shinna will speak to you."
 
 "I have nothing to talk about."
 
-"You won't be talking."
+"Good," she said. "You're better off keeping your mouth shut."
 
-She left the room, leaving a still-bleeding Kipnu barely standing. He bandaged the wound the way he had done for many of his patients, but it was markedly more difficult to do it for himself in such a state. Once bandaged, he realized that he was still freezing and without clothing. _This must be some initiation or something. I can't just leave, I have nowhere to go._ He stood himself up and walked to the entryway, reaffirming his own existence before he went into the next room.
+He finished the wrapping around his waist, tucking the excess between two taut overlaps in the fabric, and prepared himself mentally for what was to come. _This must be some initiation or something. I can't just run away, I have nowhere to go._ He stood himself up and listened as Setre walked toward him and took his arm, gentler than she had held it before.
 
-The room had nearly hundreds of people forming two lines that surrounded Shinna and him. They all had the same blue luminescent markings as yesterday but they were silent now, staring at him like he was some prize. _Why is everyone here? What are they looking at me for?_
+"Where are my clothes?" he asked her.
 
-Shinna and hae crew sat where he entered the dome yesterday, the rest forming a two lines, a tunnel of people surrounding him on both sides.
+"In the fire," she said nonchalantly, and she pushed him to start walking.
 
-"Kipnu. Approach," Shinna commanded, hae voice carrying well from across the room. Setre was behind him, ensuring he didn't turn back.
+The noise of activity went silent as the two approached the fire. The warmth was a welcome feeling to Kipnu who had been shivering since he left the shelter of the yurt, but he could tell there was something or someone in the center blocking the warmth directly in front of him.
 
-He turned his head, but kept walking, "Setre, why all this ceremony for me?"
+"Kipnu! You've made it to the other side," Shinna said, hae charismatic voice carrying well through the air. The crowd made itself known to him through their murmurs and whispers, a few hundred by what his ears could estimate. He'd never felt so vulnerable as he walked past them blind unclothed. Setre let go of his arm but stood behind him, ensuring he didn't turn back.
 
-"You are healthy, strong, and you are a doctor from Heiko. People like you don't come here often."
+"Are all of these people here for me?" he asked her over his shoulder.
 
-"What makes a doctor so valuable?"
+"Yes," she replied quietly. "You are healthy and strong. But most importantly, you are a physician."
 
-"There are things we don't yet understand about this place. How it... affects us."
+"Why does that matter?"
 
-As he approached, the people followed behind him to form an oval. Once he had gotten close enough Setre instructed him to kneel, which he did slowly.
+"You will soon know. If you are worthy of knowing."
 
-Shinna began the ceremony, "Tribes of Ulu. Yesterday, my ever-faithful hunter, Setre, found and claimed the man you see before you."
+Shinna began the ceremony, "Tribes of Ulu. Two days ago, my ever-faithful hunter, Setre, found and claimed the man you see before you." Kipnu stood shivering and just wanting to get the ceremony overwith. "Setre, please tell us what makes your find so special."
 
-Kipnu stood shivering and just wanting to get the ceremony overwith.
+Setre paused, then adddressed them. "Kipnu is a physician from Heiko." The crowd filled with whisperings and murmurs before she was done talking but with a single gesture, Shinna silenced them all.
 
-"Setre, please tell us what makes your find so special."
+"But of course, we cannot merely trust your word," thi said, and paused to take Kipnu's hand. "You must prove to us that you are who you say that you are." With a strong pull, thi led him toward the other side of a flattened tree stump and placed his hands on an array of glass cylinders, all of them identical in shape and texture. "Before you are five glass vials. You must choose one to ingest. Choose wisely and you will enjoy the rest of your days as a guardian of Ulu." Thi ran hae fingers across his skin and placed them tightly around his neck. "Choose poorly...and you never get the chance to lie to me again." Thi released him and stepped away, leaving him alone at the table. "Begin!" thi shouted.
 
-"This is Kipnu um Heiko. You can see his strength, but his real value lies in his class. He is a doctor."
+The pain in Kipnu's head began to throb and accelerate with his heartbeat, beating like the drum that rumbled the ground in the night. A test of his knowledge was the last thing he wanted to do in such a state, but he hoped that this would be the last of Shinna's games. He took a few deep breaths to calm his mind and thought of a methodical approach.
 
-The crowd filled with murmurs before he was done talking.
+<!--
+tries each vial individually by smelling first, ruling out two.
+then tries skin test, rules out one.
+At the last two, he guesses, chooses kanosin. Was a trick test (all of the vials were poison except the one that is kanosin)
 
-"I am bound to Liffa and Melna," he tried to shout over the crowd, but no one heard him.
+Ginnu gives him antikan and sends him off to Casra.
 
-Shinna gestured to them to quiet down and addressed Kipnu directly, "Yesterday, you were a slave to the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kipnu as their guardian must trade something of their own."
+ -->
+
+<!-- left off -->
+
+"Yesterday, you were enslaved by the light. Today, you become a guardian of the dark. Somewhere in this room, your new tribe stands waiting to welcome you into their embrace. But we all must make sacrifices for the things we desire. Those who want Kipnu as their guardian must trade something of their own."
 
 Thi paused and looked out at the crowd in anticipation. _Is this an auction?_
 
