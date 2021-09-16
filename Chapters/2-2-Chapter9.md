@@ -165,20 +165,18 @@ He thought about hae words, _eternal happiness under Ulu_. What did thi mean? He
 
 "There is no cure for life," said Shinna as thi slipped the needle into his chest at a shallow angle. He felt a cold rush spreading and saw a blue light begin to draw the ornate pattern of a flow tattoo. "But the blue does come close." As thi removed the syringe, a drop of kanosin wept from the place where the syringe had entered him. Without hesitation, thi licked it off his skin and stared into his eyes with a smirk. "Never forget," thi whispered, then returned to hae place in front of the fire.
 
-"Kipnu," thi said his name with a projecting voice, and the crowd stepped in closer. He counted nearly a thousand people, all clothed in black kelp with blue markings on their skin. "You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you are a guardian of the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black coat. She spun him around to face the crowd after he'd settled the coat on his shoulders while Shinna stepped beside him. "Welcome to Ulukoma," thi said, and the crowd cheered for him. But there was no celebration in his heart.
+"Kipnu," thi said his name with a projecting voice, and the crowd stepped in closer. He counted nearly a thousand people, all clothed in black kelp with blue markings on their skin. "You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you are a guardian of the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black coat. She turned him around the crowd whooped and hollered for Kipnu. But he felt no warmth by their voices; he felt shackled to this place, to the people that too were shackled.
 
-<!-- left off -->
+The two of them walked into the crowd, and he watched as they turned from polishing their spears or eating their bread, their cold eyes throwing a rehearsed greeting. Suddenly, a hand placed itself in his and left behind a slip of paper. He turned around to find who it was, his eyes scanning over the crowd, but he couldn't be sure of who it could have been.
 
-<!--
-- No bidding. Shinna has ownership over him. but there needs to be a commotion.
-  - The explosion! Ginnu took the nitroglycerin and made smoke so thi coul get him out safely? Thi knows what's up.
-- Ginnu gives him antikan and sends him off to Casra.
--->
+"What's gotten into you?" asked Setre.
 
-"400 kano!"
+"I'm still a bit woozy from the kanosin," he said.
 
-"3 servants!"
+"Must not have been enough antikan. You'll be fine by day's end."
 
-The crowd bunched in and crowded Shinna and hae scribe who was taking the bids faster than he could write them. Setre had moved away from Kipnu and was now clearing some space in the crowd for Shinna. The noise was aggravating Kipnu's headache, so he crouched down and covered his ears to wait it out. He had never felt this humiliated or powerless before. There was nowhere to run, though he wanted to, no place to be alone, no friend he could turn to. He was a criminal, and this was his prison. So like a switch, his grasp of reason shut down, all his senses numbed, his fortress of good will abandoned.
+A maman's voice chimed out from behind him, "Congratulations Kipnu." The tone seemed oddly familiar, but he couldn't place who it was. He turned around but before he could see who it was, an explosion filled the area with smoke and dust. Setre pulled him behind herself as the crowd scattered.
 
-"Two days," he said. He thought of how scarce time was, cursed his past self for landing him in such a place.
+"Stay here," said Setre, and she bolted into the smoke to investigate.
+
+_a distraction_, he surmised. He read the paper that had been given to him: _2000 paces east - fallen tree_ is all it read, but it was hope enough for him not to give it a second thought. He oriented himself eastward, with Ara against his right cheek, and through the flurry of people he fled toward the treeline, never stopping to look back.

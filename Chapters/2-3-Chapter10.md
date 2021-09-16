@@ -4,18 +4,6 @@ Write Setre has caring about Linyu's life and future.
 
 ## Chapter 10
 
-A hand fell upon Kipnu's back and stayed there - intentional, not accidental. He removed his hands from his ears and listened to the chaos around him. He turned toward the hand.
-
-"Hold still," a voice called from behind the hand. He could almost place the maman it came from. Thi grasped his arm firmly and pricked him with a needle. It jerked away as a reflex, and the maman let it go.
-
-"Trust me," thi said, and he steadied his hand for hae. Thi had the hand of a doctor, adept and confident, and the injection flowed smoothly into his veins. With each wash of his blood through his body, the headache subsided and his eyesight returned, and he saw the maman clearly. Thi had the same kelp clothing as the others and a mask around hae mouth made of thin woven vines.
-
-Thi stood up and looked at the crowd so as not to rouse suspicion.
-
-"Stay low and walk ahead of me," thi said and held hae hand out slightly for him to take it. He had no reason to trust this maman but was desperate for a way out, so he took hae hand and walked slowly and quietly out from the crowd. When they got well enough away, the maman bent down to him and whispered, "Keep running toward Ulu. Stop on the far side of the valley, under the fallen tree. Run!", pushing Kipnu out of the dome. He looked back for a second and saw nothing but a closed flap of black cloth. Naked and hungry, he made a break for some fallen tree he had never seen before in the darkest part of the island.
-
-_I've escaped! But surely they'll be after me soon._
-
 He found that his eyes had adjusted to the darkness, but it was still quite difficult to look for fallen trees in such a dense forest. He made a point to use his ears, to listen for a breeze flowing freely at the top of a hill or whistling across the decaying bark of a fallen tree. Maybe that's how Setre found him, he thought.
 
 He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
