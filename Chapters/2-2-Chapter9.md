@@ -49,7 +49,7 @@ From a giant clearing of trees stood the outline of a giant yurt. The light of A
 
 "I'm a physician if that's your meaning," he said. "What is it to you?"
 
-She looked him up and down with a curious gaze as if her eyes had seen him for the first time. An acute feeling of discomfort grew within him as her eyes made their way back up to his. "Mark your words carefully, Kipnu. You have value, that much is certain. But what you do with your value is up to you."
+She looked him up and down with a curious gaze as if her eyes had seen him for the first time. An acute feeling of discomfort grew within him as her eyes made their way back up to his. "Mark your words carefully, Kipnu. You have value, that much is certain. But do you know what to do about it?"
 
 The woman led him by the hand under the flaps of the wall into a lustrous new world of blue. The room was a sea of skin and light, each woman, maman, and man baring the unique luminescent markings that meandered across their skin. He felt naked in his clothes and wholly opaque, but Setre pulled him ever deeper into the crowd, ever more lost in the blur. The deep drum grew louder as he grew nearer, rattling the ground with its droning meditation while dancers blurred into the sweet smoke of anomin. The rest were fully immersed in each other, drenched in the throws of erotic ecstasy. He looked at their eyes colored brightly with the light of kanosin, and for a moment, felt an inexplicable pang of envy.
 
@@ -109,11 +109,11 @@ He pushed her away with what little strength he had. "How long has it been?"
 
 "Nevermind that. Come. We don't have time to waste."
 
-"No!" he responded harshly.
+"No!" he shouted at her and moved to tackle her. She pushed him back and swung her spear to his chest and he could feel the air that it moved.
 
-She held her spear to his chest, and he backed away, feeling the air that it moved. "You would threaten a blind man?" He chastised her with a incredulity. With a flick of the wrist, Setre made a small shallow slice through a fatty part of his hip, and Kipnu doubled over, shouting in pain.
+"Why are you doing this to me?!" He chastised her as his body shook and groveled at her feet. "I need more! Get me more!"
 
-"Look at you wallowing in your own misery," she said. "I'd love to spear you clean through so I don't have to listen to you whine. You're lucky that physicians are valuable here otherwise we'd have you working the ovens like the rest of your group." With a pause and a sigh, she pulled out a cloth wrapping from her sling bag and kneeled to bandage up the wound. He flinched as she put her hand on his thigh and began winding the cloth tightly around his leg. "Finish the bandage then come with me. Shinna will speak to you."
+"Shut. Up!" she yelled, and with a flick of the wrist, Setre made a small shallow slice through a fatty part of his hip, and Kipnu doubled over, shouting in pain. "Look at you wallowing in your own misery," she said. "I'd love to spear you clean through so I don't have to listen to it. You're lucky your class makes you valuable here otherwise we'd have you working the ovens like the rest of your group." With a pause and a sigh, she pulled out a cloth wrapping from her sling bag and kneeled to bandage up the wound. He flinched as she put her hand on his thigh and began winding the cloth tightly around his leg. "Finish the bandage then come with me. Shinna will speak to you."
 
 "I have nothing to talk about."
 
@@ -159,15 +159,17 @@ Setre hesitated before giving him the next one. "Clear," she said as she gently 
 
 He thought about hae words, _eternal happiness under Ulu_. What did thi mean? He took a deep breath of the air above the black liquid to see if his vision came back again. A blob of orange emerged from the darkness, and a strange twinkle of blue near Shinna's waist. _What is that?_
 
-"What will it be?" thi asked. Kipnu walked toward hae slowly with the vial of black liquid in his hands and poured a drop out in front of hae. The crowd erupted into a frenzy of shouting and commotion as Setre pushed them away. He capped the vial of neutralizer and then took one more step toward her, taking hae hand and the vial of kanosin that lie within it. Shinna leaned into him and laughed gently. "You are the real deal, Kipnu um Heiko. You've earned that." Thi took both vials from his hand and placed one of them in a syringe. Thi placed the needle on his arm and a warm liquid filled his blood. It carried with it a tingling sensation that washed over him as the pain in his head subsided and his vision began to return. Thi removed the needle, and swapped out the empty vial for the vial of kanosin. Kipnu backed away, not wanting to endure the grip of the blue again but Setre stopped him abruptly.
+"What will it be?" thi asked. Kipnu walked toward hae slowly with the vial of black liquid in his hands and poured a drop out in front of hae. The crowd erupted into a frenzy of shouting and commotion as Setre pushed them away. He capped the vial of neutralizer and then took one more step toward her, taking hae hand and the vial of kanosin that lie within it. Shinna leaned into him and laughed gently. "You are the real deal, Kipnu um Heiko. You've earned that." Thi took both vials from his hand and placed one of them in a syringe. Thi placed the needle on his arm and a warm liquid filled his blood. It carried with it a tingling sensation that washed over him as the pain in his head subsided and his vision began to return. Thi removed the needle, and swapped out the empty vial for the vial of kanosin. Kipnu backed away, not wanting to endure the grip of the blue again but Setre stopped him abruptly and held his body stationary.
 
 "It's not what you think," she said. He looked at the sincerity in her expression and realized how different she looked now, how gentle her features when touched by the light of the fire. "You done staring?" she said. He caught himself and moved back toward Shinna to accept whatever it was they had planned.
 
 "There is no cure for life," said Shinna as thi slipped the needle into his chest at a shallow angle. He felt a cold rush spreading and saw a blue light begin to draw the ornate pattern of a flow tattoo. "But the blue does come close." As thi removed the syringe, a drop of kanosin wept from the place where the syringe had entered him. Without hesitation, thi licked it off his skin and stared into his eyes with a smirk. "Never forget," thi whispered, then returned to hae place in front of the fire.
 
-"Kipnu," thi said his name with a projecting voice, and the crowd stepped in closer. He counted nearly a thousand people, all clothed in black kelp with blue markings on their skin. "You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you are a guardian of the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black coat. She turned him around the crowd whooped and hollered for Kipnu. But he felt no warmth by their voices; he felt shackled to this place, to the people that too were shackled.
+"Kipnu," thi said his name with a projecting voice, and the crowd stepped in closer. They all were clothed in black kelp with blue markings on their skin. _Are these the same people from the yurt? None of them are suffering from withdrawal._
 
-The two of them walked into the crowd, and he watched as they turned from polishing their spears or eating their bread, their cold eyes throwing a rehearsed greeting. Suddenly, a hand placed itself in his and left behind a slip of paper. He turned around to find who it was, his eyes scanning over the crowd, but he couldn't be sure of who it could have been.
+"You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you serve the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black coat. She turned him around the crowd whooped and hollered for Kipnu. But he felt no warmth by their voices; he felt shackled to this place, to these people that too could never leave.
+
+Setre walked him into the crowd, and he watched as they turned from polishing their spears or eating their bread, their cold eyes throwing a rehearsed greeting. Suddenly, a hand placed itself in his and left behind a slip of paper. He turned around to find who it was, his eyes scanning over the crowd, but he couldn't be sure of who it could have been.
 
 "What's gotten into you?" asked Setre.
 

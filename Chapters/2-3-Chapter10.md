@@ -1,10 +1,12 @@
 <!--
 Write Setre has caring about Linyu's life and future.
+
+
  -->
 
 ## Chapter 10
 
-He found that his eyes had adjusted to the darkness, but it was still quite difficult to look for fallen trees in such a dense forest. He made a point to use his ears, to listen for a breeze flowing freely at the top of a hill or whistling across the decaying bark of a fallen tree. Maybe that's how Setre found him, he thought.
+His eyes had been relieved of kanosin, but the darkness still made his search for fallen trees quite difficult in such a dense forest. The blue line at his chest and the glimmer of Ara-light through the leaves were the only things keeping him from running into a rogue branch or a raised root.At a break in the trees he listened to the breeze whistling across the ancient bark, hoping to hear some hint of a fallen tree or the soft footsteps of his mysterious benefactor.
 
 He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
 
@@ -130,7 +132,7 @@ Thi laughed, and paused to prepare haeself.
 
 "On my first evening at Ulukoma, I had just met Setre, and she introduced me to the group, told them only the good things that I had told her about myself, and it was then that I knew: Ulukoma was not the lawless prison they said it was. About a ma'to after I arrived, Setre was pregnant and was convinced that I was the mother. At first I couldn't believe what she said, because I thought that kanosin led to impotence. But when I saw Linyu, saw hae eyes peer into mine, I felt... it. I felt motherhood. There it was right in front of me. And an immense feeling of shame washed over me. For who I had become, for how far I had fallen, for how my kaln might see me when thi grows up. There was only one option to me: I had to be the mother thi needed. So I begged Setre to let me raise hae, and we came to an agreement. There were many days when I felt the feverish hand of death upon me while I was in withdrawal, but she watched over me, kept me hydrated, kept me sober. Until one day she stopped coming around, and I realized that I had already become that mother I was longing to be."
 
-"Setre..." Kipnu said hesitantly, "She's a guardian now, right?"
+"Setre..." Kipnu said hesitantly, "She's a hunter now, right?"
 
 "Yes... Linyu told me about what happened to you. She does what she must to maintain power among the guardians. Shinna pits them against each other for who can bring in more people."
 
@@ -246,7 +248,7 @@ He sat awkwardly, replaying the events of the previous night, repeating what Cas
 
 "I can't think with you staring at me," he said.
 
-"Sorry," Casra explained, "I didn't want a guardian to come whisk you away when I wasn't looking."
+"Sorry," Casra explained, "I didn't want a hunter to come whisk you away when I wasn't looking."
 
 "Very funny."
 

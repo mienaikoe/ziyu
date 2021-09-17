@@ -20,7 +20,7 @@ The figure in the dark had an unmistakable spear - Setre was here.
 
 "People cannot be owned, Setre. I thought you were better than this."
 
-"I'm not your guardian anymore. You have no idea what happened in the all the time you were gone. Things have changed now."
+"I'm not your hunter anymore. You have no idea what happened in the all the time you were gone. Things have changed now."
 
 "When I left, you had such conviction and even more strength than I had. I taught you everything I knew. Why didn't you bring Shinna to justice?"
 

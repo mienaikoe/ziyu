@@ -272,7 +272,7 @@ He sighed and stood up, frustrated. "Look, we'll just leave hae here and come ba
 
 "And then what? Thi lives the rest of hae life as a prisoner? As long as Kanosin exists in this world, theives like hae will do whatever it takes to keep it alive."
 
-Ginnu finally spoke up, "I'm trying to escape this madness. Unlike you, Guardian Setre."
+Ginnu finally spoke up, "I'm trying to escape this madness. Unlike you, Hunter Setre."
 
 Setre bolted across the room and in one fluid motion, she lifted Ginnu by the shirt. Ginnu didn't flinch or fight back. Thi was like a ragdoll against the wall.
 
