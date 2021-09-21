@@ -6,9 +6,17 @@ Write Setre has caring about Linyu's life and future.
 
 ## Chapter 10
 
-His eyes had been relieved of kanosin, but the darkness still made his search for fallen trees quite difficult in such a dense forest. The blue line at his chest and the glimmer of Ara-light through the leaves were the only things keeping him from running into a rogue branch or a raised root.At a break in the trees he listened to the breeze whistling across the ancient bark, hoping to hear some hint of a fallen tree or the soft footsteps of his mysterious benefactor.
+Kipnu's feet ambled through the forest at a near jogging pace, following the path that his eyes tried to trace through the overwhelming darkness of the dense forest. The kanosin had no trace left in his eyes, but the blue line at his chest was the only things keeping him from running into a rogue branch or a raised root.
 
-He came across another tree with a coil set into its trunk. This time, the coil was polished and covered in sap, presumably from the tree it was attached do. _That veiled maman must have put these around. Who is thi?_ He wanted to stop to observe, but he forced himself to continue onward. Only a few steps, and he quickly found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
+"Two thousand paces," he repeated out loud. "Can't be much father."
+
+He looked up at the leaves and branches dancing along the dark purple sky above him as he listened to the breeze, hoping to hear some hint of a fallen tree or the soft footsteps of his mysterious savior. But only the cold of the wind spoke to him, and it was speaking well. He held tighter to the black coat that Setre had given him and wondered at her motives. Maybe she really was a trying to help him survive.
+
+<!-- left off -->
+
+He came across a tree with a copper coil set into its trunk, just like the ones he'd seen with Setre. _I must be near. What are they for?_ He wanted to take a closer look, but he worried that Setre might be right behind him, so he continued further.
+
+He took only a few steps before he found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
 
 "Damn this cold," He whispered to himself. He curled up into himself, his body shivering from exposure, but it was only temporary relief. He tried retracing the events of last night in his head. He remembered Setre injecting something into him, and a feeling of panicked euphoria. A knot grew in his stomach. _All my dreams... Did I want it? No, what am I saying..._
 
