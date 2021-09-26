@@ -1,6 +1,17 @@
 <!--
 Write Setre has caring about Linyu's life and future.
 
+- Ginnu shows up??
+  - Ginnu would have to get out of dodge if someone recognized hae
+  - Did anyone recognize hae? Probably not.
+
+- Or just Casra??
+  - Ginnu might not want to go. Maybe thi comes in later? Maybe thi was caught by Setre and handed to Ramne.
+  - Simplification
+    - Casra doesn't die. Casra is Ginnu.
+    - Need to change Ginnu to be Linyu's mother.
+    - NO!! F this. They are distinct characters.
+  - More characters...
 
  -->
 
@@ -10,33 +21,27 @@ Kipnu's feet ambled through the forest at a near jogging pace, following the pat
 
 "Two thousand paces," he repeated out loud. "Can't be much father."
 
-He looked up at the leaves and branches dancing along the dark purple sky above him as he listened to the breeze, hoping to hear some hint of a fallen tree or the soft footsteps of his mysterious savior. But only the cold of the wind spoke to him, and it was speaking well. He held tighter to the black coat that Setre had given him and wondered at her motives. Maybe she really was a trying to help him survive.
+He looked upward at the leaves and branches dancing along the deep purple sky above him as he listened to the breeze, hoping to hear some hint of a fallen tree or the soft footsteps of his mysterious savior. But only the cold wind spoke to him. He held tighter to the black coat that Setre had put on his body, shuddered at the memory of her body against his. Though he knew what had happened to him was real, it felt like a dream, as if his mind had distanced itself from reality to keep moving on with life.
+
+He came across a tree with a coil set into its trunk, just like the ones he'd seen when Setre was taking him in. _I must be near wherever I'm supposed to go. What are these coils for?_ He took a closer look at the sap-covered copper spiral, imagined the years of experience it must have taken to make something metallic look so perfectly organized. _Probably some old maman and hae trinkets_, he thought to himself.
+
+Amidst the quiet observation he sighed and felt the exhaustion he'd gathered that morning catching up to him. So he rested himself below the coil and gazed into the darkness from where he had fled.
+
+"Damn this cold," he whispered to himself. He curled up into himself, his body shivering from exposure, but it was only a temporary relief. _I wonder if Setre is searching for me_. His thoughts meandered to the memories of her face, closed and sinking into his shoulder. The feeling of panic and confusion and euphoria. _Did I want it to happen?_ he asked. _Did I enjoy it?_ A knot grew in his stomach.
+
+"Liffa, Melna," he spoke to the wind as if they were listening. "I've broken our oath." A tear began to fall down his cheek. The first he'd had time to shed. "Melna, you must understand I..." he gasped for an explanation but he knew he had none. Who would believe him? Who could possibly understand what's happened here? He thought of Liffa, wondered if thi was being treated well or if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained composed while the rest of the world was teetering at the edge of madness.
+
+Kipnu heard quick footsteps approaching behind him, and he quickly stood up and covered his brightly-lit body.
+
+"Kipnu?" a maman called his name. He'd half-expected Setre, or the faceless maman who congratulated him, but he could immediately tell this person was a stranger. There was a distinct tone to hae voice: warm and earnest and full, and not so saccharine as many were. Thi passed by him, looking around, but didn't notice him standing a few paces away. He watched as thi circled around the area and placed hae hands on a tree that grew diagonally from the ground. Hae hands came to hae chest and clutched to hae robe, and as thi opened the laps a blue light appeared against the tree. He could see that the trunk was fractured and the branches were holding on above them.
+
+He hesitated, but he knew he should say something. "I'm not here for trouble," he said, walking slowly from the tree. He maintained the distance between them.
+
+"Kipnu, you've made it!" thi said. "Come in, come in. We have much to–"
+
+"No," he stopped hae. "I'm not going anywhere until I know what's going on here. Who are you? How do you know that maman that sent me here?"
 
 <!-- left off -->
-
-He came across a tree with a copper coil set into its trunk, just like the ones he'd seen with Setre. _I must be near. What are they for?_ He wanted to take a closer look, but he worried that Setre might be right behind him, so he continued further.
-
-He took only a few steps before he found himself facing a giant obstacle. He followed it left and right, and made out the shape of a giant fallen tree thrusting its behemoth roots toward the sky, and he knew he'd come to his destination. Against the roots, he rested himself and gazed into the darkness from where he had fled.
-
-"Damn this cold," He whispered to himself. He curled up into himself, his body shivering from exposure, but it was only temporary relief. He tried retracing the events of last night in his head. He remembered Setre injecting something into him, and a feeling of panicked euphoria. A knot grew in his stomach. _All my dreams... Did I want it? No, what am I saying..._
-
-A different kind of headache had set in, and he pushed on his eyes to ease the pain. Liffa came into his imagination - strapped into a train without rails, flying beyond the edge of the sky. He wondered if thi was being treated well, if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained cool and composed when the rest of the world teetered above a cliff of mindless panic. He loved that about her.
-
-_Would they understand? Would they accept what I've done?_
-
-_Maybe I do belong here..._
-
-Behind him, Kipnu heard quiet and quick footsteps approaching. He quickly got up to his feet and ducked behind a tree, waiting for the footsteps to approach before he decided his next move.
-
-"Kipnu," the maman quietly called him.
-
-He could faintly see the silhouette of the one who had helped him. It was that same familiar voice of the veiled figure, but the veil had been removed and he recognized who it was.
-
-"Casra?" He whispered to hae.
-
-Kipnu was immeasurably relieved to see a familiar face, even if only an acquaintance.
-
-"Kipnu, you've made it!" thi said. "Come now, under the fallen tree."
 
 They walked no more than fifty paces before coming to the base of a massive tree with another copper coil on it. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time, beckoning for Kipnu to follow hae down into the warmly-lit space below. He looked around and saw a home. A sort of cooking area to the left, a large bed at the far end, and a hand-made table in the center where Linyu was lighting a third lantern. He squatted down in reflex to cover himself, but Casra had already prepared him a set of kelp cloths and stood at the entrance helping him get into them. He found them quite warm – warmer than he suspected.
 
@@ -50,7 +55,7 @@ A wave of pain began to swell up again and he clutched his forehead and closed h
 
 He did as she told and immediately winced at a stinging sensation covering his tongue.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Lin eying the shiny pendant around his neck. The stinging went away after a minute, along with the sharp pain in his head.
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Linyu eying the shiny pendant around his neck. The stinging went away after a minute, along with the sharp pain in his head.
 
 "It's gone. What was it?" he asked.
 
@@ -135,6 +140,8 @@ In between spoonfuls, he asked, "Why have you come back to a place like this?"
 "I like long stories," he said. "They get me invested."
 
 Thi laughed, and paused to prepare haeself.
+
+<!-- This paragraph feels like a mouth full and felt me confused as to what happened after it. -->
 
 "I guess I'll start where I left off. You remember I mentioned traditions. One of the traditions we used to have was the evening. It used to be a time of storytelling, singing, confessing of love, public mediation. Anyone could stand up and say or do anything they wanted. Then some would group up and explore their sexualities together before sleep, and others would just sleep if they weren't ready. The evening was a place and time where people weaved their lives together and apart and together again, and everyone grew closer to each other because of it. I had been under the addiction, but I had the faculty to understand their words and feel the love of a tribe more deeply than I knew of my junds."
 
@@ -238,6 +245,10 @@ He walked to the entryway ladder and contemplated leaving. Casra didn't follow h
 
 "Kipnu," she said his name to stop him. "You're a good man. I know you don't really belong in Ulukoma. But right now, leaving isn't possible. Everyone on this island is looking for you. You could steal a boat, but the waters between here and the mainland are patrolled by bounty hunters just looking for reason to kill. We need to make the most of where we are."
 
+<!--
+maybe you could write it in a way where it's clear how disordered his thinking is becoming and how his perception of memory is starting to cloud over with denial
+-->
+
 "And what, hide here forever? No. I have to leave now," he placed a foot on the ladder and continued his momentum upward. Thi sighed and got up to follow him outside with Linyu close behind.
 
 Kipnu kept shaking his head, unwilling to accept what had happened. This was all just some minor excursion. Shinna and Setre were just dreams. From the Kanosin. He wasn't really a fugitive. Right?
@@ -248,7 +259,7 @@ Kipnu kept shaking his head, unwilling to accept what had happened. This was all
 
 "I've done enough talking, I suppose it's natural to want to digest it all."
 
-Thi turned to go back inside, but he interjected, "Wait...can you stay...in case some guardians or whatever show up?"
+Thi turned to go back inside, but he interjected, "Wait...can you stay...in case someone shows up?"
 
 Thi looked amused, but humored him. "Okay then. I'll wait with you."
 
@@ -278,7 +289,7 @@ Thi ignored his question and continued.
 
 "A message? Come on, it's a tree."
 
-"This tree is a sort of... conduit. It sends and receives messages encoded in the air. Who sends them? I don't know. But my guess is on the Holragi."
+"This tree is a sort of... conduit. It sends and receives messages encoded in the air. Who sends them? I don't know. But my guess is the Holragi."
 
 "So the Holragi can talk to each other through trees? You realize how ridiculous that sounds?"
 
@@ -314,11 +325,15 @@ Thi took his hand and spoke to him earnestly.
 
 "There are many dangers in this place, Kipnu. And we may get separated at some point. Linyu and I made a home from this hole in the ground long ago, and this listener is how we kept track of each other and warned each other of danger. It was our lifeline to each other, and now we are inviting you to join us."
 
+<!-- as a reader I'd love to understand more of why Casra is offering this... -->
+
 Kipnu was feeling tense at her words. He looked at Linyu for some sign that things were not as dangerous as hae mother was saying, but thi also had a serious look.
 
 "Look, I know to stay away from guardians. I can handle myself in a fight. I don't mean to disappoint you but I'm planning to leave as soon as I can."
 
 "Linyu told me about what happened in the forest. Setre captured you only paces away from the treeline?"
+
+<!--  I feel like he'd say something more like "This time I know what/who to look out for." -->
 
 He flushed with frustration, "I was thoroughly into those woods."
 

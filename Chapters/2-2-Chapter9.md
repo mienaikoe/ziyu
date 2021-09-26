@@ -75,7 +75,7 @@ His head rushed with countless thoughts and feelings that came and went as if th
 
 "Never forget..." thi whispered to him. "I own you."
 
-He watched his arms as they reached out to caress the blue patterns of Setre's body in a loving embrace. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and he saw a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them in euphoric to the metronomic beat of the drum against the ground.
+He watched his arms as they reached out to caress the blue patterns of Setre's body in a tender embrace. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them to the metronomic beat of the drum, lost in some euphoric world of hae own.
 
 As for him, the kanosin had begun to close in the thoughts that lived inside his mind, cornering them into that place behind the eyes where only perception lives. He expected the bitter taste of shame to pervade him as he watched his body break his oath to Liffa and Melna. But he had no more command upon his mind to have such conviction, just as his muscles no longer had a will to fight and his eyes had no more energy to inform him.
 
@@ -181,4 +181,8 @@ A maman's voice chimed out from behind him, "Congratulations Kipnu." The tone se
 
 "Stay here," said Setre, and she bolted into the smoke to investigate.
 
-_a distraction_, he surmised. He read the paper that had been given to him: _2000 paces east - fallen tree_ is all it read, but it was hope enough for him not to give it a second thought. He oriented himself eastward, with Ara against his right cheek, and through the flurry of people he fled toward the treeline, never stopping to look back.
+He took the time to read the paper that had been given to him: _2000 paces east. Fallen tree_ is all it read.
+
+_The smoke is a distraction_, he thought. _A chance for me to get away_.
+
+He knew that it was a stretch, but a shred of hope was all he needed in that moment. Without a second thought he oriented himself eastward with Ara against his right cheek and through the flurry of people running to and fro, he ran back into that dark forest, not stopping to look back.

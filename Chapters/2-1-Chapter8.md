@@ -76,19 +76,15 @@ He turned around to find the mysterious kaln behind him.
 
 "Who?"
 
-"The ones who live here. They know the schedule. They wait for you to starve and then come to collect you when you're weak."
+"The ones who live here," thi replied. "They know the schedule. They wait for you to starve and then come to collect you when you're weak."
 
-"How do you know all this?"
+Kipnu was surprised. "How do you know all this?" he asked.
 
-"This is my home."
+"This is my home," said the kaln.
 
-Kipnu was aghast imagining what this child's life might be like.
+Kipnu was aghast. _A kaln living in Ulukoma?_
 
-"Where are your parents?" he asked.
-
-But the kaln hesitated to answer.
-
-"Please," he pleaded. "I have no reason to–"
+"Where are your parents?" he asked, but the kaln hesitated to answer. "Please," he pleaded. "I have no reason to–"
 
 Kipnu saw the kaln shift hae gaze and widen hae eyes at something behind him. He flung himself around with his torch held high and nearly hit the nose of a woman. She was dressed in a thick coat of black kelp, her skin covered with luminescent blue markings. She grunted at the torch and with a flicking motion, she knocked it from his Kipnu's hand with the butt of a wooden spear.
 
