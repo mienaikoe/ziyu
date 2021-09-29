@@ -33,29 +33,41 @@ Amidst the quiet observation he sighed and felt the exhaustion he'd gathered tha
 
 Kipnu heard quick footsteps approaching behind him, and he quickly stood up and covered his brightly-lit body.
 
-"Kipnu?" a maman called his name. He'd half-expected Setre, or the faceless maman who congratulated him, but he could immediately tell this person was a stranger. There was a distinct tone to hae voice: warm and earnest and full, and not so saccharine as many were. Thi passed by him, looking around, but didn't notice him standing a few paces away. He watched as thi circled around the area and placed hae hands on a tree that grew diagonally from the ground. Hae hands came to hae chest and clutched to hae robe, and as thi opened the laps a blue light appeared against the tree. He could see that the trunk was fractured and the branches were holding on above them.
+"Kipnu?" a maman called his name. He'd half-expected Setre, or the faceless maman who congratulated him, but he could immediately tell this person was a stranger. There was a distinct tone to hae voice: warm and earnest and full, and not so saccharine as many were. Thi passed by him, looking around, but didn't notice him standing a few paces away, watching as thi circled around the area and placed hae hands on a tree that grew diagonally from the ground. Hae hands came to hae chest and clutched an object in hae coat. Thi fiddled with it and gradually a small bright flame grew from a glass enclosure: a lantern of sorts. In the warm light he could see a fractured trunk and the many branches that suspended it above the ground.
 
 He hesitated, but he knew he should say something. "I'm not here for trouble," he said, walking slowly from the tree. He maintained the distance between them.
 
 "Kipnu, you've made it!" thi said. "Come in, come in. We have much to–"
 
-"No," he stopped hae. "I'm not going anywhere until I know what's going on here. Who are you? How do you know that maman that sent me here?"
+"No," he stopped hae. "I'm not going anywhere until you tell me what's going on. Who are you? How do you know the maman that sent me here?"
+
+"My name is Casra and I can tell you everything you want to know, but right now we need to get inside. It's not safe out in the open like this."
+
+"Out in the open?" he balked. "The trees are thicker than clay out here."
+
+Casra maintained hae calm but urgent tone. "I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others."
+
+He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd quickly learned to measure everyone on Ulukoma with a sliver of doubt.
+
+"How many are here?" he asked. But before Casra could answer, the ground beneath the fallen tree moved, and a kaln climbed out. Kipnu recognized hae face in the lantern light and immediately grew excited.
+
+"You! You're that kaln from the ship!" he exclaimed. "Linyu, right? I heard Setre say your name."
+
+Linyu smiled at Kipnu as thi walked toward Casra and grasped hae hands. Linyu looked up and down at him and grinned as if to hold in a smile. "You're blue now," thi said. Casra admonished hae, "Linyu!", but Kipnu laughed with hae. His eyes met again with Casra's and a sense of warmth came over him. He was in good company here.
+
+The entrance Linyu had come through was a wooden door with just enough space to fit Kipnu's lumbering body with a strange black long coat draped over his shoulders. As he set foot upon the floor of their home, he looked around and saw the same warmth he heard in Casra's voice: a sort of cooking area to the left, a large bed at the far end, and a hand-made table to the right where Linyu was lighting another lantern. Casra had already prepared him a set of thick kelpen trousers and held them out with a stern posture as if to insist he wear them before stepping any further.
+
+"Lin," thi said. "grab a few paocha leaves from the cupboard."
+
+The kaln rose to fulfill hae mother's request and chimed at Kipnu, "I didn't mean to call you blue. I think blue looks good on you."
+
+Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter at first, but it grows on you."
+
+He did as she told and immediately winced at the tannic flavor covering his tongue.
+
+"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Linyu eying the shiny pendant around his neck. The flavor went away after a minute, and it left behind a pleasantly sweet flavor, and a rush of energy.
 
 <!-- left off -->
-
-They walked no more than fifty paces before coming to the base of a massive tree with another copper coil on it. Casra cleared some leaves from the base and opened a wooden door that had just enough space to fit one person at a time, beckoning for Kipnu to follow hae down into the warmly-lit space below. He looked around and saw a home. A sort of cooking area to the left, a large bed at the far end, and a hand-made table in the center where Linyu was lighting a third lantern. He squatted down in reflex to cover himself, but Casra had already prepared him a set of kelp cloths and stood at the entrance helping him get into them. He found them quite warm – warmer than he suspected.
-
-"Lin, grab some paosin from the cupboard."
-
-The kaln rose to fulfill hae mother's request and chimed, "Hi Kipnu. Thank you for saving me."
-
-"Hey there..." he said as nicely as he could in the circumstances.
-
-A wave of pain began to swell up again and he clutched his forehead and closed his eyes. Casra took a satchel from the kaln and dipped hae finger in it. "Here, rub some of this on your tongue. You'll feel some stinging at first, but it will subside."
-
-He did as she told and immediately winced at a stinging sensation covering his tongue.
-
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Linyu eying the shiny pendant around his neck. The stinging went away after a minute, along with the sharp pain in his head.
 
 "It's gone. What was it?" he asked.
 
