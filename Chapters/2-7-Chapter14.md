@@ -163,7 +163,7 @@ The other three had finished moving crates and the sound of many footsteps fille
 
 "The patient is bleeding everywhere," thi said in a dazed tone, "Needs kan-o..."
 
-"Yes, doctor," he said while he prepared the firestarter again. He could sense that something was amiss. He tapped hae cheeks, but thi didn't wake up. There was little time to save hae.
+"Yes, physician," he said while he prepared the firestarter again. He could sense that something was amiss. He tapped hae cheeks, but thi didn't wake up. There was little time to save hae.
 
 Penyi's voice interrupted him again, "Kipnu, I see a figure entering the armory."
 

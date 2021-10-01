@@ -57,7 +57,7 @@ The woman led him by the hand under the flaps of the wall into a lustrous new wo
 
 "Setre, you clever fiend," thi said in a salacious tone. "What a prize you've brought me today."
 
-Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove yourself, doctor." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
+Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove your loyalty." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
 "Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the guardians." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of this great yurt are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
 
@@ -167,7 +167,7 @@ He thought about hae words, _eternal happiness under Ulu_. What did thi mean? He
 
 "Kipnu," thi said his name with a projecting voice, and the crowd stepped in closer. They all were clothed in black kelp with blue markings on their skin. _Are these the same people from the yurt? None of them are suffering from withdrawal._
 
-"You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you serve the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black coat. She turned him around the crowd whooped and hollered for Kipnu. But he felt no warmth by their voices; he felt shackled to this place, to these people that too could never leave.
+"You have proven your worth and your loyalty to us, to this place. Yesterday, you were enslaved by the light. Today, you serve the dark." Setre came up behind him and lifted his arms one-by-one, clothing him with a well-fitting thick black kelpen poncho that covered his body. She turned him around the crowd whooped and hollered for Kipnu. But he felt no warmth by their voices; he felt shackled to this place, to these people that too could never leave.
 
 Setre walked him into the crowd, and he watched as they turned from polishing their spears or eating their bread, their cold eyes throwing a rehearsed greeting. Suddenly, a hand placed itself in his and left behind a slip of paper. He turned around to find who it was, his eyes scanning over the crowd, but he couldn't be sure of who it could have been.
 

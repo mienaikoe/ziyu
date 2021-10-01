@@ -72,7 +72,7 @@ He held out his hand, pointing toward the road that led to the station square, s
 
 "So let them be reminded of your importance while they do."
 
-"žah-Fajro, you should like to remember that the Heikoi do not measure the value of a life. I am no more important than the farmer selling hae harvest nor the doctor minding his patients."
+"žah-Fajro, you should like to remember that the Heikoi do not measure the value of a life. I am no more important than the farmer selling hae harvest nor the physician minding his patients."
 
 He tossed up his hands and said, "Fine. Where is good for you then?"
 

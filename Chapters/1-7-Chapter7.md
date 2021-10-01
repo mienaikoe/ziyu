@@ -257,15 +257,15 @@ The magistrate paused to scan the room again, searching for some interruption or
 
 _How did Fajro tell the magistrate his wishes?_
 
-"Outrageous!" Kipnu interjected. He wasn't prone to rash decisions, but I could tell he was on edge. "This is corruption. An advocate with an interest in the punishment? Is this what you call justice in Shaki?"
+"Outrageous!" Kipnu interjected. He wasn't prone to rash decisions, but I could tell he was on edge. "This is corruption. The advocate has an interest staked in hae punishment. Is this what you call justice in Shaki?"
 
 The magistrate did not move his eyes from me. "I've told you to leave. I will not tell you again."
 
 "Let's settle ourselves gentlemen," said Fajro. "Kipnu, you don't want Liffa to go to Ulukoma. Neither of us do. As an advocate, I'm giving hae a way out."
 
-Kipnu wasn't convinced. "You think I'm not onto you? I don't know what you plan to do with hae, but thi doesn't belong in Holrag."
+Kipnu wasn't convinced. "I don't know what you plan to do with hae, but you're not taking my maman to Holrag. Thi belongs in Heiko with Melna and I."
 
-"You mistake my intentions. Liffa is a comrade, a hero of the people. Thi will be treated with utmost respect. Besides, the only arrangements I make are those that are mutually beneficial."
+"You mistake my intentions," said Fajro. "Liffa is a comrade, a hero of the people. Thi will be treated with utmost respect. Besides, the only arrangements I make are those that are mutually beneficial."
 
 "And what benefit does thi get from this arrangement?"
 
@@ -273,9 +273,9 @@ Kipnu wasn't convinced. "You think I'm not onto you? I don't know what you plan 
 
 They looked at me and I froze. Kip would never understand why I wanted to go. I used to tell him how my days as an observer were the best of my life, how I grew up reading books about the little glimmers of light hiding in Ulu and wanted nothing more but to see them for all their glory. But he never understood why I would want to leave a place so perfect as the home we grew up in. Melna knew how painful it was for me but I knew if she were here she would undoubtedly think up some crafty way to sway my opinion. I had grown more fond of the idea after Fajro planted it in my head. Despite his suspicious intentions, I believed there was sincerity at the core of Fajro's offer.
 
-"Kip..." I said his name, and he turned away. But I'd seen this before. I knew he was still listening. "We're all looking death in the eye right now. We need to look for a way out or we're all done for. And if there really is nothing that can be done, I want to be there with you and Melna, at the end. Not on some strange prisoners' island."
+"Kip..." I said his name, and he turned away. But I'd seen this before. I knew he was still listening. "All of us are staring death in the eye. We need to look for a way out or we're all done for. And if there really is nothing that can be done, I want to be there with you and Melna, at the end. Not freezing to death on some prisoners' island."
 
-"How can you be so sure that you'll be safe where up there? This is all just a big experiment. Let them send one of their own if they believe in it this much."
+"How can you be so sure that you'll be safe up there? This is all just a big experiment. Let them send one of their own if they believe in it this much."
 
 "I am not just Heikoi, Kip. I am Holragi, too. Have you forgotten? My father taught me that life is so rarely blessed with a journey of purpose; that regret follows those who do not heed its call."
 
@@ -301,7 +301,7 @@ But Kipnu tightened his grip on Fajro's shirt. "You will regret this," he said.
 
 Kipnu looked back at Fajro, and showed no signs of remorse. He knew he'd damned himself, but he was too angry to care.
 
-The magistrate turned to me. "I'll return with a doctor shortly," he said. "Take care of Fajro." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
+The magistrate turned to me. "I'll return with a physician shortly," he said. "Take care of Fajro." He grabbed Kipnu by the arm and dragged him back through the doorway he'd barged through, leaving it ajar. I peeked my head out of the doorway and watched as they retreated down a long hallway and into another room.
 
 _Kip, what have you done?_
 
@@ -345,7 +345,7 @@ The magistrate barged back in, with an older woman carrying a wooden case in tow
 
 "I'm fine," said Fajro before I could say anything. "Just a bump."
 
-The magistrate pressed, "Sir, you were unconscious. Please allow the doctor to–"
+The magistrate pressed, "Sir, you were unconscious. Please allow the physician to–"
 
 "I'm fine," said Fajro. "Let's just get on with it."
 

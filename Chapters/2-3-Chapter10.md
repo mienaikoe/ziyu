@@ -45,15 +45,19 @@ He hesitated, but he knew he should say something. "I'm not here for trouble," h
 
 "Out in the open?" he balked. "The trees are thicker than clay out here."
 
-Casra maintained hae calm but urgent tone. "I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others."
+Casra maintained hae calm but urgent tone. "I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others. I have a place of refuge here. Safety from the guardians and the cold."
 
-He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd quickly learned to measure everyone on Ulukoma with a sliver of doubt.
+He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd quickly learned to measure everyone on Ulukoma with an eye of distrust.
 
-"How many are here?" he asked. But before Casra could answer, the ground beneath the fallen tree moved, and a kaln climbed out. Kipnu recognized hae face in the lantern light and immediately grew excited.
+"How many are here?" he asked.
 
-"You! You're that kaln from the ship!" he exclaimed. "Linyu, right? I heard Setre say your name."
+"It's just my kaln and I," thi said.
 
-Linyu smiled at Kipnu as thi walked toward Casra and grasped hae hands. Linyu looked up and down at him and grinned as if to hold in a smile. "You're blue now," thi said. Casra admonished hae, "Linyu!", but Kipnu laughed with hae. His eyes met again with Casra's and a sense of warmth came over him. He was in good company here.
+"You brought a child to this place?"
+
+Before Casra could reply, the ground beneath the fallen tree moved, and a kaln climbed out. Kipnu recognized hae face in the lantern light. "You! You're that kaln from the ship!" he exclaimed. "What was it that woman called you... Linyu?"
+
+Linyu walked toward Casra and grinned at him as thi stared at his chest. "You're blue now," thi said. Casra admonished hae, "Linyu!", but Kipnu laughed. His eyes met again with Casra's and a sense of warmth came over him. He was in good company here.
 
 The entrance Linyu had come through was a wooden door with just enough space to fit Kipnu's lumbering body with a strange black long coat draped over his shoulders. As he set foot upon the floor of their home, he looked around and saw the same warmth he heard in Casra's voice: a sort of cooking area to the left, a large bed at the far end, and a hand-made table to the right where Linyu was lighting another lantern. Casra had already prepared him a set of thick kelpen trousers and held them out with a stern posture as if to insist he wear them before stepping any further.
 
@@ -61,81 +65,33 @@ The entrance Linyu had come through was a wooden door with just enough space to 
 
 The kaln rose to fulfill hae mother's request and chimed at Kipnu, "I didn't mean to call you blue. I think blue looks good on you."
 
-Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter at first, but it grows on you."
+Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter for a bit, but it keeps you warm."
 
-He did as she told and immediately winced at the tannic flavor covering his tongue.
+He hesitated, not wanting to fall prey to another strange substance, but he trusted that Casra had good intentions. He placed a leaf upon his tongue and immediately winced at the bitter tannic flavor. "It's doing its work," Casra reassured him. The bitterness went away after a moment, leaving behind a pleasantly sweet flavor and a warm current in his blood. Casra took out another small leaf and broke it in half for haeself and Linyu.
 
-"It's doing its work," thi reassured him. Out of the corner of his eye, Kipnu could see Linyu eying the shiny pendant around his neck. The flavor went away after a minute, and it left behind a pleasantly sweet flavor, and a rush of energy.
+Kipnu paused, wondering if he should mention the obscura, but Casra broke the silence for him.
 
-<!-- left off -->
+"I hear you're a physician from Heiko," thi said.
 
-"It's gone. What was it?" he asked.
+Kipnu's hearts skipped a beat. "How could you possibly know that?" he asked. "You weren't at the fire. I would have noticed someone following me."
 
-"Back at the dome, I gave you a bit of antikan to neutralize the kanosin in your blood. Paosin helps the symptoms of withdrawal," Casra responded.
+"You're very perceptive, Kipnu," thi said. "I didn't mean to startle you. I'm afraid I can't answer your question until I know that I can trust you. Do you understand?"
 
-"I see," he said. The substances were familiar to him but he had never had the experience of taking them.
+He looked suspiciously into hae eyes, trying to see beyond the veil of hospitality, but he saw no signs of deceipt. "Yes," he said hesitantly. "I'm sorry for my outburst. Being honeset about my trade has only given me trouble out here."
 
-<!-- copypasta begin from chapter 8 - this should be the first time he meets Casra -->
+"Oh I know all about that," Casra laughed and looked past his feet to another time thi held in hae mind. "You aren't the only physician in Ulukoma."
 
-Kipnu paused, wondering if he should mention the obscura.
+"You too? But why? I mean, I'm here for personal reasons. I'm just passing through, you know? But you... you've made a home on this island."
 
-Thi changed the subject, "Where did you learn to do that?"
+Linyu handed Kipnu a wooden bowl: a clarified soup of fish, fermented seaweed, and Heikoi grain. He'd forgotten how hungry he was and eagerly took the bowl into his own hands, thanking Linyu graciously for the gift.
 
-"Learn to do...?"
-
-"Hypothermic chest compressions. That's not a common thing to know."
-
-"I'm a doctor. From Heiko."
-
-Casra laughed, "Two doctors in Ulukoma. What are the odds?"
-
-He smiled to himself - he was pondering the same thing.
-
-"So..." he asked, "How did you wind up here?"
-
-Thi hesitated. "If you don't mind, I'd prefer to ask you first."
-
-"Yes... of course." he said, embarassed.
-
-"No it's not that I think you're a bad person, I just–"
-
-"I get it. I'm a strange man in Ulukoma. And you have a kaln to look after. I'll give you the unfiltered version. There was this guy who wanted to send my jundmaman to space."
-
-Casra laughed until thi noticed that Kipnu wasn't.
-
-"You're not joking about that, are you?" thi asked.
-
-He continued, "I got angry... and I pinned him against a wall. Told him, politely, that he'd made a big mistake."
-
-"Oh. That... must be a long story," thi said.
-
-"No, that's basically it."
-
-Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again.
-
-"So how about you?" he asked. "Hope it's a bit less complicated."
-
-"It's...well I suppose it's a story best told elsewhere."
-
-"Sure."
-
-Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
-
-He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself.
-
-<!-- copypasta end -->
-
-"I believe I have a great deal to explain to you. This is my kaln, Linyu. We arrived here with you yesterday, but we used to live here many ma'to before."
-
-Linyu handed Kipnu a wooden bowl of some sort of fish stew, and he eagerly took it with gratitude and started eating.
-
-In between spoonfuls, he asked, "Why have you come back to a place like this?"
-
-"I spent three ma'to here at a dark time of my life. My journey began like most Ulukomai - a slave and a kanosin addict. The stuff was produced here by slave labor and then smugglers would bring it to the mainland. It's a vicious cycle that I got caught up in. Before I was an addict, I was a doctor - one of the best in Rudjan. I would often see kanosin addicts that had come directly from Ulukoma looking to escape their addiction and I developed my own treatment protocol that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I vastly underestimated its power and I was unable to pull out of it."
+Casra took a deep breath. "I was a physician once - one of the best in Rudjan. I would often see kanosin addicts that had come directly from Ulukoma looking to escape their addiction and I even developed my own treatment protocol for withdrawal. It was a combination of psychotherapy and sedatives that worked very well. In a stupidly brazen move, I decided to test it on myself to prove to my peers how effective it was, but I vastly underestimated its power and I was unable to pull out of it."
 
 "You were the cause of your own suffering."
 
-"Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but they would try to uplift the addicted. Shinna changed all that, bastardized all of the traditions that kept this place livable for the addicted. Now death and addiction hang in this place."
+"Yes. My junds left me and I was sent here as punishment. This place used to be equitable. The clear-minded still held the power here, but we tried to uplift the addicts. Kanosin was still the only way for us to get anything from the mainland, but we all contributed to its labor. Shinna changed all that, bastardized all of our traditions and enslaved the addicts. Now it's just a cartel, a vicious cycle that we all got caught up in."
+
+<!-- left off -->
 
 "I noticed... a class hierarchy back at the dome."
 
@@ -179,11 +135,31 @@ Kipnu was starting to have his doubts, but there were still more questions quave
 
 "I'm not a child!" said Linyu, getting up from hae chair. Casra took hae hand to calm hae.
 
-"Our people are still here. Linyu's nather is still here. Every person that lived here had a bond to everyone else. Raising children, falling in love, building the village – everything was done with tremendous trust in each other. We accepted our divisions, our arguments; by working through them we accomplished great things. I cannot simply go back to being a Rudjani doctor as if this island wasn't a part of me. I cannot abandon my people to a careless mogul. This is where I belong."
+"Our people are still here. Linyu's nather is still here. Every person that lived here had a bond to everyone else. Raising children, falling in love, building the village – everything was done with tremendous trust in each other. We accepted our divisions, our arguments; by working through them we accomplished great things. I cannot simply go back to being a Rudjani physician as if this island wasn't a part of me. I cannot abandon my people to a careless mogul. This is where I belong."
 
 "You speak of them like they're your family."
 
 Thi sighed and paused to think.
+
+He glanced at Linyu, saw that thi was eying the pendant underneath his shirt. "You have a family," thi said.
+
+"I do," he said. "And I love them very much."
+
+But Linyu wasn't finished. "Why didn't they come with you?" thi asked.
+
+" There was this guy who wanted to send my jundmaman to space."
+
+Casra laughed until thi noticed that Kipnu wasn't.
+
+"You're not joking about that, are you?" thi asked.
+
+He continued, "I got angry... and I pinned him against a wall. Told him, politely, that he'd made a big mistake."
+
+"Oh. That... must be a long story," thi said.
+
+"No, that's basically it."
+
+Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again.
 
 "Do you care about your junds, Kipnu?" thi asked.
 
@@ -368,3 +344,7 @@ Linyu got up and walked toward the bed.
 "The floor is good," he said to himself, settling into a space underneath the table.
 
 Linyu fetched him a pillow, filled with what he presumed was old dried leaves. To his surprise, it was comfortable, and the ground was warmer than it should have been in such a cold place. He settled into his spot, felt a great weight folding over his eyehaw, and listened as the sounds of Casra's movements settled near Linyu. Casra's voice mulled over the walls in a soft hum, painted them with the words that lay behind them. Words that Linyu already knew. Words that Kipnu didn't need to.
+
+Casra noticed that Kipnu was getting sleepy. Thi whispered to him, "Hey, why don't you rest. We're safe out here on the beach."
+
+He nodded and lied down next to the two of them, taking one last glance at the kaln to check his breathing, and drifted off to sleep. Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself.

@@ -92,7 +92,7 @@ Fanla stood just near a young campfire, looking out at the crowd. There were hun
 
 Casra had to cut the moment short. This group of wayward travelers were looking for guidance that only thi could give, and every moment was more time for Shinna's guardians to gain knowledge of their presence and hae plan. Thi stood upon a small ridge in the sand and called out to the group, asking for quiet.
 
-"Mamen, Women, Men. My name is Casra, and I'm a doctor here on Ulukoma. What we've just seen and been through represents the dark side of the mainland. You are nothing to them; just a number on a manifest. But your lives are worth more than your past mistakes, more than your fear of the darkness."
+"Mamen, Women, Men. My name is Casra, and I'm a physician here on Ulukoma. What we've just seen and been through represents the dark side of the mainland. You are nothing to them; just a number on a manifest. But your lives are worth more than your past mistakes, more than your fear of the darkness."
 
 Every eye on that beach was fixed upon on Casra, searching for any sign that they would be safe.
 
