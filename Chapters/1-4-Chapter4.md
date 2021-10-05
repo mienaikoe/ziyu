@@ -64,17 +64,17 @@ I laughed but became suddenly conscious of the loud and awkward sound of my own 
 
 He began again, "so what brings you to the capital?" I froze a bit, surprised that he could guess where I was going.
 
-"My jundwoman works there," I stuttered. "Just bringing her something."
+"My bundwoman works there," I stuttered. "Just bringing her something."
 
-"Ahh. Coming all this way to surprise your jundwoman. How thoughtful," he said, almost patronizing.
+"Ahh. Coming all this way to surprise your bundwoman. How thoughtful," he said, almost patronizing.
 
 "Heh. Yea..." I trickled my words that I wouldn't say too much. "I hope she receives it well."
 
-"A good jundwoman would appreciate an attempt to brighten her day," he said.
+"A good bundwoman would appreciate an attempt to brighten her day," he said.
 
 "We haven't been too happy with each other lately, so I hope you're right."
 
-"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my jundmaman about my son's first formal robe. We never even asked him what he wanted to wear; we were too bent on winning the fight. For weeks, It went on like an obsession. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
+"Yes, that will happen from time to time," his voice had a tinge of melancholy. "I still remember once, I was squabbling with my bundmaman about my son's first formal robe. We never even asked him what he wanted to wear; we were too bent on winning the fight. For weeks, It went on like an obsession. We didn't speak, we didn't eat together. But then one day," he snapped the air with his fingers.
 
 "... what?" I asked. "One day, what?"
 

@@ -119,7 +119,7 @@ He finished jotting his notes and then turned the page for the next question. "H
 
 "And you were there when they showed up?"
 
-"Ah, yes. Melna is my jundwoman," I said.
+"Ah, yes. Melna is my bundwoman," I said.
 
 "I see," he said, scribbling his notes quicker now. "And then?"
 
@@ -213,7 +213,7 @@ I ran to the door to feel his presence though I didn't say a word out of fear fo
 
 "Kipnu!" I yelled through the door. "What are you doing? Get out of here!"
 
-Fajro stirred, uneasy at the sound of his name. "Your jundman?" he asked. "What's gotten into him?"
+Fajro stirred, uneasy at the sound of his name. "Your bundman?" he asked. "What's gotten into him?"
 
 There were sounds of shuffling and shouting as the magistrate fled to call for help. I backed away from the door, anticipating some movement, and with a sudden clink the door flung wide and brought Kipnu into the holding cell. I ran into his arms, his warmth, and he held me in a way that I so desperately needed.
 

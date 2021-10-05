@@ -218,7 +218,7 @@ She decided to be deliberate. Another prying question might push Linyu to leave,
 
 Thi slowly creaked the door open just enough to listen for Melna and reach for the glass which Melna gave eagerly. Thi kept the door cracked like this, sipping on water and listening vigilantly for any changes or movements. A crack of light shone through and Melna could see the texture of Liffa's robes clothing Linyu's shoulders.
 
-"You know, my jundmaman..." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. The other one was always better at it."
+"You know, my bundmaman..." she began, fighting off her own tears, "Thi used to run to the washroom whenever thi was upset too. I never did a great job comforting hae. The other one was always better at it."
 
 Linyu whispered, "Liffa".
 

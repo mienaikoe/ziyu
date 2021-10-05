@@ -291,7 +291,7 @@ Melna cautiously moved her hand closer while thi crawled out of the hiding bag. 
 
 "Kipnu?" thi seemed more confused than before.
 
-Melna apologized, "I'm sorry. He is my jundman, and I was hoping that you might have..." She paused. Hearing herself say it out loud made her realize how ridiculous her question must have been.
+Melna apologized, "I'm sorry. He is my bundman, and I was hoping that you might have..." She paused. Hearing herself say it out loud made her realize how ridiculous her question must have been.
 
 "I have very few memories," thi said, beginning to cry, "I remember a sea of lights, millions of them dancing in the warm water. I remember waking up, yesterday on this ship, in this itchy bag. I was blind and had a terrible headache. I met a man named Ramne... And then I met him again, and a third time... I remember it hurting more each time I woke up. We went into a town of some sort. At least I think we did? But now I've met you."
 

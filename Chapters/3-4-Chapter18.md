@@ -158,7 +158,7 @@ Melna was quickly becoming impatient with him. She moved from her spot and pivot
 
 He spoke between breaths with an unwavering conviction, "You and your people. You're all criminals. Everybody knows it. You'll never succeed as long as we are in power."
 
-"A Holragi controlling the Rudjan conduit, eh? Maybe you know something about why your sociopath ex-fidelant kidnapped my jundmaman?"
+"A Holragi controlling the Rudjan conduit, eh? Maybe you know something about why your sociopath ex-fidelant kidnapped my bundmaman?"
 
 "The blood of Holrag flows through Liffa's veins, far stronger than hae Heikoi blood. Thi has shown that thi is a true Holragi, deserving of hae title."
 
