@@ -97,19 +97,17 @@ Casra looked up, as if awakened from a daydream. "I'm sorry," thi said, adjustin
 
 Casra nodded. "She's a bit rough around the edges but she means well. Back then, this place was different. It was a prison, but not in the way it is now. This place used to be equitable; we worked together, tried to uplift the addicts. Kanosin is the only thing we can trade with the smugglers for food or tools but we used to share what we earned equally amongst ourselves."
 
-"You refine kanosin?" Kipnu flipped his tone, angry that he'd trusted hae. "Casra, we are physicians. We took an oath to protect life – 'Ability over Apathy'. It's not ethically sound just because you skipped the slave labor part."
+"You were a kanosin refiner?" Kipnu flipped his tone. "Did you forget the physicians vow? 'Ability over Apathy'?"
 
-"Kipnu... we don't have steam or steel like you do on the mainland. We only have fish and bluekelp. Kanosin is the only thing we can trade for some semblance of civility in our daily lives. If you aren't harvesting bluekelp or refining kanosin, you're helping the people that are."
+"I didn't forget it!" thi snapped at him. "I took that vow, and I meant it!"
 
-Kipnu wasn't convinced. "Why would the Shaki government have a prison island to make a narcotic that they outlawed?"
+Kipnu rebuked hae. "How can you say that and still make a drug like that?"
+
+"We don't have Ara to do our work for us. There is no steam to cook with, no steel to build with. Kanosin is all we have to trade for some semblance of civility." Hae face was flush with stress and thi looked away to calm haeself down. Kipnu regretted his insistence, looked away as well.
+
+"Things have been different ever since Shinna and Ramne arrived," said Casra. "What you saw back there is not how it used to be. They came to this island with a neutralizer for kanosin, and instead of using it for good, they used to gain power and influence. They bastardized all of our traditions, shackled the addicts to the ovens and formed the guardians to protect themselves."
 
 <!-- left off -->
-
-"About a hundred days ago, a smuggler brought a chemist to the island Shinna changed all that, bastardized all of our traditions and enslaved the addicts. Now it's just a cartel, a vicious cycle that we all got caught up in.
-
-"I noticed... a class hierarchy back at the dome."
-
-"Shinna was a chemist in Shaki who somehow stumbled upon an antidote for Kanosin. Then thi came here with hae stockpile of antikan, and instead of giving it to us, thi used it as leverage to gain power over me. Now the upper class use it to get high at night and by morning they're back to normal."
 
 "Wait, gain power over you? So you were a leader here?"
 

@@ -20,21 +20,25 @@ The aroma of smoke stuck to the air and grew in complexity the further they walk
 
 As they moved out of hearing range, Kipnu decided to try learn from his captor. "Who are these people?" he asked.
 
-She hesitated, then said, "Firekeepers. They come here for the fix."
+She hesitated, then said, "Addicts. They come here for the fix."
 
 "What do they do after their sentence is up?"
 
-The woman snickered dismissively. "Who said anything about a sentence?"
+"I never said anything about a sentence."
 
-"No sentence? Who would ever come to this place of their own volition?"
+Kipnu was perplexed. "Who would ever come to this place of their own volition?"
 
 "You deaf?" she asked. "It's the fix."
 
-Kipnu was incredulous at the nonchalance this woman felt about the people who worked for her benefit. A sickening feeling came over him as he wondered where he would fit in this hierarchy.
+Kipnu was incredulous at the nonchalance this woman felt about these people. _They need help_.
 
-Ahead of them, a muffled cacophony of music and talking intermingled with the sweet aroma of burning anomin. A gathering of some sort, but muffled by some structure.
+"What about you?" he asked.
 
-"What do I hear?" he asked the woman again.
+She hesitated to answer. "I am a guardian. That's all you need to know."
+
+A sickening feeling came over him as he wondered where he would fit in this hierarchy. Ahead of them, a muffled cacophony of music and talking intermingled with the sweet aroma of burning anomin. A gathering of some sort, but he couldn't be sure how many people it was.
+
+"What am I hearing?" he asked the woman again.
 
 "You'll see."
 
@@ -47,11 +51,13 @@ From a giant clearing of trees stood the outline of a giant yurt. The light of A
 
 "Your duty?" she implored, "Your job?"
 
-"I'm a physician if that's your meaning," he said. "What is it to you?"
+"I'm a physician if that's your meaning," he said.
 
 She looked him up and down with a curious gaze as if her eyes had seen him for the first time. An acute feeling of discomfort grew within him as her eyes made their way back up to his. "Mark your words carefully, Kipnu. You have value, that much is certain. But do you know what to do about it?"
 
-The woman led him by the hand under the flaps of the wall into a lustrous new world of blue. The room was a sea of skin and light, each woman, maman, and man baring the unique luminescent markings that meandered across their skin. He felt naked in his clothes and wholly opaque, but Setre pulled him ever deeper into the crowd, ever more lost in the blur. The deep drum grew louder as he grew nearer, rattling the ground with its droning meditation while dancers blurred into the sweet smoke of anomin. The rest were fully immersed in each other, drenched in the throws of erotic ecstasy. He looked at their eyes colored brightly with the light of kanosin, and for a moment, felt an inexplicable pang of envy.
+"Value?" asked Kipnu, but before he could ask more, she pulled his arm under the flaps of the wall into a lustrous new world of blue.
+
+The room was a sea of skin and light, each woman, maman, and man baring the unique luminescent markings that meandered across their skin. He felt naked in his clothes and wholly opaque, but Setre pulled him ever deeper into the crowd, ever more lost in the blur. The deep drum grew louder as he grew nearer, rattling the ground with its droning meditation while dancers blurred into the sweet smoke of anomin. The rest were fully immersed in each other, drenched in the throws of erotic ecstasy. He looked at their eyes colored brightly with the light of kanosin, and for a moment, felt an inexplicable pang of envy.
 
 "Stay close," said Setre, or at least that's what he heard as she led him between gaps in the crowd, closer to the center of this grand hall. Upon a fine rug of blue light, a maman no more than Kipnu's age lay reclined in front of a broad post that held the weight of this place. Thi flirted and toyed with the men and women gathered around hae, but stopped as thi spotted Setre with a strange man. Thi looked him up and down and up again with lustful eyes, the only part of hae body that wasn't glowinig blue.
 
@@ -59,7 +65,7 @@ The woman led him by the hand under the flaps of the wall into a lustrous new wo
 
 Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove your loyalty." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the guardians." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of this great yurt are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
+"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the guardians." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
 
 Kipnu stared at hae with cautious eyes. He thought of the people working the ovens outside, wondered how they had been deemed unworthy.
 
