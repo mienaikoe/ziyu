@@ -1,6 +1,6 @@
 ## Chapter 13
 
-Kipnu was silent on the long walk home, following the perimeter of the island to avoid guardians. Fanla walked next to him, trying in vain to think of something to say. They were both too shocked to think clearly.
+Kipnu was silent on the long walk home, following the perimeter of the island to avoid hunters. Fanla walked next to him, trying in vain to think of something to say. They were both too shocked to think clearly.
 
 "Kipnu," a maman called to him.
 
@@ -172,7 +172,7 @@ Setre spoke to him over the dish cleaning basin.
 
 "Kanosin is just a drug. There's not much to know."
 
-"You are terribly mistaken, Kipnu. You would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would parade his trophy around, inadvertently bringing more attention to hae. And thi was right. He came to the dome bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more steps to force a bloodless surrender: a small but knowledgeable resistance within the guardians, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
+"You are terribly mistaken, Kipnu. You would dismiss me even if I told you. But if what you said is true, then it means they planned for everything to happen this way. Casra saw Ramne and knew that he would parade his trophy around, inadvertently bringing more attention to hae. And thi was right. He came to the dome bragging about capturing Casra, and it started a chaotic mess of infighting. That was the first shot fired, but thi's counting on two more steps to force a bloodless surrender: a small but knowledgeable resistance within the hunters, and a much larger force made up of the strangers from the shoreline to emancipate the working class. Thi's gambled it all on me and you to finish the job."
 
 He stood up and faced the wall adjacent to the ladder.
 
@@ -184,9 +184,9 @@ He stood up and faced the wall adjacent to the ladder.
 
 "They had the choice of trusting you or trusting Ramne."
 
-He let out a sigh. "And what about our numbers? There are far too many guardians "
+He let out a sigh. "And what about our numbers? There are far too many hunters "
 
-Setre smirked and said, "Only a few hundred guardians can actually fight. And half of them are Casra's old tribemates. Besides, we have these."
+Setre smirked and said, "Only a few hundred hunters can actually fight. And half of them are Casra's old tribemates. Besides, we have these."
 
 She pointed to a listener on her ear, a bit old but well taken care of.
 
@@ -210,7 +210,7 @@ She pointed to a listener on her ear, a bit old but well taken care of.
 
 "Once Ramne finally gives Casra away, Shinna will mostly likely take hae somewhere nobody knows about. There's not much around besides trees but with Shinna, there's always another trick."
 
-"What if Shinna's guardians overpower yours?"
+"What if Shinna's hunters overpower yours?"
 
 "Let's hope your group can handle the weapons you find in the armory."
 

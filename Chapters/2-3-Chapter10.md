@@ -29,21 +29,21 @@ Amidst the quiet observation he sighed and felt the exhaustion he'd gathered tha
 
 "Damn this cold," he whispered to himself. He curled up into himself, his body shivering from exposure, but it was only a temporary relief. _I wonder if Setre is searching for me_. His thoughts meandered to the memories of her face, closed and sinking into his shoulder. The feeling of panic and confusion and euphoria. _Did I want it to happen?_ he asked. _Did I enjoy it?_ A knot grew in his stomach.
 
-"Liffa, Melna," he spoke to the wind as if they were listening. "I've broken our oath." A tear began to fall down his cheek. The first he'd had time to shed. "Melna, you must understand I..." he gasped for an explanation but he knew he had none. Who would believe him? Who could possibly understand what's happened here? He thought of Liffa, wondered if thi was being treated well or if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained composed while the rest of the world was teetering at the edge of madness.
+"Liffa, Melna," he spoke to the wind as if they were listening. "I've broken our oath." A tear began to fall down his cheek. The first he'd had time to shed. "Melna, you have to understand..." he gasped for an explanation but he knew he had none. Who would believe him? Who could possibly understand what's happened here? He thought of Liffa, wondered if thi was being treated well or if Fajro really was using hae life to bargain with the senate. Maybe Melna was doing better. She always remained composed while the rest of the world was teetering at the edge of madness.
 
 Kipnu heard quick footsteps approaching behind him, and he quickly stood up and covered his brightly-lit body.
 
-"Kipnu?" a maman called his name. He'd half-expected Setre, or the faceless maman who congratulated him, but he could immediately tell this person was a stranger. There was a distinct tone to hae voice: warm and earnest and full, and not so saccharine as many were. Thi passed by him, looking around, but didn't notice him standing a few paces away, watching as thi circled around the area and placed hae hands on a tree that grew diagonally from the ground. Hae hands came to hae chest and clutched an object in hae coat. Thi fiddled with it and gradually a small bright flame grew from a glass enclosure: a lantern of sorts. In the warm light he could see a fractured trunk and the many branches that suspended it above the ground.
+"Kipnu?" a maman called his name. He'd half-expected Setre, or the faceless maman who congratulated him, but he could immediately tell this person was a stranger. There was a distinct tone to hae voice: warm and earnest and full, and not so saccharine as many were. Thi passed by him, looking around, but didn't notice him standing a few paces away. He looked on as thi circled around the area and placed hae hands on a tree that grew diagonally from the ground. Hae hands came to hae chest and clutched an object in hae coat. Thi fiddled with it and gradually a small bright flame grew from a glass enclosure: a lantern of sorts. In the warm light he could see a fractured trunk and the many branches that suspended it above the ground.
 
-He hesitated, but he knew he should say something. "I'm not here for trouble," he said, walking slowly from the tree. He maintained the distance between them.
+He hesitated, but he knew he should say something. "I'm armed," he bluffed, walking slowly away from the tree. He maintained the distance between them. "Don't come any closer," he said.
 
-"Kipnu, you've made it!" thi said. "Come in, come in. We have much to..."
+"Kipnu, you've made it!" thi said. "Come in, come in. We have much to talk..."
 
-But he stared at hae with eyes as cold as his skin. "Who are you?" he asked. "Is this another of Shinna's tests?"
+But thi looked back at him as he stared back with eyes colder than the wind. "Who are you?" he asked. "Is this another of Shinna's tests?"
 
-The kaln adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or enslave you with kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others. I have a place of refuge here. Safety from the guardians and the cold."
+The maman adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or enslave you with kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others. I have a place of refuge here. Safety from the hunters and the cold."
 
-He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd quickly learned to measure everyone on Ulukoma with an eye of distrust. "How many are here?" he asked.
+He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd learned to measure everyone on Ulukoma with an eye of distrust. "How many are here?" he asked.
 
 "It's just my kaln and I," thi said.
 
@@ -57,7 +57,7 @@ The entrance Linyu had popped out of was a wooden door with just enough space to
 
 The kaln rose to fulfill hae mother's request and chimed at Kipnu, "I didn't mean to call you blue. I think blue looks good on you."
 
-Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter for a bit, but it keeps you warm."
+Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter for a bit, but it keeps your body warm and the cravings at bay."
 
 He hesitated, not wanting to fall prey to another strange substance, but he trusted that Casra had good intentions. He placed a leaf upon his tongue and immediately winced at the bitter tannic flavor. "It's doing its work," Casra reassured him. The bitterness went away after a moment, leaving behind a pleasantly sweet flavor and a warm current in his blood. Casra took out another small leaf and broke it in half for haeself and Linyu.
 
@@ -65,11 +65,11 @@ He hesitated, not wanting to fall prey to another strange substance, but he trus
 
 Kipnu's hearts skipped a beat. "How could you possibly know that?" he asked. "You weren't at the fire. I would have noticed someone following me."
 
-"You're very perceptive, Kipnu," thi said. "I didn't mean to startle you. I'm afraid I can't answer your question until I know that I can trust you. Do you understand?"
+"You're very perceptive, Kipnu," thi said. "I didn't mean to startle you. I'm afraid I can't answer your question until I know that I can trust you."
 
 He looked suspiciously into hae eyes, trying to see beyond the veil of hospitality, but he saw no signs of deceipt. "Yes," he said hesitantly. "I'm sorry for my outburst. Being honest about my trade has only given me trouble out here."
 
-"Oh I know all about that," Casra laughed and looked past his feet to another time thi held in hae mind. "You aren't the only physician in Ulukoma."
+"I understand that very well," Casra laughed and looked past his feet to another time thi held in hae mind. "You aren't the only physician in Ulukoma."
 
 "You too? But why? I mean, I'm here for personal reasons. I'm just passing through, you know? But you... you've made a home on this island."
 
@@ -81,33 +81,47 @@ Casra took a deep breath. "I was a physician once - one of the best in Rudjan. I
 
 "Yes," thi continued. "I'd failed to realize that the most important part of my therapy was me. I couldn't guide myself toward anything while my body was guiding me back to kanosin. The magistrates of Rudjan had me sent here to save their reputation. I used to be the one they turned to when they had to sentence an addict. 'Rehabilitation not Retribution'. That is what I sold to them, and they took that to the people of Rudjan. But all of that was away by my own ignorance."
 
-Hae face had gone flush with self-frustration, and without pause Linyu moved to hae mother's side to comfort hae. Kipnu could sense the depth of hae regret by the weight of hae words, and the strength of the bond between mother and kaln.
+"Casra," he said and thi looked up into his eyes. "I can't possibly know your pain. But anyone that's half as ambitious as you are can surely recover from anything."
 
-"Casra," he said and thi looked up into his eyes. "I can't possibly know the pain of your loss. Sometimes I wish I were half as ambitious as you are." He paused and glanced at Linyu, hae eyes open wide toward him as well. "Remember what they teach us in school about grieving patients?"
+Casra gazed at him, as if transfixed by his words or perhaps his eyes. "Oh, I'm sorry," thi said, averting hae eyes as if awakened from a daydream. "I shouldn't be yammering about my problems to a stranger.-"
 
-Casra replied, "The rock and the beacon?"
+"-No. Please," he interrupted. "I want to know more. About this place. About you. Tell me what you know and I'll tell you about myself." Thi looked at him with pensive eyes; one half trusting, and the other half unwaveringly cautious. He appealed to the trusting half, "Do you remember what they teach us about grieving patients?"
 
-"Would you humor me?" he asked.
+"The rock and the beacon?" Casra asked. Thi balked at his suggestion, "Am I to think of myself as your patient?"
 
-Casra gazed at him, as if transfixed by his words or perhaps his eyes. "Oh, I'm sorry," thi said, as if awakened from a daydream. "I shouldn't be yammering about my own problems to a stranger.-"
+"Would you humor me?" he asked. "You can learn a lot about someone knowing their guiding forces." He glanced at Linyu who was staring back at him with keen attention. There was a sort of gravity he had with hae, as if every word he said carried a story within it.
 
-"-No," he said. "Your problems are important. Please tell me more."
+Casra sighed and paused to think, and then thi began. "Ulukoma used to be a place where that was normal. The evening used to be a time of storytelling, singing, confessing of love or desire or sexuality. Anyone could stand up and say or do anything they wanted. We explored the depths of our minds and bodies together, no matter how difficult or shameful. It was a place and time where people weaved their lives together and apart and together again, and we all grew closer because of it."
 
-"It's just that... Ulukoma used to be a place where that was normal. The evening used to be a time of storytelling, singing, confessing of love or desire or sexuality. Anyone could stand up and say or do anything they wanted. We explored the depths of our minds and bodies together, no matter how difficult or shameful. It was a place and time where people weaved their lives together and apart and together again, and we all grew closer because of it."
-
-I remember being afraid of it all on my first night here. We were thrown off the ship, and I just remember being so confused as I struggled blindly in the water to find my way to safety. Then I heard a voice. 'This way,' she said, and I followed her without a question. She helped me and the others onto the shore where the rest of Ulukoma had gathered to meet us, and that night we all shared a part of ourselves we'd never dared to share openly. Setre was my rock."
+"I remember being so afraid on my first night here. We were thrown off the ship, and I just remember being so confused as I struggled blindly in the water to find my way to safety. Then I heard a voice. 'This way,' she said, and I followed her without a question. She helped me and the others onto the shore where the rest of Ulukoma had gathered to meet us, and she told me her name was Setre."
 
 "Hold on," said Kipnu. "Setre? The same Setre that nearly killed me in the forest two days ago?" asked Kipnu. "With the spear and the terrifying eyes? She's the one who saved your life?"
 
 Casra nodded. "I know this is hard to believe, but she is careful with her words. Setre was my rock through everything. There were many days when I felt the feverish hand of death upon me while I was going through withdrawal, but she watched over me, gave me the comfort I needed in the painful times and the tough love I needed through the cravings. At some point we fell in love, though I don't think I could tell you when. It's a lot like sobriety: you wake up one day and realize that you're already in it."
 
+"Love?" said Kipnu. "Are you certain we're talking about the same person?"
+
+But Casra challenged him, "Would you judge a saffa by the fur on their tail?"
+
+"A doctor knows things," he said. "Rarely do I make a misjudge a person's character."
+
+"Until today, apparently," thi swiftly replied.
+
+"The Setre you used to know is nothing like the Setre I saw back there." He pulled down the side of his trousers enough for Casra to see the bandage he'd placed on his thigh. "She sliced through my skin like it wasn't even there."
+
+Casra shuddered. "She plays an important role for Shinna in hae empire. A role that Setre is very good at playing. But that's not who she wants to be."
+
+"Who she wants to be doesn't stand to what she's done. She calls herself a hunter. And all of her 'prey' are under Shinna's thumb."
+
+"You wouldn't be here if it wasn't for her," said Casra. "The commotion that covered your escape was not done by one person alone. Setre had to make sure you were in the right place at the right time for the nitroglycerin trick to work. I'm sorry I couldn't be there myself, but it's for the best that nobody knows that I'm here."
+
+Thi looked down at Linyu who sat quietly beside hae, fiddling with some trinket made of wood and metal. "Sometimes I wonder if Linyu takes after hae mother, the way thi can see things the rest of us miss. Every day, the two of us go out to the beach to guide the exiles onto land. Linyu always knows how far out the ships will turn around, or when the hunters will come around to the shoreline. If Setre is my rock, then Linyu is my beacon of hope for the future."
+
 <!-- left off -->
 
-Kipnu was "I don't know that I've
+"If it's so dangerous here, then why do you stay? Surely your sentence must be up by now."
 
-"One night, the two of us stole away with a man who'd just come to the island on his own. We went to a far off part of the island..." thi glanced at Linyu. "And we went for a swim. Soon after, Setre was pregnant with Linyu. We never saw the father again, though I wouldn't have remembered his face. But that didn't matter to us. Setre and I were ready to raise a child on our own. When we finally saw Linyu, saw hae eyes peer into mine, I felt... motherhood. And beside it, an immense feeling of shame for who I had become, for how my kaln might see me when thi grows up."
-
-"I knew I had a choice to make. Kanosin was all around me in Ulukoma. It affected me and everyone I knew and had come to love. I could have taken Linyu and left this place - my sentence was long up. But Setre and everyone else here had become my family, far more than any I'd ever had on the mainland. So I chose to stay and use what I learned in Rudjan to help the addicted."
+"I could have taken Linyu and left this place long ago. But Setre and everyone else here had become my family. I had no future, no hope on the mainland. My life as a physician was over out there. But here on the dark island, the people need me. So I chose to stay and use what I learned in Rudjan to help the addicted that landed here."
 
 Kipnu sat with his now-empty bowl and his warm belly, and empathized with the story. He remembered how it felt to be under the power of kanosin, to beg for another dose, and knew the importance of hae work.
 
@@ -120,10 +134,6 @@ Kipnu sat with his now-empty bowl and his warm belly, and empathized with the st
 "How can you say that and still make the most addictive drug this world has ever seen?"
 
 Casra looked at him with a fire that told him he'd gone too far. "We don't have Ara to do our work for us here," thi said. "There is no steam to cook with, no steel to build with. Kanosin is all we have to trade for some semblance of civility." Hae face was flush with stress and thi looked away to calm haeself down. "Things have been different ever since Shinna and Ramne arrived. What you saw back there is not how it used to be. They came to this island with a neutralizer for kanosin and instead of using it for good they used to gain power and influence. They bastardized all of our traditions, divided us into haves and have-nots. I couldn't stay any more"
-
-<!-- This paragraph feels like a mouth full and felt me confused as to what happened after it. -->
-
-"I guess I'll start where I left off. You remember I mentioned traditions. I had been under the addiction, but I had the faculty to understand their words and feel the love of a tribe more deeply than I knew of my bunds."
 
 <!-- setre -->
 
@@ -315,7 +325,7 @@ Thi took his hand and spoke to him earnestly.
 
 Kipnu was feeling tense at her words. He looked at Linyu for some sign that things were not as dangerous as hae mother was saying, but thi also had a serious look.
 
-"Look, I know to stay away from guardians. I can handle myself in a fight. I don't mean to disappoint you but I'm planning to leave as soon as I can."
+"Look, I know to stay away from hunters. I can handle myself in a fight. I don't mean to disappoint you but I'm planning to leave as soon as I can."
 
 "Linyu told me about what happened in the forest. Setre captured you only paces away from the treeline?"
 

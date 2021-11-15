@@ -33,7 +33,7 @@
 
 Kipnu stopped them at the top of the hill overlooking the dome, smelling the first hints of fire in the air. Ara was but a reddish sliver on the horizon, a view that he never fathomed to see. He turned around and signaled to them to gather in close. Huddled to his right was Fanla, who held the length of rope binding Ginnu's hands. It was an unpleasant position for the both of them, but she understood the weight of the job.
 
-"From this point on, we'll split into the two groups I mentioned before. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If you're about to be captured, destroy it. We cannot let them get a hold of one. And finally, we are not here to fight, we are here to liberate. Even if we have all of the weapons and antikan on Ulukoma, we wouldn't be able to defeat the guardians. Do not attack unless your life is in danger. Everyone clear?"
+"From this point on, we'll split into the two groups I mentioned before. Stay with your partners at all times; if one of them is hurt, make sure that the area is safe and get the both of yourselves out of here. If they have a listener, take it off of them and put it on yourself. If you're about to be captured, destroy it. We cannot let them get a hold of one. And finally, we are not here to fight, we are here to liberate. Even if we have all of the weapons and antikan on Ulukoma, we wouldn't be able to defeat the hunters. Do not attack unless your life is in danger. Everyone clear?"
 
 They made a gesture with their hands in assent, a sort of salute of honor that Kipnu had learned from Melna.
 
@@ -51,7 +51,7 @@ This place was bathed in the light of Ara, a sprawling terrain of densely-packed
 
 He turned around to look toward Ulu. Through the darkness, Kipnu could see patches of clouds that faded into Ulu. But if he stared long enough, he could see tiny specks of faint red and infrared hanging in the sky, ever still, ever bright. Like the small children of Ara. He wondered at what they might be, how long they'd been just beyond the veil of Ara.
 
-Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the dome. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from guardians scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
+Three people in total made it up the tree, shielding their eyes and gasping at the beauty of what they were seeing. They made their way from tree to tree atop the intertwined branches and toward the clearing that marked the fire and the dome. They came upon a larger tree at the perimeter of the clearing they'd been looking for and perched to look below, making mental maps of the terrain and feeling the warm smoky currents from the fire mix with the wind. They counted seven blue lights from hunters scattered around the fire. Two of them were sparring with sticks near the kitchen and the others were eating a late dinner closer to the armory.
 
 Kipnu pulled a listener out of a satchel he was carrying and removed the coil assembly from the wooden puck. With a small tool he'd found in Casra's home, he cleaved a hole into the branch and inserted the end of the coil that stuck out, giving time for the fresh wet wood take to it. As they waited, they watched as the last sliver of light extinguished itself into the ground, and an eerie feeling overcame them. They knew that this strange new kind of darkness would soon be everywhere.
 
@@ -61,11 +61,11 @@ A maman, Penyi, produced a listener of hae own and asked for Kipnu to say someth
 
 The maman with the listener nodded to him and he smiled, knowing Linyu's work hadn't gone to waste. He made a departing gesture to the three and made his way back across the branches and down the leaning tree, all the while wondering about in those strange red dots in the sky, and Linyu's strange blue eyes in the deep.
 
-"Seven guardians around the fire," he told the ground team. "Five near the armory. We'll approach from Ulu-side."
+"Seven hunters around the fire," he told the ground team. "Five near the armory. We'll approach from Ulu-side."
 
 And without a moment to pause, he led them in a sparse line through the forest, around the dome grounds and further into the dark.
 
-Penyi's voice chimed in through the listener. "There's a commotion in the dome," thi said, "The guardians are leaving the armory."
+Penyi's voice chimed in through the listener. "There's a commotion in the dome," thi said, "The hunters are leaving the armory."
 
 "Now's our chance," he told them. "I need four volunteers to come with me. Walk silently and spread out."
 
@@ -73,7 +73,7 @@ He didn't stop to choose but began walking right as he'd given the order. He kne
 
 They reached the back side of the armory tent and Kipnu switched to gestures: a hand from his chest to the underside of the tent, then onto the ground in a waving motion. The four rose their hands in confirmation and he went down into the dirt, underneath the cloth, and arose in a makeshift room lit only by the fire from the far side. He firmly grasped his stolen spear and looked for signs of movement, but saw only racks upon racks of spears and daggers and huge fishing nets with metal weights, All of them hardened and polished to a mirror finish.
 
-"Three guardians running toward the armory," said Penyi, and Kinpu suddenly found himself in the middle of the tent, looking for a place to hide. He considered running back toward the place he came in, but knew that if they spotted him, they would be led to the others. There was no option but to stay far away, taking cover behind racks and move with them.
+"Three hunters running toward the armory," said Penyi, and Kinpu suddenly found himself in the middle of the tent, looking for a place to hide. He considered running back toward the place he came in, but knew that if they spotted him, they would be led to the others. There was no option but to stay far away, taking cover behind racks and move with them.
 
 "Those damned traitors," said a woman as she entered.
 
@@ -219,11 +219,11 @@ Kipnu lifted himself out of the hole, caught his breath in the armory amongst th
 
 Penyi came upon the listener again. "Fire. There's a fire at the Dome!"
 
-An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the dome, keeping the guardians off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
+An overwhelming feeling of dread overcame him, but running was not an option. Setre was still at the dome, keeping the hunters off, and even more were treating the sick. His feet pushed the ground beneath him, and out into the cold night.
 
 Some people were rushing out of the dome carrying limp bodies. Others were paired together, carrying crates of fish or kelp. Most were standing at a safe distance staring in horror at the sight of their home burning down. Adjacent to the armory, he saw a group of bodies laying on the ground and some people from his group attending to them. Some of them were stirring, and others were not. His eye caught Fanla who stood before several people lying on the ground with soot all over their bodies. He ran toward her, dodging a flurry of people from every direction.
 
-"Fanla! What's going on?" he asked her. Another woman came out of the burning dome, carrying two guardians on her shoulders, and set them gently on the ground next to the others.
+"Fanla! What's going on?" he asked her. Another woman came out of the burning dome, carrying two hunters on her shoulders, and set them gently on the ground next to the others.
 
 "We're pulling people out of the dome. I need your help."
 

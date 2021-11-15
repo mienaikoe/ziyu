@@ -90,7 +90,7 @@ Thi drie hae tears and walked swiftly toward the beach, leaving Kipnu to his own
 
 Fanla stood just near a young campfire, looking out at the crowd. There were hundreds dotting the shore, huddled around multiple fires that had borrowed from the first. The bread supply had run out, so everyone was splitting pieces for each other, and huddling to keep warm. When Casra emerged from the forest, she immediately came to her and they shared a moment of pain together. Even from afar, Kipnu could tell there was something special about Fanla. In her eyes or her earnest sense of touch. She knew how to heal the thngis that he could not.
 
-Casra had to cut the moment short. This group of wayward travelers were looking for guidance that only thi could give, and every moment was more time for Shinna's guardians to gain knowledge of their presence and hae plan. Thi stood upon a small ridge in the sand and called out to the group, asking for quiet.
+Casra had to cut the moment short. This group of wayward travelers were looking for guidance that only thi could give, and every moment was more time for Shinna's hunters to gain knowledge of their presence and hae plan. Thi stood upon a small ridge in the sand and called out to the group, asking for quiet.
 
 "Mamen, Women, Men. My name is Casra, and I'm a physician here on Ulukoma. What we've just seen and been through represents the dark side of the mainland. You are nothing to them; just a number on a manifest. But your lives are worth more than your past mistakes, more than your fear of the darkness."
 

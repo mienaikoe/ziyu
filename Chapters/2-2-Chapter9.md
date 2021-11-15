@@ -34,7 +34,7 @@ Kipnu was incredulous at the nonchalance this woman felt about these people. _Th
 
 "What about you?" he asked.
 
-She hesitated to answer. "I am a guardian. That's all you need to know."
+She hesitated to answer. "I am a hunter. That's all you need to know."
 
 A sickening feeling came over him as he wondered where he would fit in this hierarchy. Ahead of them, a muffled cacophony of music and talking intermingled with the sweet aroma of burning anomin. A gathering of some sort, but he couldn't be sure how many people it was.
 
@@ -65,7 +65,7 @@ The room was a sea of skin and light, each woman, maman, and man baring the uniq
 
 Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove your loyalty." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the guardians." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
+"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the hunters." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
 
 Kipnu stared at hae with cautious eyes. He thought of the people working the ovens outside, wondered how they had been deemed unworthy.
 
@@ -151,13 +151,13 @@ Setre paused, then adddressed them. "Kipnu proclaims to be a physician from Heik
 
 The pain in Kipnu's head was throbbing with the beating of his hearts. A test of his knowledge was the last thing he wanted to do in such a state, but he hoped that this would be the last of Shinna's games. He took a few deep breaths to calm his mind and thought of a methodical approach. _I cannot see, but I can touch and smell_. He used his fingers to feel the shapes of the vials on the table, turned them over in his hand to feel the weight and thickness of their contents one-by-one. He had hoped that he could eliminate at least one of the vials, but they all seemed to filled with liquids of various types. _I need a tool_.
 
-"Setre," he said, and with some hesitation she responded, "Y-Yes?"
+"Setre," he said, and with some hesitation she responded, "What now?"
 
 "Can you tell me what color these all are?" She hesitated, maybe to glance at Shinna, but not a word was exchanged that Kipnu could hear. She carefully took the vials into one hand and positioned him closer to her with her other.
 
 "Red," she said, placing one down into his hand. Kipnu uncorked it and wafted its contents toward himself. _Salty and tannic. Of the ocean._ He covered and placed it before him, remembering the reddish algae he used as an anesthetic. A dose this size would kill him, he was certain.
 
-Setre hesitated before giving him the next one. "Clear," she said as she gently set the next one down. Kipnu could detect a tremor in her voice and in her hand, as if merely holding the vial scared her. He uncorked it and wafted as he had before, and winced at a distinct smell of char. He lifted the vial and poured a small drop of the liquid onto the table which exploded upon impact and the crowd around him jumped in fear. Carefully, he covered the vial up again and placed it on the table near his left hand in case he had a use for it later. The quiet of the crowd was palpable, as if they'd found some interest in the mundane prodding and testing of his science.
+Setre hesitated before giving him the next one. "Clear," she said as she gently set the next one down. Kipnu could detect an unease in her voice and in her hand, as if merely holding the vial was dangerous. He uncorked it and wafted as he had before, and winced at a distinct smell of char. He lifted the vial and poured a small drop of the liquid onto the table which exploded upon impact and the crowd around him jumped in fear. Carefully, he covered the vial up again and placed it on the table near his left hand in case he had a use for it later. The quiet of the crowd was palpable, as if they'd found some interest in the mundane prodding and testing of his science.
 
 "Black," said Setre, placing the final vial in his hands. There was no tremor now but a deliberate tone in her voice tipped him off, as if she held this vial in high regard. "Black," replied Kipnu as he uncorked the vial. He was certain to be careful with this one, moving slowly and keeping a firm grip. He let the smell into his nose and for a brief moment, he could see at the corner of his eye. The glow of the fire was unmistakeable in that darkness. _A neutralizer for kanosin? No... I would have heard about it._
 
@@ -165,7 +165,7 @@ Setre hesitated before giving him the next one. "Clear," she said as she gently 
 
 He thought about hae words, _eternal happiness under Ulu_. What did thi mean? He took a deep breath of the air above the black liquid to see if his vision came back again. A blob of orange emerged from the darkness, and a strange twinkle of blue near Shinna's waist. _What is that?_
 
-"What will it be?" thi asked. Kipnu walked toward hae slowly with the vial of black liquid in his hands and poured a drop out in front of hae. The crowd erupted into a frenzy of shouting and commotion as Setre pushed them away. He capped the vial of neutralizer and then took one more step toward her, taking hae hand and the vial of kanosin that lie within it. Shinna leaned into him and laughed gently. "You are the real deal, Kipnu um Heiko. You've earned that." Thi took both vials from his hand, placed one of them in a syringe and moved the needle to his arm. A warm liquid filled his blood, carried a tingling sensation that washed over him as the pain in his head subsided and his vision began to return. Thi removed the needle, and swapped out the empty vial for the vial of kanosin. Kipnu backed away, not wanting to endure the grip of the blue again but Setre stopped him abruptly and held his body stationary.
+"What will it be?" thi asked. Kipnu walked toward hae slowly with the vial of black liquid in his hands and poured a drop out in front of hae. The crowd erupted into a frenzy of shouting and commotion as Setre pushed them away. He capped the vial of neutralizer and then took one more step toward her, taking hae hand and the vial of kanosin that lie within it. Shinna leaned into him and laughed gently. "You are the genuine article, Kipnu um Heiko. You've earned that." Thi took both vials from his hand, placed one of them in a syringe and moved the needle to his arm. A warm liquid filled his blood, carried a tingling sensation that washed over him as the pain in his head subsided and his vision began to return. Thi removed the needle, and swapped out the empty vial for the vial of kanosin. Kipnu backed away, not wanting to endure the grip of the blue again but Setre stopped him abruptly and held his body stationary.
 
 "It's not what you think," she said. He looked at the sincerity in her expression and realized how different she looked now, how gentle her features when touched by the light of the fire. "You done staring?" she said. He caught himself and moved back toward Shinna to accept whatever it was they had planned.
 
