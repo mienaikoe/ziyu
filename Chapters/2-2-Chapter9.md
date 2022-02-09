@@ -65,9 +65,17 @@ The room was a sea of skin and light, each woman, maman, and man baring the uniq
 
 Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove your loyalty." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the hunters." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," she paused to look over him again, "You will do the same."
+"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the hunters." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," thi paused to look over him again, "You will do the same."
 
 Kipnu stared at hae with cautious eyes. He thought of the people working the ovens outside, wondered how they had been deemed unworthy.
+
+Shinna's eyes moved toward his pendant. "Oh, you're a bound man are you? How charmingly quaint."
+
+"Someone like you wouldn't understand," he growled, but Setre held him back while Shinna laughed.
+
+"A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. It's nothing more than a couple scribbles on your family pendants; a gamble that you'll always be content with each other. I could never understand why people throw their lives away like that."
+
+He pulled against Setre's grasp again but her arms and hands held him firm. Never in his life had he felt such strength.
 
 "You seem a bit on-edge," said Shinna. "Come. Share the spirit with us." Thi turned toward the table, moving hae hands methodically and turned back with an ornately designed syringe in hae hands, blue through the glass. Thi placed hae fingers into its clever niches and placed hae other hand on his arm, gently at first but he flinched at the touch and started to back away. "Oh you like a chase," thi said. Setre stopped Kipnu in his path and held tightly to his arms while Shinna walked closer. In one fluid motion, thi climbed onto him, locking hae legs around him and pressing hae body against his. "Don't fight," whispered Shinna. "You are one of us now."
 

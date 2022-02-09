@@ -72,7 +72,9 @@ Jathi set himself at the phone desk and set a note flat upon the table in front 
 
 Jathi began. "Shaki Conduit, This is Heiko Conduit."
 
-A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick and then repeated.
+A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick[^2] and then repeated.
+
+[^2]: A tick is a unit of time roughly equivalent to 15 Earth-seconds. One day on Palinan is 20736 ticks.
 
 "Shaki Conduit, This is-"
 
