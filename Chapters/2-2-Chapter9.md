@@ -87,9 +87,9 @@ Thi moved the syringe to his neck and punctured an artery, gently pouring its co
 
 His head rushed with countless thoughts and feelings that came and went as if they would slip away if he stopped to hold any of them for more than a moment. Setre laid him down, removed his clothes with ease, and laid her bare skin against his as Shinna took him inside hae warm body. He felt sparks in his muted nerves where their fingertips traveled across his skin, and Shinna's breaths still fluttering across his ear.
 
-"Never forget..." thi whispered to him. "I own you."
+"We belong to you," thi whispered to him. "And you belong to us."
 
-He watched his arms as they reached out to caress the blue patterns of Setre's body in a tender embrace. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them to the metronomic beat of the drum, lost in some euphoric world of hae own.
+He watched his arms as they reached out to caress the blue patterns of Setre's body in a tender embrace. "I am yours," he heard himself say. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them to the metronomic beat of the drum, lost in some euphoric world of hae own.
 
 As for him, the kanosin had begun to close in the thoughts that lived inside his mind, cornering them into that place behind the eyes where only perception lives. He expected the bitter taste of shame to pervade him as he watched his body break his oath to Liffa and Melna. But he had no more command upon his mind to have such conviction, just as his muscles no longer had a will to fight and his eyes had no more energy to inform him.
 

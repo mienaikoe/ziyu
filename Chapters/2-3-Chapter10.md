@@ -41,7 +41,7 @@ He hesitated, but he knew he should say something. "I'm armed," he bluffed, walk
 
 But thi looked back at him as he stared back with eyes colder than the wind. "Who are you?" he asked. "Is this another of Shinna's tests?"
 
-The maman adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or enslave you with kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I'm not like the others. I have a place of refuge here. Safety from the hunters and the cold."
+The maman adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or enslave you with kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I live far away from the others for a reason. I have a place of refuge here. Safety from the hunters and the cold."
 
 He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd learned to measure everyone on Ulukoma with an eye of distrust. "How many are here?" he asked.
 
@@ -91,45 +91,57 @@ Casra gazed at him, as if transfixed by his words or perhaps his eyes. "Oh, I'm 
 
 "Would you humor me?" he asked. "You can learn a lot about someone knowing their guiding forces." He glanced at Linyu who was staring back at him with keen attention. There was a sort of gravity he had with hae, as if every word he said carried a story within it.
 
-Casra sighed and paused to think, and then thi began. "Ulukoma used to be a place where that was normal. The evening used to be a time of storytelling, singing, confessing of love or desire or sexuality. Anyone could stand up and say or do anything they wanted. We explored the depths of our minds and bodies together, no matter how difficult or shameful. It was a place and time where people weaved their lives together and apart and together again, and we all grew closer because of it."
+Casra sighed and paused to think, and then thi began. "Ulukoma used to be a place where trust was normal. The evening was a time of storytelling, singing, confessing of love or desire. Anyone could stand up and say or do anything they wanted. We explored the depths of our minds and bodies together, no matter how difficult or shameful. It was a time of discovery, weaving our lives together and apart and together again, growing closer and wiser with each new breath of understanding."
 
-"I remember being so afraid on my first night here. We were thrown off the ship, and I just remember being so confused as I struggled blindly in the water to find my way to safety. Then I heard a voice. 'This way,' she said, and I followed her without a question. She helped me and the others onto the shore where the rest of Ulukoma had gathered to meet us, and she told me her name was Setre."
+Thi smiled and started again, "I remember being so afraid on my first night here. We were thrown off the ship just as you were, and I just remember being so confused as I struggled blindly in the water to find my way to safety. Then I heard a voice. 'This way,' she said, and I followed her without a question. She helped me and the others onto the shore where the rest of Ulukoma had gathered to meet us, and she told me her name was Setre."
 
-"Hold on," said Kipnu. "Setre? The same Setre that nearly killed me in the forest two days ago? She's the one who saved your life?"
+"Hold on," said Kipnu. "Setre? The Setre that nearly killed me in the forest two days ago? She's the one who saved your life?"
 
-Casra nodded. "I know this is hard to believe, but she is careful with her words. Setre was my rock through everything. There were many days when I felt the feverish hand of death upon me while I was going through withdrawal, but she watched over me, gave me the comfort I needed in the painful times and the tough love I needed through the cravings. At some point we fell in love, though I don't think I could tell you when. It's a lot like sobriety: you wake up one day and realize that you're already in it."
+Casra nodded. "I know this is hard to believe, but Setre was my rock through everything. There were many days when I felt the feverish hand of death upon me while I was going through withdrawal, but she watched over me, gave me the comfort I needed in the painful times and the tough love I needed through the cravings. At some point we fell in love, though I don't think I could tell you when. It's a lot like an addiction: You wake up one day and realize that you're already in it."
 
 "Love?" said Kipnu. "Are you certain we're talking about the same person?"
 
 "Setre is a complicated person. You don't know her like I do."
 
-"A doctor knows things," he said. "Rarely do I make a misjudge a person's character."
+"Few people are as complicated as they say, I've come to find," he said. "I rarely misjudge a person's character."
 
 Casra scoffed. "Are all physicians in Heiko so arrogant?"
 
 "The Setre you used to know is nothing like the Setre I saw back there." He pulled down the side of his trousers enough for Casra to see the bandage he'd placed on his thigh. "She sliced through my skin like it wasn't even there."
 
-Casra looked digusted at the sight but calmed haeself. "Setre plays an important role in this new empire of the dark. A role that she is very good at playing. But that's not who she wants to be."
+Casra looked digusted at the sight but calmed haeself. "Setre plays an important role under this new leadership. A role that she is very good at playing. But that isn't who she wants to be."
 
-"Try telling that to the people she's enslaved. She calls herself a hunter. And all of her 'prey' are under Shinna's thumb."
+"Ask the people she's enslaved if that matters to them. She calls herself a hunter. And her 'prey' are ordinary people that never asked for any of this. Addicts, like you used to be."
 
-"And you wouldn't be here, safe with me, if it wasn't for her," said Casra. "The commotion that covered your escape was no accident. Setre and her band of spies had to make sure you were in the right place at the right time."
+"You wouldn't be here, safe with me, if it wasn't for her," said Casra. "The commotion that covered your escape was no accident. Setre and her band of spies had to make sure you were in the right place at the right time."
 
-"Band of spies?" he asked. "You mean to say that Shinna's own right hand is fighting against hae?"
+"Spies?" he wondered aloud. "You mean to say that Shinna's own right hand is fighting against hae?"
 
-"What makes you think they are at odds with each other? There are many layers to every person, Kipnu, just as there are many layers to this island. Setre sent you to me because she knows you have an unwavering spirit and a curious mind. But all of that is wasted if you choose to remain ignorant."
+"Shinna and Setre have their own plans. Sometimes they are at odds with each other, and other times they are in agreement. But they both have the same goal."
 
-"Layers?" Kipnu shook his head in disbelief. "You think you can justify what happens here because things are complicated? Setre and Shinna both show no remorse for enslaving half of the people here. There is no complexity of character that could possibly make up for that."
+"To fulfill their own selfish desires," he said mockingly.
 
-Casra formed a wistful wrinkle on hae brow. "Nothing in Ulukoma holds a shred of justice, but it would be naïve of you to think evil of either of them."
+Casra did not look amused. "There are many layers to every person, Kipnu, just as there are many layers to this island. Setre sent you to me because she knows you have an unwavering spirit and a curious mind. But all of that is wasted if you choose to remain ignorant."
 
-"You're hanging on to the idea of who they used to be and washing it all down with 'layers' so it doesn't taste so bad. Right and wrong has to mean something or life has no meaning."
+"I am ignorant of many things, but this is not one of them. I know what I saw. Half of everyone here is a slave to the other half. There is no complicated system of layers that can justify that. Setre and Shinna have built a colony from the labor of kanosin addicts. There is nothing else that could possibly justify what they've done."
 
-"And you know the difference, do you?" thi snapped at him and hae skin turned flush with frustration. Linyu grasped hae hand and thi settled back down. "You and all the rest of us came to this island as criminals under the laws of our people. All of us are capable of both kindness and destruction."
+Casra formed a wistful wrinkle on hae brow. "Nothing in Ulukoma holds a shred of justice, but it would be naïve of you to think that either of them want Ulukoma to be this way. They are not inherently evil as people. They are the emergents of an evil system that they are trying to fight against."
 
-Kipnu paused looked back at Casra with a look of disdain. "My unwavering spirit only has one goal right now: to get off this damn island and stop my bundmaman from being sent to hae death. If you were looking for a laborer or a hunter or however you sugarcoat slavery out here, then I'm not your guy. I will be off this island as soon as I can find a boat."
+"Casra, respectfully, you're hanging on to an idea of who they used to be. I don't blame you: it's easier to remember your friends at their best."
 
-"Fine," Casra said as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were cold against the tension that had filled the room. "You want a boat, we'll find you one tomorrow."
+"You know nothing about what they mean to me!" thi snapped at him and hae skin turned flush with frustration.
+
+Kipnu rebuked hae, "Right and wrong has to mean something if our lives are to make any sense."
+
+"And you would know the difference after two days here?" thi asked pointedly. Linyu grasped Casra's hand and settled hae. "You think you're superior to everyone here – that you don't belong here. Everyone does. But we all came to this island as criminals under the laws of our people. Laws that can paint us however they want. Tell me, was it wrong for you to be punished for defending your bundmaman? Or was it right to send a dangerously violent man to a place where he posed no threat to anyone else? Does your life make any sense now that right and wrong has been decided for you?" thi paused to take a deep breath and wipe the moisture from hae cheek. "Shinna and Setre didn't choose to build things this way. They came to this conclusion by watching me fail to keep this place together. As our numbers grew, smugglers began showing up on our shores, promised things that I could never provide. Then Shinna brought antikan and used it to gain power over the addicted. I don't think that thi knew the smugglers were running everything until thi had already become the new leader of Ulukoma. But they were so entrenched by then that nothing could have stopped them."
+
+"That's ridiculous. This whole island hangs on hae every word. Thi could have all the smugglers thrown into the ocean if thi wanted."
+
+"We would all starve to death if that ever happened," said Casra, and a sobering realization came to Kipnu that he had been every bit as ignorant as Casra said he'd been.
+
+He paused looked back at Casra with a look of regret, but his heart did not soften. "I believe you," he said, "And you probably have a plan for me, but my unwavering spirit has only one goal right now: to get away from this place and stop my bundmaman from being sent to hae death. If you were looking for someone to do your bidding or whatever, then I'm not your guy. I will be off this island as soon as I can find a boat."
+
+"Fine," Casra said sharply as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were cold against the tension that had filled the room. "You want a boat, we'll find you one tomorrow."
 
 Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. Linyu sat quietly at the table, fiddling with some trinket made of wood and metal. He imagined having to raise a child on his own with only the help of that bruteish woman. Perhaps there was a side to her that he couldn't see.
 
@@ -155,7 +167,7 @@ Kipnu was surprised that thi could read him so well, but he imagined that such a
 
 "Tell me about hae," thi said. "Thi sounds like an interesting maman to say the least."
 
-"Liffa was... is... everything good in my life," he said. "To the rest of Heiko Liffa is just a farmer, but they don't see hae like I do. Liffa holds Melna and I together, but there's this cloud that hangs above hae always. Sometimes I just can't figure hae out."
+"Liffa was... is... everything good in my life," he said. "To the rest of Heiko Liffa is just a farmer, but they don't see hae like I do. Thi holds Melna and I together, and thi does it well, but there's this cloud that hangs above hae always. Sometimes I just can't figure hae out."
 
 "And your bundwoman?"
 
@@ -291,7 +303,7 @@ He fumbled for some response, then acknowledged that he had been rash to dismiss
 
 Linyu smiled.
 
-Casra's voice called out behind them. "A little breeze told me you were still here, Kipnu.You should come get some rest before you leave. You'll need whatever strength you can muster if you're really going to try to paddle back to the mainland."
+Casra's voice called out behind them. "A little breeze told me you were still here, Kipnu. You should come get some rest before you leave. You'll need whatever strength you can muster if you're really going to try to paddle back to the mainland."
 
 His usual urgency was clouded by a deep lethargy that set into his limbs and eyehaw. He wondered if the kanosin had done something to him.
 
