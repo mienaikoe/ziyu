@@ -149,7 +149,7 @@ Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. L
 
 "What about the ship I came in on?" he said. "Couldn't I sneak onboard without them knowing?"
 
-Casra looked at him with eyes of conviction. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said. "What sort of trouble did thi get caught up in that thi couldn't even be sent here?"
+Casra looked at him with eyes of conviction. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said. "What sort of trouble did thi get caught up in that you have to go chasing after hae?"
 
 He understood Casra to be quite perceptive but hadn't prepared for what he would do when the topic of Liffa would inevitably come up. "It's a long story," he said.
 
@@ -157,13 +157,17 @@ He understood Casra to be quite perceptive but hadn't prepared for what he would
 
 "There was this guy," he started, "who wanted to send hae to space."
 
-Casra laughed until thi noticed that Kipnu wasn't. "Oh. You're not joking about that, are you?"
+Casra let out a booming laugh of incredulity until thi noticed that Kipnu was still serious. "Oh," thi said. "You're not joking about that, are you?"
 
-Kipnu felt a sense of longing for Liffa and Melna, and he wondered when he would see them again. "He's the reason I was sent here. I let him know how I felt about it."
+"Not at all." He weighed whether he should mention the obscura, but thi interrupted his thoughts before he could mention it.
+
+"Why would he want to do such a thing?" thi asked.
+
+Kipnu felt a sense of longing for Liffa. "Liffa is... a talented individual, but as a maman people often dismiss hae. But apparently, being small is a benefit when being launched into space on a rail line up a mountain. This man, Fajro, chose Liffa to be the one to go, and I let him know how I felt about that."
 
 "An educated man like you doesn't get sent here for nothing," said Casra. "You throw one punch in your life, maybe two. And you mean it."
 
-Kipnu was surprised that thi could read him so well, but he imagined that such a skill was useful in a place where kanosin is worth more than a life.
+Kipnu was surprised that thi could read him so well, but he imagined that such a skill was useful in Ulukoma.
 
 "Tell me about hae," thi said. "Thi sounds like an interesting maman to say the least."
 
