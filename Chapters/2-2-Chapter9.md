@@ -63,9 +63,9 @@ The room was a sea of skin and light, each woman, maman, and man baring the uniq
 
 "Setre, you clever fiend," thi said in a salacious tone. "What a prize you've brought me today."
 
-Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to prove your loyalty." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
+Setre leaned in to whisper something in hae ear, and the maman's expression changed from desire to excitement. Thi motioned for him to follow, but Kipnu hesitated, imagining all of the things thi could be suggesting. Setre lowered her mouth to his ear and her spear to his back, and whispered to him, "Now is the time to show us who you are." And with a deep breath, he took the maman's hand and followed hae to a small table a few steps away.
 
-"Kipnu, welcome to the Senate of Ulukoma," thi said. "I am Shinna, master of ceremonies and keeper of the hunters." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," thi paused to look over him again, "You will do the same."
+"Kipnu, welcome to the Senate of Ulukoma," thi said mockingly. "I am Shinna, master of ceremonies and keeper of the hunters." Thi moved around him with an intimidating confidence, never taking hae eye off of him. "All under the shelter of the Cloth are equals. We've proven our worth and our loyalty to each other. And you," thi paused to look over him again, "You will do the same."
 
 Kipnu stared at hae with cautious eyes. He thought of the people working the ovens outside, wondered how they had been deemed unworthy.
 
@@ -151,7 +151,7 @@ The noise of activity went silent as the two approached the fire. The warmth was
 
 "You will soon know. If you are worthy of knowing."
 
-Shinna began the ceremony, "Tribes of Ulu. Two days ago, my ever-faithful hunter, Setre, found and claimed the man you see before you." Kipnu stood shivering and just wanting to get the ceremony overwith. "Setre, please tell us what makes your find so special."
+Shinna began the ceremony, "Tribes of Ulukoma! Two days ago, my ever-faithful hunter, Setre, found and claimed the man you see before you." Kipnu stood shivering and just wanting to get the ceremony overwith. "Setre, please tell us what makes your find so special."
 
 Setre paused, then adddressed them. "Kipnu proclaims to be a physician from Heiko." The crowd filled with whisperings and murmurs before she was done talking but with a single gesture, Shinna silenced them all.
 

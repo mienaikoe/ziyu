@@ -133,37 +133,45 @@ Casra formed a wistful wrinkle on hae brow. "Nothing in Ulukoma holds a shred of
 
 Kipnu rebuked hae, "Right and wrong has to mean something if our lives are to make any sense."
 
-"And you would know the difference after two days here?" thi asked pointedly. Linyu grasped Casra's hand and settled hae. "You think you're superior to everyone here – that you don't belong here. Everyone does. But we all came to this island as criminals under the laws of our people. Laws that can paint us however they want. Tell me, was it wrong for you to be punished for defending your bundmaman? Or was it right to send a dangerously violent man to a place where he posed no threat to anyone else? Does your life make any sense now that right and wrong has been decided for you?" thi paused to take a deep breath and wipe the moisture from hae cheek. "Shinna and Setre didn't choose to build things this way. They came to this conclusion by watching me fail to keep this place together. As our numbers grew, smugglers began showing up on our shores, promised things that I could never provide. Then Shinna brought antikan and used it to gain power over the addicted. I don't think that thi knew the smugglers were running everything until thi had already become the new leader of Ulukoma. But they were so entrenched by then that nothing could have stopped them."
+"And you would know the difference after two days here?" thi asked pointedly. Linyu grasped Casra's hand and settled hae. "You think you're superior to everyone here – that you don't belong here. Everyone does. But we all came to this island as criminals under the laws of our people. Laws that can paint us however they want. Tell me, was it wrong for you to be punished for defending your bundmaman? Or was it right to send a dangerously violent man to a place where he posed no threat to anyone else? Does your life make any sense now that right and wrong has been decided for you?" thi paused to take a deep breath and wipe the moisture from hae cheek. "Shinna and Setre didn't choose to build things this way. They came to this conclusion by watching me fail to keep this place together. As our numbers grew, smugglers began showing up on our shores, promised things that I could never provide. Then Shinna brought antikan and used it to gain power over the addicted. I don't think thi knew that the smugglers were running everything until they openly threw their support behind hae and the rest of Ulukoma followed. They were so entrenched by then that nothing could have stopped them."
 
 "That's ridiculous. This whole island hangs on hae every word. Thi could have all the smugglers thrown into the ocean if thi wanted."
 
 "We would all starve to death if that ever happened," said Casra, and a sobering realization came to Kipnu that he had been every bit as ignorant as Casra said he'd been.
 
-He paused looked back at Casra with a look of regret, but his heart did not soften. "I believe you," he said, "And you probably have a plan for me, but my unwavering spirit has only one goal right now: to get away from this place and stop my bundmaman from being sent to hae death. If you were looking for someone to do your bidding or whatever, then I'm not your guy. I will be off this island as soon as I can find a boat."
+He paused looked back at Casra with a look of regret. "I believe you," he said. "You wouldn't be hiding out here in the middle of the forest if you could live amongst the others."
 
-"Fine," Casra said sharply as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were cold against the tension that had filled the room. "You want a boat, we'll find you one tomorrow."
+"The powerful people of Ulukoma would highly prefer if I never came back," thi said.
 
-Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. Linyu sat quietly at the table, fiddling with some trinket made of wood and metal. He imagined having to raise a child on his own with only the help of that bruteish woman. Perhaps there was a side to her that he couldn't see.
+"And if Setre sent me to you," he said, "then I'm sure you have a plan that involves my 'unwavering spirit' in some capacity."
 
-"You will freeze to death if you take a canoe," Casra continued with a wet bowl in hae hands. "Long before you make it to shore. You could try to ride with a smuggler but they're likely to sell you to the highest bidder."
+"Yes," thi said. "Setre and her spies risked their lives to pluck you from the fire in the hopes that you would return the favor."
+
+He hesitated, letting the weight of what she said pass. "I have only one goal in my life right now: to stop my bundmaman from being sent to hae death. Nothing else matters in this moment. If you were looking for someone to do your bidding, then I'm sorry but I have to decline. I will be off this island as soon as I can find a boat."
+
+Casra stared at him coldly, as if to look at a puzzle or a machine. "A boat...yes," said Casra sharply as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were cold against the tension that had filled the room. "You want a boat, we'll find you one tomorrow."
+
+Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. Linyu sat quietly at the table, fiddling with some trinket made of wood and metal. He imagined having to raise a child in this cold wilderness, how lonely it must have been.
+
+"You will freeze to death kong before you make it to shore if you take a canoe," Casra explained with a wet bowl in hae hands. "You could try to ride with a smuggler but they're likely to sell you back to Shinna."
 
 "What about the ship I came in on?" he said. "Couldn't I sneak onboard without them knowing?"
 
-Casra looked at him with eyes of conviction. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said. "What sort of trouble did thi get caught up in that you have to go chasing after hae?"
+Casra looked at him with eyes of conviction. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said.
 
-He understood Casra to be quite perceptive but hadn't prepared for what he would do when the topic of Liffa would inevitably come up. "It's a long story," he said.
+"It's complicated," he said.
 
-"Kipnu, we have plenty of time," said Casra.
+"Ah. So the reductive man does understand nuance. But only for the people he knows." Casra smirked at him coyly. "Well, I've spoken enough and we have plenty of time."
 
 "There was this guy," he started, "who wanted to send hae to space."
 
-Casra let out a booming laugh of incredulity until thi noticed that Kipnu was still serious. "Oh," thi said. "You're not joking about that, are you?"
+Casra let out a laugh of incredulity but stopped when thi saw that Kipnu remained serious. "Oh," thi said. "You're not joking about that, are you?"
 
-"Not at all." He weighed whether he should mention the obscura, but thi interrupted his thoughts before he could mention it.
+"Not at all."
 
 "Why would he want to do such a thing?" thi asked.
 
-Kipnu felt a sense of longing for Liffa. "Liffa is... a talented individual, but as a maman people often dismiss hae. But apparently, being small is a benefit when being launched into space on a rail line up a mountain. This man, Fajro, chose Liffa to be the one to go, and I let him know how I felt about that."
+He weighed whether he should mention the obscura, but the thought of Liffa couldn't leave his mind. "Liffa is... talented, and brilliant. But being a maman, people often dismiss hae. This time, thi had the opposite problem. Apparently, being small is a benefit when being launched into space on a rail line up a mountain. This man, Fajro, chose Liffa to be the one to go, and I let him know how I felt about that."
 
 "An educated man like you doesn't get sent here for nothing," said Casra. "You throw one punch in your life, maybe two. And you mean it."
 
