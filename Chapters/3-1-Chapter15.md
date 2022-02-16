@@ -226,7 +226,7 @@ Linyu whispered, "Liffa".
 
 Thi slowly slid back the door and reached out a hand in search of hers. Hae hand walked up her arm gently tapping to find its way while thi looked intently at her face. It landed on hae pendant and probed its time-worn shapes and outlines with the fingers of someone who was strangely adept at observing by touch. Thi opened the door wider and moved closer to Melna, touching hae knees to hers. With the other hand, thi reached into hae shirt and pulled out Kipnu's binding pendant. A golden yellow reflection stared back at Melna through the mirror polish she grew to recognize. It was scratched, but only lightly.
 
-"Mel...na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many imperfections she'd grown accustomed to, and for the first time, she sensed that her bunds would not be coming back.
+"Mel...na," Linyu whispered under hae tear-filled breath. Her hand clutched the pendant and felt the many imperfections she'd grown accustomed to, and for the first time, she sensed that Kipnu and Liffa would not be coming back.
 
 Linyu wanted to say so many things to her; how Kipnu had saved hae life, how he escaped being enslaved and then led a near overnight revolution against the slavers of Ulukoma. But the most thi could muster was, "Kipnu. Love. You."
 

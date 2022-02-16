@@ -14,7 +14,7 @@ He was looking up toward the senate, unmoved by the cacophony of people. "The be
 
 "Winning?" I asked.
 
-"Everyone has their own personal game that makes their life worth living. Like you keeping your bunds together."
+"Everyone has their own personal game that makes their life worth living. Like you keeping your bound family together."
 
 "That's my life. It's not a game," I said.
 

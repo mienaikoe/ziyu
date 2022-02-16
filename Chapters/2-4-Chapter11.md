@@ -1,20 +1,20 @@
 ## Chapter 11
 
-A rustling sound awoke him from his slumber.
+A rustling sound roused Kipnu from a deep sleep.
 
-"Someone's here," Casra whispered. From underneath their bed where Linyu slept, thi pulled out two steel-tipped wooden poles and handed one to Kipnu on hae way toward the ladder.
+"Someone's here," Casra whispered. Thi reached behind their bed and pulled out two steel-tipped wooden poles and handed one to Kipnu.
 
-"I'll go first," thi said.
+"I'll go first," thi said, approaching the ladder.
 
-Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and cowering in the corner under a blanket.
+Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket.
 
-"Stay here," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
+"Stay here. Guard Linyu," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
 
-The figure in the dark had an unmistakable spear - Setre was here.
+"The wind speaks!", called the stranger, and Casra came out to meet her in the forest. They embraced each other, and Kipnu saw that it was Setre who had come to visit. Casra wasn't lying to him after all.
 
-"Casra. You've come back?", she asked in a bewildered tone. "Are you holding Kipnu here? Don't lie to me."
+"Did you find him?" asked Setre in hushed tones.
 
-"So what if I am?"
+""
 
 "I captured him. He is property of our tribe. You know this."
 

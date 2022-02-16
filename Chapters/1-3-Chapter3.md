@@ -30,11 +30,13 @@ I smiled, satisfied to have an unexpected moment of adventure with an old friend
 
 ---
 
-The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. All above us, the deep blue of the sky rose from Ulu like a giant wave from the ocean, and faded into the golden splendor of Ara. Trails of wispy clouds hung in the middle like the puffy fingers of a dark hand reaching for the crown of twilight.
+The winds were slowly picking up while we rode down the long, packed-clay road from my home toward the center of town. All above us, the deep blue of the sky rose from Ulu[^1] like a giant wave from the ocean, and faded into the golden splendor of Ara. Trails of wispy clouds hung in the middle like the puffy fingers of a dark hand reaching for the crown of twilight.
 
-I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse[^1], which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little holes in the blanket of the sky.
+[^1]: Ulu is the dark side of the sky, opposed to Ara, the light side and the name for the red dwarf star at the center of their star system.
 
-[^1]: A day on Palinan takes approximately 3½ earth days.
+I wondered what was happening up there. As a child, I learned that observers long ago discovered that Palinan was orbiting Ara in a big ellipse[^2], which gives us the day and the night times, the high tides and the low. And observer Thimlu told me that he had seen red stars very far away, in those patches of sky where the dark was steady and the clouds were few. How far? He couldn't be certain. But he knew they were much further than even a train could reach in our lifetimes. I wondered if those stars could die like we did, or if they had always been there like little holes in the blanket of the sky.
+
+[^2]: A day on Palinan takes approximately 3½ earth days.
 
 At the end of the path, we turned a corner and crossed the train line just after the station, onto a side street into town. It was rather peaceful, as the first meal time had just passed into rest time. We reached the office of the conduit and quickly hopped off of Laen. I gave him a thankful pat on the neck and he replied with a small cooing of acknowledgement.
 
@@ -72,9 +74,9 @@ Jathi set himself at the phone desk and set a note flat upon the table in front 
 
 Jathi began. "Shaki Conduit, This is Heiko Conduit."
 
-A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick[^2] and then repeated.
+A couple other callers delivered a message over the line, but the Shaki conduit did not respond. He waited a tick[^3] and then repeated.
 
-[^2]: A tick is a unit of time roughly equivalent to 15 Earth-seconds. One day on Palinan is 20736 ticks.
+[^3]: A tick is a unit of time roughly equivalent to 15 Earth-seconds. One day on Palinan is 20736 ticks.
 
 "Shaki Conduit, This is-"
 
@@ -118,7 +120,7 @@ The line opened and an unenthused woman spoke, "Conduit of the Heiko Senate, Ass
 
 "Surely you can make an exception for an urgent matter."
 
-"And I would surely be imprisoned for it."
+"And I would get a one-way ticket to the prison island for it."
 
 He huffed in frustration burying his face in his hand. "Pomri," he replied with pessimism. "Even if there is a law against interrupting the assembly, a magistrate would surely look the other way at sentencing."
 
@@ -150,7 +152,7 @@ Jathi shot me a glance. "What are you talking about?" he asked.
 
 "I'll interrupt the senate," I said. Thimlu chuckled, but Jathi was unamused.
 
-"You heard Pomri," he protested. "You'll be sent to Ulukoma. Who knows what happens out there in the dark."
+"I won't let you be sent to Ulukoma!" he protested. "Who knows what happens on that dark island."
 
 Thimlu smirked at me and said, "You've got guts, I'll give you that. Those Shaki magistrates are a coin toss. They get off on sending people to the dark island. On the other hand, they might be terrified of punishing the messenger for one of their less sensible laws. The public would be in an uproar."
 

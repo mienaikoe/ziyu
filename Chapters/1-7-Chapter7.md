@@ -191,9 +191,9 @@ I was aghast. How could he possibly know so much about me? There was a sense of 
 
 He chuckled and looked at the lantern light against the dusty ground. "Liffa, you don't miss a thing do you? You're right, I need you for more than just your mind. You have a very unique set of traits. You're lightweight, agile, observant, quick-learning, and strong as a full-grown saffa, thanks to your time in the fields. But most importantly, you understand how important this is – more than just an academic triviality. This is proof that something else is out there; something ripe for discovery. The future of our people lies far beyond this planet and you belong there; leading us all into that great unknown."
 
-He knealed to my height and spoke in hushed tones with a familiar vigor of a man eager to convince me. "I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^2] to Ara." The light from the window glimmered against his face, showed the fire in his eyes as he looked into mine. "I want you to go on the journey that you've been waiting for your whole life: to travel beyond our planet into that great unknown, and return to tell everyone what you saw there."
+He knealed to my height and spoke in hushed tones with a familiar vigor of a man eager to convince me. "I've seen the haw on your eyes, the tone of your skin. The blood of the Holragi is in your veins. It's been calling to you since you were born. You studied with the observers because you imagined your own _nul sa'am_[^4] to Ara." The light from the window glimmered against his face, showed the fire in his eyes as he looked into mine. "I want you to go on the journey that you've been waiting for your whole life: to travel beyond our planet into that great unknown, and return to tell everyone what you saw there."
 
-[^2]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
+[^4]: The tribes of Holragi constantly migrate across the vast lands of Holrag in a cycle, sharing permanent structures amongst them. Nul sa'am is a Holragi term for a lone journey outside of one's tribe.
 
 A chill flowed through my veins as he told my dreams back to me as if he'd known me my whole life. I had wanted nothing more than to explore the sky since the day I was born. But this was not how I imagined it. My eyes narrowed in suspicion. "You're right that this is important, but I will not be reckless with my own life," I said. "What if the obscura is hostile or armed? It could be a thing we can't even fathom yet."
 
@@ -323,9 +323,9 @@ I imagined the end: parents, children, the wicked and the righteous, every loved
 
 "Do you love anyone, Fajro?" I asked him. "The way that man loves me?"
 
-"In Holrag, we love all of our tribe," he said. "It is _k'aal_[^3] to have favor." He paused for a moment then asked me, "What are you on about anyway?"
+"In Holrag, we love all of our tribe," he said. "It is _k'aal_[^5] to have favor." He paused for a moment then asked me, "What are you on about anyway?"
 
-[^3]: Aal is the shared spirit of all members of one's tribe, or more recently, the shared spirit of all the Holragi people. K'aal is a state of sin against Aal.
+[^5]: Aal is the shared spirit of all members of one's tribe, or more recently, the shared spirit of all the Holragi people. K'aal is a state of sin against Aal.
 
 I thought for a moment about Mel and Kip, about the words I could use to explain what I felt. But all the little nuances of emotion were so complex in how they manifested that I couldn't begin to put them into words. "Love between three people is hard to describe to someone who has never experienced it. If you understood what I was leaving behind, you would know how difficult it is to say yes to what you're asking of me."
 
