@@ -15,9 +15,7 @@ Setre or Ginnu sways Linyu to do something, because she doesn't want her effort 
 
 A rustling sound roused Kipnu from a deep sleep.
 
-"Someone's here," Casra whispered. Thi reached behind their bed and pulled out two steel-tipped wooden poles and handed one to Kipnu.
-
-"I'll go first," thi said, approaching the ladder.
+"Someone's here," Casra whispered. Thi reached behind their bed and pulled out two steel-tipped wooden poles and handed one to Kipnu. "I'll go first," thi said, approaching the ladder.
 
 Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket.
 
