@@ -45,7 +45,7 @@ He observed: hae spartan coat and trousers, a well-used lantern, and no sign of 
 
 "It's just my kaln and I," thi said.
 
-"You brought a child to this place?" he asked. Before Casra could reply, a patch of ground beneath the fallen tree began to open up, and a kaln climbed out. Kipnu recognized hae face in the lantern light. "You're that kaln from the ship!" he exclaimed. "Linyu, was it? The woman, Setre. She knew your name."
+"You brought a child to this place?" he asked. Before Casra could reply, a patch of ground beneath the fallen tree began to open up, and a kaln climbed out. Kipnu recognized hae face in the lantern light. "You're that kaln from the ship!" he exclaimed. "The woman, Setre. She called you Linyu."
 
 Linyu walked toward Casra and grinned at him as thi stared at his chest. "You're blue now," thi said with a clever smirk. "Linyu!", Casra admonished hae but Kipnu chuckled along with Linyu. His eyes met again with Casra's and a sense of warmth came over him. He was in good company here.
 
@@ -53,7 +53,7 @@ The entrance Linyu had popped out of was a wooden door with just enough space to
 
 "Lin," thi said. "grab a few paocha leaves from the cupboard."
 
-The kaln rose to fulfill hae mother's request and chimed at Kipnu, "I didn't mean to call you blue. I think blue looks good on you."
+The kaln rose to fulfill hae mother's request and chimed at Kipnu, "I didn't mean to call you blue. I think blue is pretty." Hae eyes struggled to meet his, as if thi was thinking about something else. He noticed something on hae face in the light: a wooden circle covering hae left ear, smoothed and oiled by the hands of a tinker. He noted its peculiarity, but felt that it was too early to ask.
 
 Casra took a satchel from the kaln and pulled out two small dried leaves with hae finger. "Here, rub some of this on your tongue and then wash it down with some water. It will taste bitter for a bit, but it keeps your body warm and the cravings at bay."
 
@@ -141,7 +141,11 @@ Kipnu rebuked hae, "Right and wrong has to mean something if our lives are to ma
 
 "Our people are still here. Setre is still here. Every person that lived here had a bond to everyone else. Raising children, falling in love, building the village – everything was done with an unbounded trust in each other. We accepted our divisions, our arguments; by working through them we accomplished great things. I cannot simply go back to being a Rudjani doctor as if this place isn't a part of me now. I cannot abandon my people. This is where I belong."
 
-A sobering realization came to Kipnu that he had been every bit as ignorant as Casra said he'd been. "I believe you," he said. "But then why are you hiding out here in the middle of the forest?"
+"And your kaln? Is this a good place for hae?"
+
+"I've tried to convince Linyu to leave. Both with me and without me. Thi saw Shaki once. Setre took hae on a canoe back when the water wasn't sick with smugglers. But every day thi just laid in the bed of their inn room with the covers off and the listener in hae ear. It got to a point where thi was refusing food and losing hae sense of reality. Setre had to bring hae back."
+
+A sobering realization came to Kipnu that just as Casra said, there were many things he'd yet to uncover about this place. "So this place is home to the both of you," he said. "But why did you choose to hide out here in the middle of the forest?"
 
 "The smugglers would highly prefer if I never came back," thi said.
 
@@ -307,9 +311,9 @@ He stuttered, "Y-Yes, but-"
 
 "It's a lot to talk about right now. I need to do some thinking of my own before I can tell it. I promise that you'll learn all about Liffa some other time. Just keep your ear to that listener and listen for hae name. Promise?"
 
-Linyu looked back at him, unsatisfied. "Why don't you listen for hae yourself?" Hae arm moved quickly in the darkness and landed on Kipnu's ear. He instinctively moved away but stopped himself when he realized Linyu had a listener in hae hand. With a few clumsy movements of hae hands, Linyu finally attached the device to his ear. "Got it. Now you don't need me to hear them anymore."
+Linyu looked back at him, unsatisfied. "Why don't you listen for hae yourself?" Hae arm moved quickly in the darkness and landed on Kipnu's ear. He instinctively moved away but stopped himself when he realized Linyu had a listener in hae hand. With a few clumsy movements of hae hands, Linyu finally attached the device to his ear. "Got it," thi said. "Now you don't need to ask me about them anymore."
 
-Kipnu listened intently to the sound in the listener, hoping to hear hae voice, but he heard only static. He couldn't keep this gift, as much as he wanted to. "Linyu... I really want to keept this, but I have to leave soon. You worked really hard to make this. You should give it to your nather."
+Kipnu listened intently to the sound in the listener, hoping to hear hae voice, but he heard only static. "Linyu... I really appreciate this gift. I would love to keep it, but I feel like this would be better with someone you know. Your nather maybe?"
 
 "She already has one," said Linyu. "That's how she found you."
 

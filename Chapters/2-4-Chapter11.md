@@ -1,3 +1,16 @@
+<!--
+Casra, Setre, Linyu, and Kipnu
+
+Setre or Ginnu brings food
+
+The topic of Ramne comes up
+
+Setre or Ginnu sways Linyu to do something, because she doesn't want her effort wasted.
+
+
+
+-->
+
 ## Chapter 11
 
 A rustling sound roused Kipnu from a deep sleep.
@@ -7,6 +20,8 @@ A rustling sound roused Kipnu from a deep sleep.
 "I'll go first," thi said, approaching the ladder.
 
 Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket.
+
+<!-- left off -->
 
 "Stay here. Guard Linyu," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
 
