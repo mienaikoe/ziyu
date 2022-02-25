@@ -167,7 +167,7 @@ Casra looked at him with eyes of conviction. "You either love your bundmaman ver
 
 "It's complicated," he said.
 
-"Ah. So the reductive man does understand nuance. But only for the people he knows." Casra smirked at him coyly. "Well, I've spoken enough and we have plenty of time."
+"Ah. So the reductive man does understand nuance. But only for his own family." Casra smirked at him coyly. "Well, I've spoken enough and we have plenty of time."
 
 "There was this guy," he started, "who wanted to send hae to space."
 
@@ -205,13 +205,13 @@ Casra gave him a puzzled look. "Why is this the first word you choose to describ
 
 "And Melna?"
 
-He started mincing his words. "There are bigger things at stake for her."
+He started to mince his words into vague trifles. "There are bigger things at stake for her."
 
 "Do you trust them to go on without you?"
 
 "Go on," he said, agitated. "You want to say something, say it."
 
-"The people who come here leave behind lives full of relationships. Some of them invent new worries to keep themselves attached to the people they left behind. They inevitably die trying to leave this place, never knowing that they'd been so easily replaced by someone else. The thoughts they were building were self-destructive. They placed their faith in the lives they knew, rather than the lives they were living. By deciding not to come here, Melna has decided to continue her own life on its own trajectory – and all the better that she doesn't suffer for it. So what I'm asking is this." Thi leaned forward to look closely into his eyes. "Do you trust your bound family to do what's best for themselves, even if it means leaving you behind?"
+"The people who come here leave behind lives full of relationships. Some of them invent new worries to keep themselves attached to the people they left behind. Some die trying to leave this place, never knowing that nothing was left of the life they were chasing. These thoughts are self-destructive. The man you knew will die here, but someone new will take his place. Melna will decide to continue her own life on a trajectory that doesn't include you – that can't include you. So what I'm asking is this." Thi leaned forward to look closely into his eyes. "Do you trust your bound family to do what's best for themselves, even if it means leaving you behind?"
 
 He frowned at hae, exhaled a short impassioned breath. "When you're bonded," he said. "You always do what's best for your family even if it means betting your life on it."
 

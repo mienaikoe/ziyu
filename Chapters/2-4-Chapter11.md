@@ -1,14 +1,15 @@
 <!--
 Casra, Setre, Linyu, and Kipnu
 
-Setre or Ginnu brings food
-
-The topic of Ramne comes up
-
-Setre or Ginnu sways Linyu to do something, because she doesn't want her effort wasted.
-
-
-
+Ginnu seeks asylum, says thi is being hunted by Setre and hunters.
+  - Kipnu is like "I told you so"
+  - They flee to a dinghy at the southern shore to hide in the ice
+    - the ice is thicker than before
+  - Setre catches up to them without the hunters
+    - Things are different at the yurt: obscura news going around. People want to go back.
+    - Casra distrusts Kipnu about obscura
+  - they resolve to go to the beach to make sure people get back to the mainland. Including Kipnu.
+    - promise to take Linyu
 -->
 
 ## Chapter 11
@@ -17,17 +18,13 @@ A rustling sound roused Kipnu from a deep sleep.
 
 "Someone's here," Casra whispered. Thi reached behind their bed and pulled out two steel-tipped wooden poles and handed one to Kipnu. "I'll go first," thi said, approaching the ladder.
 
-Kipnu watched as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket.
+Kipnu looked on as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket. "Stay here. Guard Linyu," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
+
+"The wind speaks!", called the stranger with a frantic voice, and Casra came out to meet hae in the forest.
+
+"Did you find him?" asked the strange maman. The voice was familiar to him, but he couldn't remember who it was.
 
 <!-- left off -->
-
-"Stay here. Guard Linyu," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
-
-"The wind speaks!", called the stranger, and Casra came out to meet her in the forest. They embraced each other, and Kipnu saw that it was Setre who had come to visit. Casra wasn't lying to him after all.
-
-"Did you find him?" asked Setre in hushed tones.
-
-""
 
 "I captured him. He is property of our tribe. You know this."
 
