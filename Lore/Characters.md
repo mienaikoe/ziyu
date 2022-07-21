@@ -48,7 +48,10 @@ to gain power among the downtrodden and troublemakers. She found Casra and decid
 
 Lin's father and drug dealer
 
-### Gin(nu)[Mamale?/Female?]
+### Gin(nu) / An(nu)[Mamale]
+
+nu = name
+Annu = Couldn't remember name. Knew it ended with "nu", was in a lot of pain so could only say "-n -n -nnu". And Pomri/Linyu heard it as "Annu".
 
 Ramne's Girlfriend who is caught up in a web of chaos and kanosin. She's on a sobriety arc.
 

@@ -6,45 +6,95 @@ Ginnu seeks asylum, says thi is being hunted by Setre and hunters.
   - They flee to a dinghy at the southern shore to hide in the ice
     - the ice is thicker than before
   - Setre catches up to them without the hunters
-    - Things are different at the yurt: obscura news going around. People want to go back.
+
     - Casra distrusts Kipnu about obscura
   - they resolve to go to the beach to make sure people get back to the mainland. Including Kipnu.
     - promise to take Linyu
+
+- Ramne has landed to ensure safe passage of a large amount of kanosin to the mainland
+  - unclear at this point that it's for Fajro
+- Setre was hesitant about the plan
+  - Things are different at the yurt: obscura news going around. People want to go back.
+  - Setre wants Kipnu back because she needs an ally
+    - she is afraid that Ramne wants to conquer the island and wants Kipnu to sabotage these plans as a slave
+    - she wants to know what he knows about the obscura
+- Casra wants to keep Kipnu for the plan
+  - wants to steal slaves from the cloth and rehab them
+  - wants to bring beached ppl to hae hideout
+  - wants to win against Shinna again
+
+- Introduce Ramne as one of the hunters
+  - talks to Setre once Casra is away
+  - reveal "our kaln"
 -->
 
 ## Chapter 11
 
 A rustling sound roused Kipnu from a deep sleep.
 
-"Someone's here," Casra whispered. Thi reached behind their bed and pulled out two steel-tipped wooden poles and handed one to Kipnu. "I'll go first," thi said, approaching the ladder.
+"Someone's here," Casra whispered, reaching behind their bed and pulling out two steel-tipped wooden poles. Thi handed one to Kipnu, who nearly dropped it on the ground in surprise. "I'll go first," thi said, approaching the ladder.
 
-Kipnu looked on as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu, awake and hiding in the corner under a blanket. "Stay here. Guard Linyu," Casra commanded Kipnu. Thi went up through the door, and Kipnu went up the ladder to watch and listen.
+Kipnu followed as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu with a disoriented look on hae face, watching hae mother's movements from the pliant shelter of a blanket.
 
-"The wind speaks!", called the stranger with a frantic voice, and Casra came out to meet hae in the forest.
+"Watch Linyu," Casra commanded and with a swift press against the ladder thi had already set a foot on the ground and began making hae way toward the sound. Linyu and Kipnu crept calmly up the ladder and behind a tree to watch and listen.
 
-"Did you find him?" asked the strange maman. The voice was familiar to him, but he couldn't remember who it was.
+"The wind speaks!", called the stranger with a frantic and hushed voice, and Casra came out to meet hae in the forest. "Did you find him?" the figure called. The voice was that of a maman; familiar but there were no faces he could remember to match the voice.
+
+"Quiet, the forest listens," said Casra. "Come inside."
+
+But the maman stopped hae, "We don't have time. Guardians followed me into the forest. I lost them about halfway here, but they could be here any moment."
+
+"Is Setre with them?" Casra asked.
+
+"I don't know," thi responded. "But we have to go now."
+
+Casra took but a moment to think of a plan. "All of you up the tree. I will follow close behind."
+
+Kipnu looked around. "Which tree?" he asked, but Linyu quickly took his hand and led him to a steep incline in the ground. The stranger was already ahead of them, moving in flashes of a faint blue light: old flow tattoos scrawled across hae back flitting back and forth like a sword in the dark.
+
+"Follow hae," Linyu whispered.
+
+The maman moved far faster than him, using the small niches in the bark to move quickly up the narrow trunk of the inclined tree. Kipnu contemplated looking down, but knew better than to sabotage his own mind. The maman stopped at a bifurcation in the branches and donned a kelp coat that thi was carrying, obscuring the blue light on hae skin and giving Kipnu a chance to catch up. From the remnants of light under hae coat, he saw the face of a maman he'd saved from the water mere nights ago. "Ginnu!" he gasped.
+
+Thi made a curt airy sound with hae breath and placed a finger on his lips, signaling for quiet. Below them, a pair of feet were meandering quietly across the leaves with the faint sound of others moving quickly through the forest.
+
+Kipnu looked back and whispered to Linyu, "where is your mother?"
+
+"Thi..." Linyu looked back in confusion. "Thi was right behind me."
+
+The sound of the closer pair of footsteps came to a stop as the others were still far off. "Setre!" Casra's voice boomed through the trees. "I'm sure you're as happy to see me as I am to see you."
+
+"You know I'd rather be meeting on better terms," Setre replied. Her voice was impatient but had a tinge of softness to it, almost imperceptable but to one who was well-versed in the language of tone. "How is Linyu?" she asked.
+
+"Thi has grown," replied Casra. "Thi is much smarter, wiser than I was at that age."
+
+Setre's voice grew quiet. "Can I see h–?"
+
+"–With hunters at your heel?" Casra quickly stopped her with a cold tone. "No. Of course not." Hae tone shifted back to warmth as if surprised at what it had become. "But trust me, Lin can see you right now. Thi misses you."
+
+Linyu drew a sharp breath, hae face flush with emotion, but thi wouldn't dare make a sound to alert Setre. Kipnu placed a hand on hae back in consolation and to make sure thi didn't alert her to their presence.
+
+The footsteps from the forest grew into faint blue lights and Setre made haste. "Where is Kipnu?"
+
+"He is safe. Why does it matter?" asked Casra.
+
+She rose her voice in escalation. "Things have changed and I need him back."
+
+"People cannot be owned, Setre." Casra replied with a confidence in hae voice. "Shinna's claim to him are as unfounded as hae claim to you."
+
+Setre rebuked hae. "This isn't about Shinna. Something's happened. I need help."
+
+"Setre, have you found him?" a man called from afar. Setre glanced back for only a moment and Casra had disappeared back into the dark forest.
+
+"No, sir," she replied. "Just the hint of an old fire."
 
 <!-- left off -->
 
-"I captured him. He is property of our tribe. You know this."
+Casra smirked and walked closer, letting the blue light from Setre's skin illuminate hae face."You've earned your place on this island, yet here you are hunting your own family. When I left, you had the spirit of a fighter. What happened to you, Setre?"
 
-"People cannot be owned, Setre. I thought you were better than this."
+"There is no fighting against the mainland. Shinna forged is a path to survival," said Setre. "If we follow the path, we live how we want. Unlike you, runninig about in the dark."
 
-"I'm not your hunter anymore. You have no idea what happened in the all the time you were gone. Things have changed now."
-
-"When I left, you had such conviction and even more strength than I had. I taught you everything I knew. Why didn't you bring Shinna to justice?"
-
-She rose her voice, as if to say something she'd been waiting to say for a long time.
-
-"I'm not you, Casra. They trusted you with their lives, but me? I'm the one that put you on a boat and sent you away as everything fell apart. I might as well have been Shinna haeself, the way they looked at me after that."
-
-"You sent me away for Linyu's safety. They knew that."
-
-"How could they trust me? I told them you would be back, but you never showed. They had to move on. But I never gave up on you. I've been waiting for you. For so long."
-
-Her voice began to break now that hae presence had sunken in, and she released her spear to the ground, moving close to embrace Casra.
-
-"The things I had to do to survive," she said through tears, "You wouldn't think I was the same person."
+"
 
 Kipnu was moved, and waved to Linyu to come up the ladder. There was no danger for hae here. Thi emerged from the hole and Kipnu listened to them, out of their sights.
 
