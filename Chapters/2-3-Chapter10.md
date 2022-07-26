@@ -143,7 +143,7 @@ Kipnu rebuked hae, "Right and wrong has to mean something if our lives are to ma
 
 "And your kaln? Is this a good place for hae?"
 
-"Linyu," thi said as thi turned to hae and smirked, "likes to get into trouble. I told hae that guiding people to the shore was dangerous but thi still travels to Shaki with the prisoner ship every other day."
+"Linyu," thi said as thi turned to hae and smirked, "likes to get into trouble. I told hae that guiding people to the shore was dangerous but thi still goes out when it comes by."
 
 Linyu butted in, "They need help," thi said. "They don't deserve to die."
 
@@ -245,7 +245,7 @@ The cold air bit his cheeks as he emerged from the ground, but Linyu didn't seem
 
 "A listener," thi replied without looking up.
 
-Kipnu paused, waiting for some kind of explanation. "Um... what is a listener?" he asked.
+Kipnu paused, waiting for some kind of explanation. "And what is a listener?" he asked.
 
 Thi paused, thinking, and then stood up and said, "Come with me."
 
@@ -325,23 +325,23 @@ He stuttered, "Y-Yes, but-"
 
 Linyu looked back at him, unsatisfied. "Why don't you listen for hae yourself?" Hae arm moved quickly in the darkness and landed on Kipnu's ear. He instinctively moved away but stopped himself when he realized Linyu had a listener in hae hand. With a few clumsy movements of hae hands, Linyu finally attached the device to his ear. "Got it," thi said. "Now you don't need to ask me about them anymore."
 
-Kipnu listened intently to the sound in the listener, hoping to hear hae voice, but he heard only static. "Linyu... I really appreciate this gift. I would love to keep it, but I feel like this would be better with someone you know. Your nather maybe?"
+Kipnu listened intently to the sound, hoping to hear hae voice, but he heard only static. "Linyu... I really appreciate this gift. I would love to keep it, but I feel like this would be better with someone you know. Is your nather here? Maybe she would like one."
 
 "She already has one," said Linyu. "That's how she found you."
 
 Kipnu was confused for a moment. "Found me?"
 
-"Maybe you'll be gone soon," said Linyu. "But I want you to have it. Maybe someday you'll hear my voice and remember us."
+"I know you'll be leaving soon," said Linyu. "But I want you to have it. Maybe someday you'll hear my voice and remember us."
 
-He fumbled for some response, then acknowledged that he had been rash to dismiss hae offer. "Of course," he said. "Thank you for this. I'll keep listening for you."
+He fumbled for some response, then acknowledged that he had been rash to dismiss hae offer. "Of course," he said. "Thank you for this. I'll listen for your voice every day."
 
 Linyu smiled.
 
-Casra's voice called out behind them. "A little breeze told me you were still here, Kipnu. You should come get some rest before you leave. You'll need whatever strength you can muster if you're really going to try to paddle back to the mainland."
+Casra's voice called out behind them. "You're still here," thi said. "You should come get some rest before you leave. You'll need whatever strength you can muster if you're really going to try to paddle back to the mainland."
 
-His usual urgency was clouded by a deep lethargy that set into his limbs and eyehaw. He wondered if the kanosin had done something to him.
+His usual urgency was clouded by a deep lethargy that set into his limbs and eyes.
 
-Casra eyed him over and smirked with a knowing eye. "Come," thi said. "We'll find you a place to rest."
+Casra looked him over and smirked with a knowing expression. "Come," thi said. "We'll find you a place to rest."
 
 "The floor is good," he replied, simply wanting to rest.
 

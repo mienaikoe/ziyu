@@ -34,7 +34,7 @@ A rustling sound roused Kipnu from a deep sleep.
 
 "Someone's here," Casra whispered, reaching behind their bed and pulling out two steel-tipped wooden poles. Thi handed one to Kipnu, who nearly dropped it on the ground in surprise. "I'll go first," thi said, approaching the ladder.
 
-Kipnu followed as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, he could see Linyu with a disoriented look on hae face, watching hae mother's movements from the pliant shelter of a blanket.
+Kipnu shook off his disorientation and grasped the wooden pole to hoist himself to his feet, feeling dizzy from the sudden panic. He followed as Casra went up the ladder and cracked the door to peer through. From the corner of his eye, Linyu stayed near the bed, watching intently at hae mother's movements from the pliant shelter of a blanket.
 
 "Watch Linyu," Casra commanded and with a swift press against the ladder thi had already set a foot on the ground and began making hae way toward the sound. Linyu and Kipnu crept calmly up the ladder and behind a tree to watch and listen.
 
@@ -84,9 +84,25 @@ She rose her voice in escalation. "Things have changed and I need him back."
 
 Setre rebuked hae. "This isn't about Shinna. Something's happened. I need help."
 
-"Setre, have you found him?" a man called from afar. Setre glanced back for only a moment and Casra had disappeared back into the dark forest.
+A man's voice called from afar, "Setre!"
 
-"No, sir," she replied. "Just the hint of an old fire."
+Setre glanced back for only a moment to find that Casra had disappeared back into the dark forest.
+
+"You find Ginnu?" the man asked as he caught up to her. He was joined quickly by two others.
+
+"No. Just the hint of an old fire," she replied. "Thi can't be far; let's split up and keep searching."
+
+They grunted their assent and set off in different directions as Setre stayed behind, her eyes turned toward the forest as if to search for something she'd lost. Her eyes caught the coil embedded to the side of the tree, and her breath caressed the metal as she spoke into it.
+
+"Linyu," she paused on hae name as if to let her thoughts ferment into words. Kipnu and Linyu clutched their listeners to their ears as she continued. "Something's happened so you might not see your nather for a while. Get your mother to the mainland, ok? It's not safe here anymore."
+
+Linyu sighed to hold back a whimper.
+
+"I love you," she muttered under her breath.
+
+"I love you," whispered Linyu to the cool air.
+
+<!-- Ramne shows up and Ginnu looks afraid -->
 
 <!-- left off -->
 
