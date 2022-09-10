@@ -71,9 +71,9 @@ Kipnu stared at hae with cautious eyes. He thought of the people working the ove
 
 Shinna's eyes moved toward his pendant. "Oh, you're a bound man are you? How charmingly quaint."
 
-"Someone like you wouldn't understand," he growled, but Setre held him back while Shinna laughed.
+Kipnu replied with steadfast eyes and a tone of conviction. "You are asleep," he said, "if you think yourself greater than love."
 
-"A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. It's nothing more than a couple scribbles on your family pendants; a gamble that you'll always be content with each other. I could never understand why people throw their lives away like that."
+"Love?" thi laughed dismissively. "A bond is something you say once, in a time of your life you hardly remember, with a feeling you'll never have again. It's nothing more than a couple scribbles on some metal trinkets; a gamble that you'll always be content with each other. That's not love; it's a wish that eventually dies. If love is throwing your life at something dead simply because it was there first then yes, there is something greater: _Loyalty_."
 
 He pulled against Setre's grasp again but her arms and hands held him firm. Never in his life had he felt such strength.
 
@@ -85,11 +85,13 @@ Thi moved the syringe to his neck and punctured an artery, gently pouring its co
 
 "I've given you enough kanosin to cross into the life beyond death," said Shinna as thi gently caressed his body. "We shall see the kind of man you really are on the other side. Until then, just enjoy the ride."
 
-His head rushed with countless thoughts and feelings that came and went as if they would slip away if he stopped to hold any of them for more than a moment. Setre laid him down, removed his clothes with ease, and laid her bare skin against his as Shinna took him inside hae warm body. He felt sparks in his muted nerves where their fingertips traveled across his skin, and Shinna's breaths still fluttering across his ear.
+His head rushed with countless thoughts and feelings that came and went as if they would slip away if he stopped to hold any of them for more than a moment. Shinna laid him down and rested hae body against his, sending sparks through his muted nerves where hae fingertips and hae breath fluttered across his skin.
 
 "We belong to you," thi whispered to him. "And you belong to us."
 
-He watched his arms as they reached out to caress the blue patterns of Setre's body in a tender embrace. "I am yours," he heard himself say. His last bits of conscious thought raced with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him. His eyes turned to Setre, her head on his shoulder, her eyelids closed but faintly blue, and a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. And he saw Shinna's bright body undulating above them to the metronomic beat of the drum, lost in some euphoric world of hae own.
+He watched his arms as they reached out to caress the blue patterns of Setre's body. "I...am..." he felt his tongue struggling in his throat, preferring to lie down in its bed. His last bits of conscious thought were filled with memories of Melna and Liffa. How whole he'd become in their intimate moments, how completely he would surrender to them, and they to him.
+
+His eyes turned to Setre who sat beside him with another glowing blue syringe and a certain emptiness in her expression. Like a mind that had shut itself down to protect from reality, he surmised. She injected Shinna with its contents and hae eyes went back into hae head. Thi began to undulate above him to the metronomic beat of the drum, lost in some euphoric world of hae own.
 
 As for him, the kanosin had begun to close in the thoughts that lived inside his mind, cornering them into that place behind the eyes where only perception lives. He expected the bitter taste of shame to pervade him as he watched his body break his oath to Liffa and Melna. But he had no more command upon his mind to have such conviction, just as his muscles no longer had a will to fight and his eyes had no more energy to inform him.
 

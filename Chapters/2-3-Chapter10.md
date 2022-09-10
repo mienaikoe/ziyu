@@ -39,9 +39,9 @@ He hesitated, but he knew he should say something. "I'm armed," he bluffed, walk
 
 But thi looked back at him as he stared back with eyes colder than the wind. "Who are you?" he asked. "Is this another of Shinna's tests?"
 
-The maman adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or enslave you with kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I live far away from the others for a reason. I have a place of refuge here. Safety from the hunters and the cold."
+The maman adjusted hae stance, took a step toward him and bowed. "I am Casra and this is my home. We did not lead you here to test your loyalty or give you kanosin. We brought you here so that you could be yourself again, and hopefully help others to do the same. I know you have no reason to trust a stranger from what you've seen out here, but you can see yourself that I live far away from the others for a reason. I have a place of refuge here. Safety from the hunters and the cold."
 
-He observed: hae spartan coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be with Shinna but he'd learned to measure everyone on Ulukoma with an eye of distrust. "How many are here?" he asked.
+He observed: hae humble coat and trousers, a well-used lantern, and no sign of kanosin in hae skin. Casra might not be allied with Shinna but he'd learned to measure everyone on Ulukoma with an eye of distrust. "How many are here?" he asked.
 
 "It's just my kaln and I," thi said.
 
@@ -69,7 +69,7 @@ He looked suspiciously into hae eyes, trying to see beyond the veil of hospitali
 
 "I understand that very well," Casra laughed and looked past his feet to another time thi held in hae mind. "You aren't the only physician in Ulukoma."
 
-"You too? But why? I mean, I'm here for personal reasons. I'm just passing through, you know? But you... you've made a home on this island."
+"You too? But why? I mean, I'm here for personal reasons. I'm just passing through. But you... you're enduring so much to stay here."
 
 Linyu handed Kipnu a wooden bowl: a clarified soup of fish, fermented seaweed, and Heikoi grain. He'd forgotten how hungry he was and eagerly took the bowl into his own hands, thanking Linyu graciously for the gift.
 
@@ -87,7 +87,7 @@ Casra gazed at him, as if transfixed by his words or perhaps his eyes. "Oh, I'm 
 
 "The rock and the beacon?" Casra asked. Thi balked at his suggestion, "Am I to think of myself as your patient?"
 
-"Would you humor me?" he asked. "You can learn a lot about someone knowing their guiding forces." He glanced at Linyu who was staring back at him with keen attention. There was a sort of gravity he had with hae, as if every word he said carried a story within it.
+"Would you humor me?" he asked. "You can learn a lot about someone if you know what guides and supports them." He glanced at Linyu who was staring back at him with keen attention. There was a sort of gravity he had with the kaln, as if every word he said carried a story within it.
 
 Casra sighed and paused to think, and then thi began. "Ulukoma used to be a place where trust was normal. The evening was a time of storytelling, singing, confessing of love or desire. Anyone could stand up and say or do anything they wanted. We explored the depths of our minds and bodies together, no matter how difficult or shameful. It was a time of discovery, weaving our lives together and apart and together again, growing closer and wiser with each new breath of understanding."
 
@@ -113,31 +113,27 @@ Casra looked digusted at the sight but calmed haeself. "Setre plays an important
 
 "You wouldn't be here, safe with me, if it wasn't for her," said Casra. "The commotion that covered your escape was no accident. Setre had to make sure you were in the right place at the right time."
 
-"Spies?" he wondered aloud. "You mean to say that Shinna's own right hand is fighting against hae?"
+"Spies?" he wondered aloud. "You mean to say that Shinna's own friends are plotting against hae?"
 
-"Shinna and Setre have their own plans. Sometimes they are at odds with each other, and other times they are in agreement. But they both have the same goal."
+"Shinna and Setre have their own plans. Sometimes they are at odds with each other, and other times they are in agreement. But they both are trying to survive in this forgotten place."
 
-"To fulfill their own selfish desires," he said mockingly.
+"Survive?" he laughed mockingly. "They have no other goal but to fulfill their own selfish desires."
 
 Casra did not look amused. "There are many layers to every person, Kipnu, just as there are many layers to this island. Setre sent you to me because she knows you have an unwavering spirit and a curious mind. But all of that is wasted if you choose to remain ignorant."
 
-"I am ignorant of many things, but this is not one of them. I know what I saw. Half of everyone here is a slave to the other half. There is no complicated system of layers that can justify that. Setre and Shinna have built a village on the backs of kanosin addicts. There is nothing else that could possibly justify what they've done."
+"I am ignorant of many things, but this is not one of them. I know what I saw. Shinna has built a village on the backs of kanosin addicts, and Setre is the one helping hae make more of them."
 
-Casra formed a wistful wrinkle on hae brow. "Nothing in this place holds a shred of justice, but it would be naïve of you to think that either of them wished for Ulukoma to be this way. They are not evil, if such a thing exists. They are emergent from an uncaring system that they are trying to fight against without bloodshed."
+Casra formed a wistful wrinkle on hae brow. "Nothing in this place holds a shred of justice, Kipnu. But it would be naïve of you to think that either of them wished for Ulukoma to be this way."
 
-"Casra, respectfully, you're hanging on to an idea of who they used to be. I don't blame you: it's easier to remember your friends at their best."
+Kipnu rebuked hae, "Look, what I saw in that place – those workers with their vacant eyes and tired limbs. That was wrong. I could feel it. And wrong has to mean something if our lives are to make any sense."
 
-"You know nothing about us!" thi snapped at him and hae skin turned flush with frustration.
+"And you suppose that we didn't try to make it right?" thi asked pointedly. Linyu grasped Casra's hand and settled hae. "You see yourself as superior to us – that it was a mistake to be sent here. But you came to this island as a criminal under the laws of your people, just like everyone else here. Tell me, does your life make any sense now that right and wrong has been decided _for you_?" Thi paused to take a deep breath and wipe the moisture from hae cheek. "Shinna and Setre didn't choose to build things this way. They came to this conclusion by watching me fail to keep this place together. As our numbers grew, smugglers began showing up on our shores, promised food and goods from the mainland: things that I could never provide. But they wanted us to make kanosin in return, and their demands grew and grew until they started to become violent. I tried to lead a protest, but they filled us full of kanosin to keep us quiet. I dodged their many attempts to do the same to me, but there were so many people that needed my help that I couldn't pull them all out of the blue. Then one of the smugglers, Ramne, started to stay on the island, hoping to gain control over our kanosin production. And not long after, Shinna came to Ulukoma with a stolen recipe for antikan. Thi used it to pull some of us out of the addiction, but we knew that even if we gave antikan to everyone, they would quickly turn back to the smugglers for their empty promises of wealth and prosperity. So Shinna made a deal: thi told Ramne that thi could maintain production with far less effort than it took him, and after assuring him that I would be out of the picture, he agreed to stay out of hae business. What you saw back there is what thi had to build in order to keep that promise to him; to keep some of us awake while we watched over those who stayed under, hoping someday to free them all."
 
-Kipnu rebuked hae, "Right and wrong has to mean something if our lives are to make any sense."
+"That's... That's ridiculous," Kipnu said. "Shinna has this whole island under hae control. Thi could have all the smugglers thrown into the ocean if thi wanted."
 
-"And you would know the difference?" thi asked pointedly. Linyu grasped Casra's hand and settled hae. "You think you're superior to everyone here – that you don't belong here. Everyone does. But we all came to this island as criminals under the laws of our people. Laws that can paint us however they want. Tell me, was it wrong for you to be punished for defending your bundmaman? Or was it right to send a dangerously violent man to a place where he posed no threat to anyone else? Does your life make any sense now that right and wrong has been decided for you?" thi paused to take a deep breath and wipe the moisture from hae cheek. "Shinna and Setre didn't choose to build things this way. They came to this conclusion by watching me fail to keep this place together. As our numbers grew, smugglers began showing up on our shores, promised things that I could never provide. Shinna came to Ulukoma not too long afterward, armed with a recipe for antikan, and it rendered my process seem archaic, slow. My influence in Ulukoma went with it. I tried to warn hae about the smugglers' power, but Shinna didn't trust me. Eventually, they forced hae to make a decision that changed this island forever. They were so entrenched by then that nothing could have stopped them."
+"We would all starve to death if that ever happened," said Casra. "We don't have Ara to do our work for us here. There is no steam to cook with, no steel to build with, and too many people to fish for. Kanosin is all we have to trade for our lives." Hae face was flush with stress and thi looked away to calm haeself down. "And the smugglers know that."
 
-"That's ridiculous. This whole island hangs on hae every word. Thi could have all the smugglers thrown into the ocean if thi wanted."
-
-"We would all starve to death if that ever happened," said Casra. "We don't have Ara to do our work for us here. There is no steam to cook with, no steel to build with. Kanosin is all we have to trade for civility." Hae face was flush with stress and thi looked away to calm haeself down. "Everything here that isn't kelp and fish comes from the drug trade. The smugglers keep us alive and addicted so we can give them kanosin."
-
-"Then why stay here?" he asked. "Why not leave?"
+"Then why do you stay here?" he asked. "Why didn't you leave?"
 
 "Our people are still here. Setre is still here. Every person that lived here had a bond to everyone else. Raising children, falling in love, building the village – everything was done with an unbounded trust in each other. We accepted our divisions, our arguments; by working through them we accomplished great things. I cannot simply go back to the mainland as if this place isn't a part of me now. I cannot abandon my people. This is where I belong."
 
@@ -155,19 +151,19 @@ Linyu butted in, "They need help," thi said. "They don't deserve to die."
 
 "Casra, why did you choose to hide out here in the middle of the forest?"
 
-"Shinna and hae band of smugglers would highly prefer if I never came back," thi said.
+"Shinna would highly prefer if I never came back," thi said.
 
-"So they all think you're gone? Back in the mainland?"
+"So thi and Setre, they think you're gone? Back to the mainland?"
 
 "I don't think they care," thi said. "To them, I am no more a threat than the stars that hide in the veil of Ulu. But they don't know yet that the stars also talk."
 
-Kipnu nodded at the expression. He had no idea what a star was.
+Kipnu nodded at the expression. He didn't know what thi meant.
 
 "Kipnu," said Casra with an eager voice, "there's something else I must ask you. Our spies risked their lives to send you here in the hopes that you would return the favor to us. Your help could help change this place back into something good."
 
 He hesitated, letting the weight of what she said pass. "I have only one goal in my life right now: to stop my bundmaman from being sent to hae death. Nothing else matters in this moment. If you were looking for someone to do your bidding, then I'm sorry but I have to decline. I will be off this island as soon as I can find a boat."
 
-Casra stared at him coldly, as if to look at a puzzle or a machine. "A boat...yes," said Casra sharply as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were cold against the tension that had filled the room. "You want a boat, we'll find you one tomorrow."
+Casra stared at him coldly, as if to look at a puzzle or a machine. "A boat...yes," said Casra sharply as thi stood up and snatched the bowl from his hands. The trudging of hae footsteps toward the water basin were as cold as the tension that had filled the room. "You want to leave then. We'll find you a boat tomorrow."
 
 Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. Linyu sat quietly at the table, fiddling with some trinket made of wood and metal. He imagined having to raise a child in this cold wilderness, how lonely it must have been.
 
@@ -175,11 +171,11 @@ Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. L
 
 "What about the ship I came in on?" he said. "Couldn't I sneak onboard without them knowing?"
 
-Casra looked at him with eyes of conviction. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said.
+Casra looked at him with eyes of surprise. "You either love your bundmaman very much or not at all, throwing your life away so carelessly," thi said. "Nobody can swim or paddle fast enough to catch a ship like that. You're more likely to get clipped by the boat and be pulled under." Thi sat back down, facing Kipnu and peered deeper into his eyes. "What happened to get you sent all the way out here, anyway?"
 
 "It's complicated," he said.
 
-"Ah. So the reductive man does understand nuance. But only for his own family." Casra smirked at him coyly. "Well, I've spoken enough and we have plenty of time."
+"Ah. So the reductive man does understand nuance." Casra smirked at him coyly. "Well, I've spoken enough and we have plenty of time. Tell me why you want to go back so badly."
 
 "There was this guy," he started, "who wanted to send hae to space."
 
@@ -197,7 +193,7 @@ Kipnu was surprised that thi could read him so well, but he imagined that such a
 
 "Tell me about hae," thi said. "Thi sounds like an interesting maman to say the least."
 
-"Liffa was... is... everything good in my life," he said. "To the rest of Heiko Liffa is just a farmer, but they don't see hae like I do. Thi holds Melna and I together, and thi does it well, but there's this cloud that hangs above hae always. Sometimes I just can't figure hae out."
+"Liffa was... is... everything good in my life," he said. "To the rest of Heiko Liffa is just a farmer, but they don't see hae like I do. Thi holds Melna and I together and thi does it so well. But there's this cloud that hangs above hae always. Sometimes I just can't figure hae out."
 
 "And your bundwoman?"
 
@@ -221,7 +217,7 @@ He started to mince his words into vague trifles. "There are bigger things at st
 
 "Do you trust them to go on without you?"
 
-"Go on," he said, agitated. "You want to say something, say it."
+"Go on without me?" he asked, agitated. "I already told you I'm leaving as soon as I can find a way out of here."
 
 "The people who come here leave behind lives full of relationships. Some of them invent new worries to keep themselves attached to the people they left behind. Some die trying to leave this place, never knowing that nothing was left of the life they were chasing. These thoughts are self-destructive. The man you knew will die here, but someone new will take his place. Melna will decide to continue her own life on a trajectory that doesn't include you – that can't include you. So what I'm asking is this." Thi leaned forward to look closely into his eyes. "Do you trust your bound family to do what's best for themselves, even if it means leaving you behind?"
 
@@ -235,7 +231,7 @@ He looked back at Casra with conviction in his eyes. Perhaps thi knew more about
 
 "I'll go with you," said Linyu as thi grabbed the wooden puck thi was fiddling with and followed him to the ladder.
 
-"I won't follow you," said Casra to Kipnu. "But be vigilant. I wouldn't want a hunter to come whisk you away when I wasn't looking. Look after 'em Lin." Thi shot a glance toward Linyu who smirked in response: some sort of language only meant for each other's ears. He blushed for just a tick, recalling his mother's scowls and hums that only he could understand. He wished they hadn't died with hae.
+"I won't follow you," said Casra to Kipnu. "But be vigilant. I wouldn't want a hunter to come whisk you away when I wasn't looking. Look after him Lin." Thi shot a glance toward Linyu who smirked in response: some sort of language only meant for each other's ears. He blushed for just a moment, recalling his mother's scowls and hums that only he could understand. He wished they hadn't died with hae.
 
 "Follow me," said Linyu, squeezing between Kipnu and the ladder with ease. With one quick swoop, thi was up the ladder and lifting haeself up to the ground. Kipnu carefully placed his feet and hands upon the well-worn wooden rungs, trying least of all to be as agile as a kaln half his age. He glanced back at Casra before he ascended, and for a moment he wished that he could stay with them in Ulukoma.
 
@@ -345,7 +341,7 @@ Casra looked him over and smirked with a knowing expression. "Come," thi said. "
 
 "The floor is good," he replied, simply wanting to rest.
 
-Once hae feet hit the floor of their home, Linyu fetched a pillow and blanket and placed them on the floor next to the bed. Kipnu graciously settled into the corner that Linyu had set for him and removed his foot wrappings, feeling his bare feet hit the dry clay ground – oddly warm for such a cold place. He listened as Casra's voice mulled over the walls in a soft hum, painted them with a melody that spoke as if music itself was a language; like a poem that Linyu had heard countless times before, that Kipnu didn't need to.
+Once hae feet hit the floor of their home, Linyu fetched a pillow and blanket and placed them on the floor next to the bed. Kipnu graciously settled into the corner that Linyu had set for him and removed his foot wrappings, feeling his bare feet hit the dry clay below him – oddly warm for such a cold place. He listened as Casra's voice mulled over the walls in a soft hum, painted them with a melody that spoke as if music itself was a language; like a familiar poem that Linyu had heard countless times before, that Kipnu didn't need to.
 
 <!--
 Casra looked at him admiringly, as if to wonder how such a good heart could be sent to such a miserable place. But thi remembered that all people have a dark side, including herself. -->
