@@ -124,29 +124,49 @@ He stared at hae eyes nervously, thinking of how to tell them. "If I told you th
 
 "I can't be sure," said Kipnu, "but certainly it will be far too soon."
 
-He glanced at Casra, who was ruminating upon hae own thoughts, then to Linyu who he felt especially sad to tell this to. But whether out of shock or disbelief, Linyu wore no sign of distress or sadness. Instead, thi chimed in with an observation, "There will be more people on today's ship."
+"What the fuck... Does everyone know?" thi asked him. "Why does no one know this but you?"
 
-Kipnu was surprised, and curious. "How... do you know?" he asked.
+"He had a front row ticket to the action," Casra said. "It's why he's here."
 
-"People come here voluntarily when they feel like their world is about to end. I've even seen people come here because they lost money playing games. I never understood those ones."
+Kipnu glanced at Casra, in awe at hae power of deduction. Perhaps he had been rude to dismiss what Casra had asked of him. Or perhaps thi never intended to help him onto a ship back to the mainland.
 
-Casra said, "Kipnu, yesterday you made it clear that you want to leave. I want to respect that, but I could really use your help before you go. Please help me bring all of them here so I can train them to turn this island back."
+"Yesterday you made it clear that you want to leave," thi said. "I want to respect that, but I could really use your help before you go. If what you say is true, then there will be more people on today's ship. Far more than normal."
 
-Kipnu was confused. "Why do you need me for that?" he asked.
+"How can you know such a thing?" he asked.
 
-"Even in this age, a maman needs a salve for kanosin and immense political influence to command people," Casra said. "You are not a maman, and you of all of us know best how to empathize with their struggles. They will follow you to me."
+Thi explained, "Those who come here willfully do so out of desparation. They feel that they've lost everything important in their life. For the addicted, that's a given, but for the rest such a thing is quite rare. There must be hundreds of people boarding that ship today, all of them hoping to fall into the blue before they die."
 
-Kipnu paused, knowing thi was right, but wishing thi wasn't. "And afterward?" he asked, "They will all be coming here to look for a salvation that doesn't exist."
+Linyu seemed unbothered by everything, wearing no sign of distress or sadness. "It's true," thi said. "I've even seen ordinary people begging for kanosin as soon as they make it to shore. Sometimes I wonder if they remember me."
 
-A pause filled the air, and Ginnu glanced quickly toward Casra, but with a quick glance downward Casra telegraphed something back to hae. The interaction was plain to those who understood the many gestures that mamen use to talk amongst each other silently, but to Kipnu, accustomed to speaking with his voice, such exchanges were impercetible. Casra smiled at him and said simply, "There is salvation in helping others have a second chance at life. Just leave the rest to me."
+The aloofness with which Linyu spoke shocked him. To talk about addiction as if it were an emotion as common as thirst or joy, hae life must be so saturated with its presence. yet inside hae was a flame of curiousity that hadn't burnt out yet.
 
-A slight rustling of leaves and swaying of branches marked the start of morning. Behind them, a mix of red stars were twinkling near the horizon. He pondered at all of the mysteries of this place, of Casra's bravery and Linyu's intelligence. And for the first time, Kipnu thought of himself as part of this island. His fate and the fate of the island were irreversibly linked. Maybe he would die here under this strange purple sky, but perhaps following Casra was the surest way to get back to the mainland and find Liffa again.
+"If you would," Casra spoke again. "Help me convince them that there's something else their life is worth. We can bring them all here and train them to turn this island back."
 
-After a pause, thi spoke again. "The answer is yes, by the way." Kipnu looked puzzled but thi clarified. "Your question of whether I would stay here if the world was going to end. If it means my people, my kaln, have even one day of freedom before the end, all of this struggle will have been worth it."
+"Help you?" he asked. "What do you need me for?"
+
+"Even a well-spoken maman like myself needs a salve for kanosin and immense political influence to command people," Casra said. "You are not a maman, and you of all of us know best how to empathize with the struggle of being a stranger here. They will follow your words far sooner than they will follow mine."
+
+Kipnu paused, knowing that thi was right. "And afterward?" he asked, "They all came here for some sort of salvation. If kanosin isn't it, then what will take its place?"
+
+A pause filled the air, and Ginnu glanced quickly toward Casra, but with a quick glance downward Casra telegraphed something back to hae. The interaction was plain to those who understood the many gestures that mamen use to talk amongst each other silently, but to Kipnu, accustomed to speaking with his voice, such exchanges were impercetible. Casra smiled at him and said, "When the time comes, we can all fall into that blissful sleep together. But for now, there is salvation in helping others have a second chance at life. However short that may be. Bring them here, and leave the rest to me. Now, do I have your help?"
+
+Kipnu paused, pondering put his open hand in front of him in the traditional Heikoi gesture of agreement, but Casra took it into hae own and brought it down in front of the both of them.
+
+"This is not the mainland, Kipnu," thi said. "You are Ulukomai when you are here."
+
+A slight rustling of leaves and swaying of branches marked the start of morning. Behind them, a mix of red stars were twinkling near the horizon. He pondered at all of the mysteries of this place, of Casra's bravery, Linyu's intelligence, at this new person named Ginnu. And for the first time, Kipnu thought of himself as part of this island. His fate and the fate of the island were irreversibly linked. Maybe he would die here under this strange purple sky, but perhaps following Casra was the surest way to get back to the mainland and find Liffa again.
+
+After a pause, Casra spoke again. "The answer is yes, by the way." Kipnu looked puzzled but thi clarified. "You asked if I would stay here if the world was going to end. If it means my people, my kaln, have even one day of freedom before the end, all of this struggle will have been worth it."
 
 He accepted the answer with a firm nod. "I feel the same about Liffa and Melna," he said.
 
-"How will it happen?" asked Casra. "The end."
+"Then you must stay strong until you can meet them again," thi replied. "I will do whatever I can to help."
+
+"And me too!" said Linyu.
+
+"Thank you. Both of you. It means a lot," he thanked them both with smile. But from the corner of his eye he saw Ginnnu glance at him and then look away, as if to avoid speaking with him. He took it as a warning that things may not go as planned, but decided not to burden hae with a deluge of prying questions.
+
+"How will it happen?" asked Casra as thi stared out at the stars. "The end."
 
 "Darkness," he replied. "And cold."
 

@@ -1,5 +1,39 @@
 ## Chapter 12
 
+<!-- SNIPPETS -->
+
+<!-- SNIPPET: Kipnu giving Linyu his pendant (VERY IMPORTANT PLOT POINT) -->
+
+"You know what I do when I miss my family?" he asked and Linyu shook hae head. He reached behind his neck and lifted a pendant from his neck, cherishing the nicks and scratches it had gathered over the years.
+
+"I hold onto this, and everything is okay again."
+
+"What is it?" thi asked.
+
+"It's a binding pendant. It represents the bond I share with a maman and a woman."
+
+"Do they have them too?" thi asked.
+
+"Of course," he said. "So they can feel comforted when they miss me."
+
+He carefully, put it around hae neck, and thi turned it over in hae fingers, looking at the detail in the engravings.
+
+He told hae, "If you want, you can borrow it for a while. So you too have something to hold onto."
+
+Thi smiled with a glance and said, "Thanks!", looking back down to observe all its odds and ends. Casra was smiling as thi came closer.
+
+<!-- SNIPPET: Linyu asking Kipnu not to forget them -->
+
+Linyu turned to Kipnu and said, "When you go back to your home on the mainland," thi said, "don't forget about us."
+
+Hae doubtful eyes peered deep into his mind, tore down his defenses. Thi could tell that he wasn't entirely invested in all of this.
+
+"Linyu!" Casra rebuked hae, but Kipnu wasn't offended. He knew there was a shred of truth in hae words; a truth that he couldn't stop feeling guilty about.
+
+"I could never forget about you, Linyu. Or your mother. When I find a way to get my family back, I'll bring them to you so they can tell you their stories."
+
+<!-- END SNIPPETS -->
+
 "Are you sure they're landing here?" asked Kipnu. "I think we came in from over there."
 
 "I'm sure of it. Nanta decides which way to turn depending on the currents. She's not too fond of her job, but she keeps the boat running smoothly."

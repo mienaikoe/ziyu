@@ -4,7 +4,7 @@
 
 ### Lif(fe)[Maman]
 
-The Main Character. Lif serves as the energy of the trio, inspiring them, and providing fun, creative things for them to engage their minds and refresh their spirits. þeir everyday chores typically consist of helping Kip with farming and preparing dinner. þe also acts as a sort of glue, gathering the three of them together when þe senses they need to talk about something heavy. Lif is easy to upset, however, and may get discouraged by a judgment or minor setback to one of þeir plans. Lif is mischievous and open-minded compared to her spouses.
+The Main Character. Lif serves as the energy of the trio, inspiring them, and providing fun, creative things for them to engage their minds and refresh their spirits. þeir everyday chores typically consist of helping Kip with farming and preparing dinner. thi also acts as a sort of glue, gathering the three of them together when thi senses they need to talk about something heavy. Lif is easy to upset, however, and may get discouraged by a judgment or minor setback to one of þeir plans. Lif is mischievous and open-minded compared to her spouses.
 
 Observations: **Objects** Geography, Structure, Soil, Plants, Food, Smells, Temperature, Stars, Light, Architecture
 Knowledge: Agriculture, Physics, Housing
