@@ -1,6 +1,6 @@
 ## Chapter 12
 
-<!-- SNIPPETS -->
+### SNIPPETS
 
 <!-- SNIPPET: Kipnu giving Linyu his pendant (VERY IMPORTANT PLOT POINT) -->
 
@@ -32,7 +32,19 @@ Hae doubtful eyes peered deep into his mind, tore down his defenses. Thi could t
 
 "I could never forget about you, Linyu. Or your mother. When I find a way to get my family back, I'll bring them to you so they can tell you their stories."
 
-<!-- END SNIPPETS -->
+### Outline
+
+- (Unwritten) Kipnu, Casra, Ginnu, and Linyu travel to the Ulu shore on foot
+- They encounter kelp workers and their Clothed overseers
+  - Ginnu distracts them while Casra swims through the water and unties a canoe from the dock
+  - Kipnu and Linyu talk a bit, then join up with Casra once the canoe is out
+- The distraction doesn't last. They are pursued by other canoes. Ginnu is lost to them, to Casra's disappointment in haeself.
+- but they make it all the way to Ara shore where they see the prisoner ship listing. Casra guns it for the listing ships. The other canoes stop for fear of being toppled by the big ship.
+- Kipnu considers boarding the ship to flee, and Casra gives him the space to do so, but he doesn't
+- Linyu is toppled into the water and snagged by a rope
+- Casra is distraught that hae kaln is lost
+
+### Main
 
 "Are you sure they're landing here?" asked Kipnu. "I think we came in from over there."
 

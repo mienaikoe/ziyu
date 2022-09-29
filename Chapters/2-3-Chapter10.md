@@ -107,7 +107,7 @@ Casra scoffed. "Are all physicians in Heiko so arrogant?"
 
 "The Setre you used to know is nothing like the Setre I saw back there." He pulled down the side of his trousers enough for Casra to see the bandage he'd placed on his thigh. "She sliced through my skin like it wasn't even there."
 
-Casra looked digusted at the sight but calmed haeself. "Setre plays an important role under this new leadership. A role that she is very good at playing. But that isn't who she wants to be."
+Casra looked digusted at the sight but calmed haeself. "Setre plays an important role among the Clothed. A role that she is very good at playing. But that isn't who she wants to be."
 
 "Ask the people she's enslaved if that matters to them. She calls herself a hunter. And her 'prey' are ordinary people that never asked for any of this. Addicts, like you used to be."
 
