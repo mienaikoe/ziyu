@@ -3,48 +3,70 @@
 ### SNIPPETS
 
 <!-- SNIPPET: Kipnu giving Linyu his pendant (VERY IMPORTANT PLOT POINT) -->
+<!--
 
-"You know what I do when I miss my family?" he asked and Linyu shook hae head. He reached behind his neck and lifted a pendant from his neck, cherishing the nicks and scratches it had gathered over the years.
-
-"I hold onto this, and everything is okay again."
-
-"What is it?" thi asked.
-
-"It's a binding pendant. It represents the bond I share with a maman and a woman."
-
-"Do they have them too?" thi asked.
-
-"Of course," he said. "So they can feel comforted when they miss me."
-
-He carefully, put it around hae neck, and thi turned it over in hae fingers, looking at the detail in the engravings.
-
-He told hae, "If you want, you can borrow it for a while. So you too have something to hold onto."
-
-Thi smiled with a glance and said, "Thanks!", looking back down to observe all its odds and ends. Casra was smiling as thi came closer.
-
+-->
 <!-- SNIPPET: Linyu asking Kipnu not to forget them -->
+<!-->
 
-Linyu turned to Kipnu and said, "When you go back to your home on the mainland," thi said, "don't forget about us."
 
-Hae doubtful eyes peered deep into his mind, tore down his defenses. Thi could tell that he wasn't entirely invested in all of this.
-
-"Linyu!" Casra rebuked hae, but Kipnu wasn't offended. He knew there was a shred of truth in hae words; a truth that he couldn't stop feeling guilty about.
-
-"I could never forget about you, Linyu. Or your mother. When I find a way to get my family back, I'll bring them to you so they can tell you their stories."
+-->
 
 ### Outline
 
+<!--
+New:
 - (Unwritten) Kipnu, Casra, Ginnu, and Linyu travel to the Ulu shore on foot
 - They encounter kelp workers and their Clothed overseers
   - Ginnu distracts them while Casra swims through the water and unties a canoe from the dock
   - Kipnu and Linyu talk a bit, then join up with Casra once the canoe is out
 - The distraction doesn't last. They are pursued by other canoes. Ginnu is lost to them, to Casra's disappointment in haeself.
 - but they make it all the way to Ara shore where they see the prisoner ship listing. Casra guns it for the listing ships. The other canoes stop for fear of being toppled by the big ship.
-- Kipnu considers boarding the ship to flee, and Casra gives him the space to do so, but he doesn't
-- Linyu is toppled into the water and snagged by a rope
-- Casra is distraught that hae kaln is lost
+- Kipnu considers boarding the ship to flee, and Casra gives him the space to do so. He starts to rope the rudder, but he hesitates. Ramne comes up in a following boat and initiates a struggle with Kipnu's rope. Kipnu finally lands the rope on the rudder successfully, but due to the struggle, Linyu is now in his way. Linyu is snagged and pulled into the water, while Casra is pulled onto Ramne's ship. He departs, with Kiipnu in tow, but he can't paddle as quickly as the many people on Ramne's canoe
+- Kipnu speaks to the crowd
+-->
 
 ### Main
+
+Kipnu shivered in the kelpen clothes that Casra had given him as the four made their way through the forest to a dock at the Ulu coast of the island. He followed behind the others, trying his best to keep up with them and not to hit a tree in the increasing darkness on this side of the island.
+
+"So we just ask them politely for a canoe?" he asked.
+
+Casra let out an exasperated sigh. "Ginnu will handle that part," thi said. "You just help me untie the thing."
+
+He doubted hae. "Aren't they searching for Ginnu? "
+
+"The kelpers don't know about hae," thi explained. "Shinna individual drops of information to only those who need to know."
+
+Ginnu had been silent through the long walk, and Kipnu began to wonder about hae. Why was thi so bothered by the strange man? And what did thi mean about death being a friend?
+
+"Quiet," whispered Casra. The commanding sounds of a woman came to their ears as a dock of a hundred canoes and just as many people came to view.
+
+"Rinzho," said the commanding woman, her skin adorned with lines of blue. "These repairs should have been done by sunrise. Leave it to a maman to be behind schedule."
+
+But Rinzho's eyes were glowing blue and barely open. With a mustered a nod of acknowledgement, she continued searching the dock with her blind eyes. There was nothing around her.
+
+The group had stopped just short of the treeline but Ginnu continued onto shore without hesitation, as if thi had been here countless times. Or perhaps thi was in a hurry.
+
+"Hanta," Ginnu called to the woman.
+
+She turned toward Ginnu with a guarded expression on her face, taking careful steps toward hae to ensure her eyes weren't deceiving her. "What are you doing here?" she asked. "I thought you were on the mainland with Ramne."
+
+"He finally got tired of me and–" Ginnu raised hae arm to hae neck and slid it across in an oddly violent way. "I'm just a spirit come to visit you."
+
+Hanta looked at hae with apprehensive confusion. "O... Ok." She turned to walk back to the dock. "Well I'm kind of busy so–"
+
+"Could I borrow a canoe?" asked Ginnu, with a strategic interruption.
+
+Hanta looked back at hae. "What?"
+
+"A canoe, I want to use one for just a bit."
+
+Kipnu was snapped out of his gaze by Casra's hand which was pulling him toward the water. "This is our opening," thi whispered. "Let's go."
+
+With barely a step, Kipnu was chasing after his
+
+### Old
 
 "Are you sure they're landing here?" asked Kipnu. "I think we came in from over there."
 

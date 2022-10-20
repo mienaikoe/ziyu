@@ -167,7 +167,7 @@ Casra stared at him coldly, as if to look at a puzzle or a machine. "A boat...ye
 
 Kipnu sat with his warm belly and Casra's words and weighed his trust for hae. Linyu sat quietly at the table, fiddling with some trinket made of wood and metal. He imagined having to raise a child in this cold wilderness, how lonely it must have been.
 
-"You will freeze to death kong before you make it to shore if you take a canoe," Casra explained with a wet bowl in hae hands. "You could try to ride with a smuggler but they're likely to sell you back to Shinna."
+"You will freeze to death long before you make it to shore if you take a canoe," Casra explained with a wet bowl in hae hands. "You could try to ride with a smuggler but they're likely to sell you back to Shinna."
 
 "What about the ship I came in on?" he said. "Couldn't I sneak onboard without them knowing?"
 

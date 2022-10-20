@@ -48,7 +48,9 @@ An anxious pause in the air between them. "G-Ginnu," thi finally said with a tre
 
 "I was afraid you wouldn't make it," he said.
 
-Thi laughed between shivers in a resigned sort of way. "Wouldn't be the f-first time someone said that". He wasn't sure what thi meant, but thought it best not to pry.
+Thi laughed between shivers in a resigned sort of way. "Death is a friend of mine. But nothing more."
+
+He wasn't sure what thi meant, but thought it best not to pry.
 
 Everyone was huddled closely around the fire now, holding an uncomfortable quiet in the air. Kipnu noticed . He looked toward the maman that saved them, now warming haeself by the fire, and noticed that their savior was much younger than he thought: far closer to the age of a kaln than a maman. Hae voice and assuredness told a story of maturity but hae stature and shape were that of a child. He wondered who thi was. How could someone so young know so much about such a place?
 
