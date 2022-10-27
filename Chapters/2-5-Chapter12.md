@@ -9,7 +9,6 @@
 <!-- SNIPPET: Linyu asking Kipnu not to forget them -->
 <!-->
 
-
 -->
 
 ### Outline
@@ -40,19 +39,19 @@ He doubted hae. "Aren't they searching for Ginnu? "
 
 Ginnu had been silent through the long walk, and Kipnu began to wonder about hae. Why was thi so bothered by the strange man? And what did thi mean about death being a friend?
 
-"Quiet," whispered Casra. The commanding sounds of a woman came to their ears as a dock of a hundred canoes and just as many people came to view.
+"Quiet," whispered Casra. The commanding sounds of a woman came to their ears as a dock of a hundred canoes and people came to view.
 
-"Rinzho," said the commanding woman, her skin adorned with lines of blue. "These repairs should have been done by sunrise. Leave it to a maman to be behind schedule."
+"Rinzho," said the commanding woman, her skin adorned with lines of blue. "I asked you to finish tarring the hull by sunrise. Did you steal some kanosin or something? What kind of man can't finish a simple job?"
 
-But Rinzho's eyes were glowing blue and barely open. With a mustered a nod of acknowledgement, she continued searching the dock with her blind eyes. There was nothing around her.
+Rinzho's eyes were glowing blue and barely open. With a mustered a bow of fearful acknowledgement, he continued lazily scooping and spreading tar onto an upturned boat resting against a tree. His hands so covered in tar that one could barely see them in the dark.
 
 The group had stopped just short of the treeline but Ginnu continued onto shore without hesitation, as if thi had been here countless times. Or perhaps thi was in a hurry.
 
-"Hanta," Ginnu called to the woman.
+"Hanta!" Ginnu called warmly to the woman.
 
 She turned toward Ginnu with a guarded expression on her face, taking careful steps toward hae to ensure her eyes weren't deceiving her. "What are you doing here?" she asked. "I thought you were on the mainland with Ramne."
 
-"He finally got tired of me and–" Ginnu raised hae arm to hae neck and slid it across in an oddly violent way. "I'm just a spirit come to visit you."
+"He finally got tired of me and, well," Ginnu raised hae arm to hae neck and slid it across in an oddly violent way, but hae voice retained its cheerful spirit. "I'm just a spirit come to visit you," thi said.
 
 Hanta looked at hae with apprehensive confusion. "O... Ok." She turned to walk back to the dock. "Well I'm kind of busy so–"
 
@@ -64,7 +63,7 @@ Hanta looked back at hae. "What?"
 
 Kipnu was snapped out of his gaze by Casra's hand which was pulling him toward the water. "This is our opening," thi whispered. "Let's go."
 
-With barely a step, Kipnu was chasing after his
+With barely a step, Kipnu was chasing after his feet. They waded quietly into the water until it their feet could barely touch the seafloor. The water was oddly warm here with sparse whisps of vapor rising from the surface and warming the air. Kipnu had no time to ask why, but kept it stored away as a question for the near future.
 
 ### Old
 
