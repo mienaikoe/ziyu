@@ -16,13 +16,28 @@
 <!--
 New:
 - (Unwritten) Kipnu, Casra, Ginnu, and Linyu travel to the Ulu shore on foot
-- They encounter kelp workers and their Clothed overseers
-  - Ginnu distracts them while Casra swims through the water and unties a canoe from the dock
-  - Kipnu and Linyu talk a bit, then join up with Casra once the canoe is out
-- The distraction doesn't last. They are pursued by other canoes. Ginnu is lost to them, to Casra's disappointment in haeself.
-- but they make it all the way to Ara shore where they see the prisoner ship listing. Casra guns it for the listing ships. The other canoes stop for fear of being toppled by the big ship.
-- Kipnu considers boarding the ship to flee, and Casra gives him the space to do so. He starts to rope the rudder, but he hesitates. Ramne comes up in a following boat and initiates a struggle with Kipnu's rope. Kipnu finally lands the rope on the rudder successfully, but due to the struggle, Linyu is now in his way. Linyu is snagged and pulled into the water, while Casra is pulled onto Ramne's ship. He departs, with Kiipnu in tow, but he can't paddle as quickly as the many people on Ramne's canoe
-- Kipnu speaks to the crowd
+
+- Scene 1: They encounter kelp workers and their Clothed overseers
+  - Ginnu distracts them while Casra swims through the water and unties two canoes from the dock (small outriggers).
+  - When one boat is freed, Linyu hops into it and paddle quietly into the darkness toward Ulu. Casra helps Kipnu with the second.
+  - Once Casra meets back up with Linyu, thi directs Kipnu to jump into hae boat.
+  - Ginnu disappears with the coast.
+  - Ulu is like scary dark and the water gets colder the further they go, but the bluekelp grows for miles.
+  - They turn around and make their way to Ara.
+
+- Scene 2: They make it all the way to Ara shore
+  - They see the prisoner ship listing, dumping people.
+  - Casra guns it for the listing ships.
+  - Kipnu considers boarding the ship to flee, and Casra verbally gives him the space to do so. "Take Linyu. Show hae the world before it ends."
+  - Kipnu lassos a protrusion in the hull that they could plausibly suspend from for the duration, but hesitates.
+  - Ramne comes up in a following boat and jumps a great distance to board Casra's boat.
+  - Linyu immediately jumps back onto hae mother's boat as Kipnu's boat pulls away.
+  - Kipnu makes the decision not to go back, jumps onto Casra's Boat to stop Ramne.
+  - Casra moves Linyu to the front of the boat so thi's furthest from Ramne.
+  - Ramne moves to attack, but Ramne dodges him. They struggle. Ramne loses.
+  - Ramne captures Casra. He departs, with Kipnu and Linyu in tow, but they can't paddle as quickly as the many people on Ramne's canoe.
+
+- Next Chapter (Bifurcated): Kipnu speaks to the crowd
 -->
 
 ### Main
